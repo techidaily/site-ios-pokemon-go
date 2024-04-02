@@ -1,7 +1,7 @@
 ---
 title: 15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Apple iPhone 12 mini | Dr.fone
-date: 2024-04-01T06:56:35.014Z
-updated: 2024-04-02T06:56:35.014Z
+date: 2024-04-01T12:54:46.245Z
+updated: 2024-04-02T12:54:46.245Z
 tags: 
   - virtual location change
   - pokemon-go
