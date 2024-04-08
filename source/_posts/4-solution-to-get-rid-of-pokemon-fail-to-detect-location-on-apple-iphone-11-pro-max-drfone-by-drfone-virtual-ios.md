@@ -1,7 +1,7 @@
 ---
 title: 4 solution to get rid of pokemon fail to detect location On Apple iPhone 11 Pro Max | Dr.fone
-date: 2024-04-07T03:13:38.383Z
-updated: 2024-04-08T03:13:38.383Z
+date: 2024-04-07T20:43:14.452Z
+updated: 2024-04-08T20:43:14.452Z
 tags: 
   - virtual location change
   - pokemon-go

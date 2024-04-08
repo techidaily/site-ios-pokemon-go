@@ -1,7 +1,7 @@
 ---
 title: 9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Apple iPhone 11 | Dr.fone
-date: 2024-04-07T03:13:38.393Z
-updated: 2024-04-08T03:13:38.393Z
+date: 2024-04-07T20:43:14.511Z
+updated: 2024-04-08T20:43:14.511Z
 tags: 
   - virtual location change
   - pokemon-go
