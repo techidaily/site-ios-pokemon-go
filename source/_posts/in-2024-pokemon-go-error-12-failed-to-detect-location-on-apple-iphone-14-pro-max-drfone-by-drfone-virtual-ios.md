@@ -331,6 +331,12 @@ You can also add your favorite iSpoofer gpx routes. To add any spot into your fa
 
 Being a first timer, you may find it very complicated to fake your gps location. But Pokemon map creator makes it easy. Dr. Fone virtual location works seamlessly with your iOS device to take you virtually to any place in the world, from the comfort of your living room.
 
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
