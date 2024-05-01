@@ -1,7 +1,7 @@
 ---
 title: Detailed guide of ispoofer for pogo installation On Apple iPhone 12 mini | Dr.fone
-date: 2024-04-11T23:08:58.997Z
-updated: 2024-04-12T23:08:58.997Z
+date: 2024-04-30T13:09:15.691Z
+updated: 2024-05-01T13:09:15.691Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -324,3 +324,4 @@ iTools location spoofer is another good GPS mocking tool that is suitable for Po
 <li><a href="https://android-pokemon-go.techidaily.com/in-2024-hacks-to-do-pokemon-go-trainer-battles-for-oppo-reno-10-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Hacks to do pokemon go trainer battles For Oppo Reno 10 Pro 5G | Dr.fone</u></a></li>
 <li><a href="https://howto.techidaily.com/fixes-for-apps-keep-crashing-on-honor-70-lite-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fixes for Apps Keep Crashing on Honor 70 Lite 5G | Dr.fone</u></a></li>
 </ul></div>
+

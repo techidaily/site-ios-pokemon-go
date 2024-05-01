@@ -1,7 +1,7 @@
 ---
 title: Can I use iTools gpx file to catch the rare Pokemon On Apple iPhone 12 mini | Dr.fone
-date: 2024-04-11T23:08:44.767Z
-updated: 2024-04-12T23:08:44.767Z
+date: 2024-04-30T13:09:15.536Z
+updated: 2024-05-01T13:09:15.536Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -310,3 +310,4 @@ iSpoofer is widely used as a “Pokemon Go hack” by many players and that’s 
 <li><a href="https://techidaily.com/how-to-exit-recovery-mode-on-apple-iphone-xs-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Exit Recovery Mode on Apple iPhone XS? | Dr.fone</u></a></li>
 <li><a href="https://bypass-frp.techidaily.com/ultimate-guide-on-tecno-phantom-v-fold-frp-bypass-by-drfone-android/"><u>Ultimate Guide on Tecno Phantom V Fold FRP Bypass</u></a></li>
 </ul></div>
+
