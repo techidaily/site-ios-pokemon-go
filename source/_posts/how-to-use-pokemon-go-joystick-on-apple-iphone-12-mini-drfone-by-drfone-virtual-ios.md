@@ -1,7 +1,7 @@
 ---
 title: How to use Pokemon Go Joystick on Apple iPhone 12 mini? | Dr.fone
-date: 2024-04-30T13:10:45.114Z
-updated: 2024-05-01T13:10:45.114Z
+date: 2024-05-19T02:51:30.239Z
+updated: 2024-05-20T02:51:30.239Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -474,4 +474,5 @@ Getting Pokémon Emerald Master Ball cheat codes is important if you want to cat
 <li><a href="https://phone-solutions.techidaily.com/best-video-repair-tool-to-fix-and-repair-corrupt-mp4-mov-avi-video-files-of-tecno-phantom-v-flip-by-stellar-video-repair-mobile-video-repair/"><u>Best Video Repair tool to Fix and Repair Corrupt MP4,MOV,AVI video files of Tecno Phantom V Flip</u></a></li>
 <li><a href="https://ios-unlock.techidaily.com/in-2024-unlock-apple-iphone-14-with-forgotten-passcode-different-methods-you-can-try-by-drfone-ios/"><u>In 2024, Unlock Apple iPhone 14 With Forgotten Passcode Different Methods You Can Try</u></a></li>
 </ul></div>
+
 

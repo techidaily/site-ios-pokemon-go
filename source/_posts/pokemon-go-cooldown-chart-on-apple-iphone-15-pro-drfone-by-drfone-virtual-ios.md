@@ -1,7 +1,7 @@
 ---
 title: Pokémon Go Cooldown Chart On Apple iPhone 15 Pro | Dr.fone
-date: 2024-04-30T13:18:35.946Z
-updated: 2024-05-01T13:18:35.946Z
+date: 2024-05-19T02:51:35.597Z
+updated: 2024-05-20T02:51:35.597Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -471,4 +471,5 @@ Pokémon Go is a viral and fantastic game. However, sometimes players get into t
 <li><a href="https://ai-vdieo-software.techidaily.com/in-2024-change-video-dimensions-quickly-and-easily/"><u>In 2024, Change Video Dimensions Quickly and Easily</u></a></li>
 <li><a href="https://screen-mirror.techidaily.com/in-2024-8-best-apps-for-screen-mirroring-honor-100-pro-pc-drfone-by-drfone-android/"><u>In 2024, 8 Best Apps for Screen Mirroring Honor 100 Pro PC | Dr.fone</u></a></li>
 </ul></div>
+
 

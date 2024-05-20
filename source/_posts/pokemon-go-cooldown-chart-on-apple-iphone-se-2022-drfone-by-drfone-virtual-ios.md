@@ -1,7 +1,7 @@
 ---
 title: Pokémon Go Cooldown Chart On Apple iPhone SE (2022) | Dr.fone
-date: 2024-04-30T13:18:38.064Z
-updated: 2024-05-01T13:18:38.064Z
+date: 2024-05-19T02:51:35.626Z
+updated: 2024-05-20T02:51:35.626Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -469,4 +469,5 @@ Alternatively, Pokemon trainers can use GPS-spoofing apps like Wondershare Dr.Fo
 <li><a href="https://ai-video-editing.techidaily.com/updated-in-2024-how-to-delete-white-background-in-photoshop-how-to-create-a-transparent-background-in-photoshop-steps-to-get-rid-of-white-background-in-phot/"><u>Updated In 2024, How to Delete White Background in Photoshop. How to Create a Transparent Background in Photoshop? Steps to Get Rid of White Background in Photoshop</u></a></li>
 <li><a href="https://android-pokemon-go.techidaily.com/a-working-guide-for-pachirisu-pokemon-go-map-on-tecno-spark-go-2023-drfone-by-drfone-virtual-android/"><u>A Working Guide For Pachirisu Pokemon Go Map On Tecno Spark Go (2023) | Dr.fone</u></a></li>
 </ul></div>
+
 

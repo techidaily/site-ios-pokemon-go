@@ -1,7 +1,7 @@
 ---
 title: In 2024, Top 15 Augmented Reality Games Like Pokémon GO To Play On Apple iPhone 13 mini | Dr.fone
-date: 2024-04-30T13:16:22.119Z
-updated: 2024-05-01T13:16:22.119Z
+date: 2024-05-19T02:51:34.120Z
+updated: 2024-05-20T02:51:34.120Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -480,4 +480,5 @@ There you go! After getting to know about these Pokemon Go regional maps for Pac
 <li><a href="https://location-social.techidaily.com/how-to-change-apple-iphone-12-pro-location-on-skout-drfone-by-drfone-virtual-ios/"><u>How to Change Apple iPhone 12 Pro Location on Skout | Dr.fone</u></a></li>
 <li><a href="https://activate-lock.techidaily.com/how-to-unlock-icloud-activation-lock-and-icloud-account-from-apple-iphone-12-by-drfone-ios/"><u>How to Unlock iCloud Activation Lock and iCloud Account From Apple iPhone 12?</u></a></li>
 </ul></div>
+
 

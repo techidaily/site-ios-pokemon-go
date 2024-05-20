@@ -1,7 +1,7 @@
 ---
 title: How to get the dragon scale and evolution-enabled pokemon On Apple iPhone 12 Pro? | Dr.fone
-date: 2024-04-30T13:10:32.035Z
-updated: 2024-05-01T13:10:32.035Z
+date: 2024-05-19T02:51:30.103Z
+updated: 2024-05-20T02:51:30.103Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -383,4 +383,5 @@ That’s a wrap, everyone! I’m sure that after reading this post, you would be
 <li><a href="https://pokemon-go-android.techidaily.com/how-to-fix-pokemon-go-route-not-working-on-poco-f5-pro-5g-drfone-by-drfone-virtual-android/"><u>How to Fix Pokemon Go Route Not Working On Poco F5 Pro 5G? | Dr.fone</u></a></li>
 <li><a href="https://blog-min.techidaily.com/4-ways-to-transfer-music-from-oppo-find-n3-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>4 Ways to Transfer Music from Oppo Find N3 to iPhone | Dr.fone</u></a></li>
 </ul></div>
+
 

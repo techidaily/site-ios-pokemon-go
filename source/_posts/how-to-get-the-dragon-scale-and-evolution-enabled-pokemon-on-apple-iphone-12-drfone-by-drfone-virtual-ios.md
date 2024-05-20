@@ -1,7 +1,7 @@
 ---
 title: How to get the dragon scale and evolution-enabled pokemon On Apple iPhone 12? | Dr.fone
-date: 2024-04-30T13:10:31.660Z
-updated: 2024-05-01T13:10:31.660Z
+date: 2024-05-19T02:51:30.100Z
+updated: 2024-05-20T02:51:30.100Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -404,4 +404,5 @@ Acquiring Sun Stones for Pokémon evolutions can be quite a hassle. This rare ev
 <li><a href="https://activate-lock.techidaily.com/the-most-effective-ways-to-bypass-apple-iphone-x-activation-lock-by-drfone-ios/"><u>The Most Effective Ways to Bypass Apple iPhone X Activation Lock</u></a></li>
 <li><a href="https://techidaily.com/how-to-reset-motorola-moto-g14-without-the-home-button-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset Motorola Moto G14 Without the Home Button | Dr.fone</u></a></li>
 </ul></div>
+
 

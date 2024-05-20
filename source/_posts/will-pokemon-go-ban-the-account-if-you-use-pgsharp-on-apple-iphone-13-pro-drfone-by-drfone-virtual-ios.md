@@ -1,7 +1,7 @@
 ---
 title: Will Pokémon Go Ban the Account if You Use PGSharp On Apple iPhone 13 Pro | Dr.fone
-date: 2024-04-30T13:21:00.263Z
-updated: 2024-05-01T13:21:00.263Z
+date: 2024-05-19T02:51:37.068Z
+updated: 2024-05-20T02:51:37.068Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -357,4 +357,5 @@ Pokemon PvP ranking may not be the ultimate priority of most Pokemon Go players 
 <li><a href="https://ai-video-apps.techidaily.com/2024-approved-trim-your-videos-for-free-10-best-online-editors/"><u>2024 Approved Trim Your Videos for Free 10 Best Online Editors</u></a></li>
 <li><a href="https://blog-min.techidaily.com/how-to-rescue-lost-music-from-moto-g14-by-fonelab-android-recover-music/"><u>How to Rescue Lost Music from Moto G14</u></a></li>
 </ul></div>
+
 

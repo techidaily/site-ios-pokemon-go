@@ -1,7 +1,7 @@
 ---
 title: How Do You Get Sun Stone Evolutions in Pokémon For Apple iPhone 12 mini? | Dr.fone
-date: 2024-04-30T13:09:45.868Z
-updated: 2024-05-01T13:09:45.868Z
+date: 2024-05-19T02:51:29.612Z
+updated: 2024-05-20T02:51:29.612Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -379,4 +379,5 @@ I’m sure that after reading this post, you would be able to know about Poke st
 <li><a href="https://fake-location.techidaily.com/prank-your-friends-easy-ways-to-fake-and-share-google-maps-location-on-oneplus-nord-n30-se-drfone-by-drfone-virtual-android/"><u>Prank Your Friends! Easy Ways to Fake and Share Google Maps Location On OnePlus Nord N30 SE | Dr.fone</u></a></li>
 <li><a href="https://screen-mirror.techidaily.com/guide-to-mirror-your-zte-nubia-flip-5g-to-other-android-devices-drfone-by-drfone-android/"><u>Guide to Mirror Your ZTE Nubia Flip 5G to Other Android devices | Dr.fone</u></a></li>
 </ul></div>
+
 

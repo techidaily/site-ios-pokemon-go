@@ -1,7 +1,7 @@
 ---
 title: What Legendaries Are In Pokemon Platinum On Apple iPhone 13? | Dr.fone
-date: 2024-04-30T13:20:13.728Z
-updated: 2024-05-01T13:20:13.728Z
+date: 2024-05-19T02:51:36.689Z
+updated: 2024-05-20T02:51:36.689Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -375,4 +375,5 @@ Pokémon Go continues to amaze trainers and fans of the franchise, and is becomi
 <li><a href="https://unlock-android.techidaily.com/how-can-we-unlock-our-xiaomi-redmi-13c-5g-phone-screen-by-drfone-android/"><u>How Can We Unlock Our Xiaomi Redmi 13C 5G Phone Screen?</u></a></li>
 <li><a href="https://ai-vdieo-software.techidaily.com/2024-approved-top-mobile-video-editors-for-portrait-mode-videos/"><u>2024 Approved Top Mobile Video Editors for Portrait Mode Videos</u></a></li>
 </ul></div>
+
 

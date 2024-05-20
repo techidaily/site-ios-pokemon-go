@@ -1,7 +1,7 @@
 ---
 title: How to use Pokemon Go Joystick on Apple iPhone 8? | Dr.fone
-date: 2024-04-30T13:10:49.191Z
-updated: 2024-05-01T13:10:49.191Z
+date: 2024-05-19T02:51:30.346Z
+updated: 2024-05-20T02:51:30.346Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -466,4 +466,5 @@ We hope that this article has been informative, about Dr Fone Virtual Location a
 <li><a href="https://techidaily.com/repair-broken-or-corrupt-video-files-of-gionee-f3-pro-by-stellar-video-repair-mobile-video-repair/"><u>Repair broken or corrupt video files of Gionee F3 Pro</u></a></li>
 <li><a href="https://blog-min.techidaily.com/how-to-repair-iphone-13-mini-system-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Repair iPhone 13 mini System? | Dr.fone</u></a></li>
 </ul></div>
+
 

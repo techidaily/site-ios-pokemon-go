@@ -1,7 +1,7 @@
 ---
 title: Will Pokémon Go Ban the Account if You Use PGSharp On Apple iPhone XS | Dr.fone
-date: 2024-04-30T13:21:04.722Z
-updated: 2024-05-01T13:21:04.722Z
+date: 2024-05-19T02:51:37.100Z
+updated: 2024-05-20T02:51:37.100Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -505,4 +505,5 @@ The journey to completing your Pokedex may not be a short one as there are hundr
 <li><a href="https://techidaily.com/how-to-erase-private-data-from-apple-iphone-xs-max-drfone-by-drfone-ios-full-data-eraser-ios-full-data-eraser/"><u>How To Erase Private Data From Apple iPhone XS Max | Dr.fone</u></a></li>
 <li><a href="https://techidaily.com/turn-off-screen-lock-xiaomi-redmi-k70-by-drfone-android-unlock-android-unlock/"><u>Turn Off Screen Lock - Xiaomi Redmi K70</u></a></li>
 </ul></div>
+
 

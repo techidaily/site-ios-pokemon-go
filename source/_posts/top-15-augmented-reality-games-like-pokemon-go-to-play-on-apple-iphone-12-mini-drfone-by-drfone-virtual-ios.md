@@ -1,7 +1,7 @@
 ---
 title: Top 15 Augmented Reality Games Like Pokémon GO To Play On Apple iPhone 12 mini | Dr.fone
-date: 2024-04-30T13:19:33.366Z
-updated: 2024-05-01T13:19:33.366Z
+date: 2024-05-19T02:51:36.134Z
+updated: 2024-05-20T02:51:36.134Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -502,4 +502,5 @@ Getting Rare Candy in Pokemon Go Fire Red is a difficult task. These cadies are 
 <li><a href="https://android-pokemon-go.techidaily.com/hacks-to-do-pokemon-go-trainer-battles-for-oppo-reno-10-pro-5g-drfone-by-drfone-virtual-android/"><u>Hacks to do pokemon go trainer battles For Oppo Reno 10 Pro 5G | Dr.fone</u></a></li>
 <li><a href="https://android-location-track.techidaily.com/3-solutions-to-find-your-meizu-21-current-location-of-a-mobile-number-drfone-by-drfone-virtual-android/"><u>3 Solutions to Find Your Meizu 21 Current Location of a Mobile Number | Dr.fone</u></a></li>
 </ul></div>
+
 

@@ -1,7 +1,7 @@
 ---
 title: Will Pokémon Go Ban the Account if You Use PGSharp On Apple iPhone 11 Pro Max | Dr.fone
-date: 2024-04-30T13:20:58.929Z
-updated: 2024-05-01T13:20:58.929Z
+date: 2024-05-19T02:51:37.058Z
+updated: 2024-05-20T02:51:37.058Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -383,4 +383,5 @@ There you go! After reading this post, I’m sure that you would be able to know
 <li><a href="https://howto.techidaily.com/app-wont-open-on-your-lava-blaze-2-here-are-all-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>App Wont Open on Your Lava Blaze 2? Here Are All Fixes | Dr.fone</u></a></li>
 <li><a href="https://android-pokemon-go.techidaily.com/how-does-the-stardust-trade-cost-in-pokemon-go-on-motorola-moto-g13-drfone-by-drfone-virtual-android/"><u>How does the stardust trade cost In pokemon go On Motorola Moto G13? | Dr.fone</u></a></li>
 </ul></div>
+
 

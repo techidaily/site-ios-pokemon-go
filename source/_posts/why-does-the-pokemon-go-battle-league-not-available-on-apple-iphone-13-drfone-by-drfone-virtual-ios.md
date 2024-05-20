@@ -1,7 +1,7 @@
 ---
 title: Why does the pokemon go battle league not available On Apple iPhone 13 | Dr.fone
-date: 2024-04-30T13:20:46.636Z
-updated: 2024-05-01T13:20:46.636Z
+date: 2024-05-19T02:51:36.945Z
+updated: 2024-05-20T02:51:36.945Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -473,4 +473,5 @@ Alternatively, Pokemon trainers can use GPS-spoofing apps like Wondershare Dr.Fo
 <li><a href="https://iphone-transfer.techidaily.com/5-easy-ways-to-transfer-contacts-from-apple-iphone-12-pro-to-android-drfone-by-drfone-transfer-from-ios/"><u>5 Easy Ways to Transfer Contacts from Apple iPhone 12 Pro to Android | Dr.fone</u></a></li>
 <li><a href="https://phone-solutions.techidaily.com/how-to-downgrade-iphone-11-without-itunes-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Downgrade iPhone 11 without iTunes? | Dr.fone</u></a></li>
 </ul></div>
+
 

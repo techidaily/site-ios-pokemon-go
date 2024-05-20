@@ -1,7 +1,7 @@
 ---
 title: Will Pokémon Go Ban the Account if You Use PGSharp On Apple iPhone 12 Pro | Dr.fone
-date: 2024-04-30T13:20:59.504Z
-updated: 2024-05-01T13:20:59.504Z
+date: 2024-05-19T02:51:37.062Z
+updated: 2024-05-20T02:51:37.062Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -476,4 +476,5 @@ These are all the games that are similar to Pokémon Go and something that you c
 <li><a href="https://unlock-android.techidaily.com/how-to-unlock-a-network-locked-zte-blade-a73-5g-phone-by-drfone-android/"><u>How to Unlock a Network Locked ZTE Blade A73 5G Phone?</u></a></li>
 <li><a href="https://fake-location.techidaily.com/complete-tutorial-to-use-vpna-to-fake-gps-location-on-honor-80-pro-straight-screen-edition-drfone-by-drfone-virtual-android/"><u>Complete Tutorial to Use VPNa to Fake GPS Location On Honor 80 Pro Straight Screen Edition | Dr.fone</u></a></li>
 </ul></div>
+
 

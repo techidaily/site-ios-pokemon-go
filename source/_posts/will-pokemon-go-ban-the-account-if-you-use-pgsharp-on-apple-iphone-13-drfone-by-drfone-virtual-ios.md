@@ -1,7 +1,7 @@
 ---
 title: Will Pokémon Go Ban the Account if You Use PGSharp On Apple iPhone 13 | Dr.fone
-date: 2024-04-30T13:20:59.884Z
-updated: 2024-05-01T13:20:59.884Z
+date: 2024-05-19T02:51:37.065Z
+updated: 2024-05-20T02:51:37.065Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -434,4 +434,5 @@ There you go! After reading this post, I’m sure that you would be able to know
 <li><a href="https://android-transfer.techidaily.com/in-2024-5-ways-to-move-contacts-from-poco-f5-pro-5g-to-iphone-131415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Ways to Move Contacts From Poco F5 Pro 5G to iPhone (13/14/15) | Dr.fone</u></a></li>
 <li><a href="https://animation-videos.techidaily.com/updated-2d-character-animation-everything-you-should-know-about-it-for-2024/"><u>Updated 2D Character Animation Everything You Should Know About It for 2024</u></a></li>
 </ul></div>
+
 

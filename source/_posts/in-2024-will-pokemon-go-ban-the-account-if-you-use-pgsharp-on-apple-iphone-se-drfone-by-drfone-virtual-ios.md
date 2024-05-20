@@ -1,7 +1,7 @@
 ---
 title: In 2024, Will Pokémon Go Ban the Account if You Use PGSharp On Apple iPhone SE | Dr.fone
-date: 2024-04-30T13:17:52.297Z
-updated: 2024-05-01T13:17:52.297Z
+date: 2024-05-19T02:51:35.196Z
+updated: 2024-05-20T02:51:35.196Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -465,4 +465,5 @@ The location will be locked by the program and your Apple iPhone SE will also sh
 <li><a href="https://ai-voice-clone.techidaily.com/updated-what-is-ai-voice-text-to-speech-wondershare-virbo-glossary/"><u>Updated What Is AI Voice Text to Speech? | Wondershare Virbo Glossary</u></a></li>
 <li><a href="https://howto.techidaily.com/why-is-my-samsung-galaxy-z-flip-5-offline-troubleshooting-guide-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Is My Samsung Galaxy Z Flip 5 Offline? Troubleshooting Guide | Dr.fone</u></a></li>
 </ul></div>
+
 

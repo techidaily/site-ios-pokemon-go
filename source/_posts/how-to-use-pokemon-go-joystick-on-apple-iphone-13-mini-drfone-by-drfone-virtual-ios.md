@@ -1,7 +1,7 @@
 ---
 title: How to use Pokemon Go Joystick on Apple iPhone 13 mini? | Dr.fone
-date: 2024-04-30T13:10:45.878Z
-updated: 2024-05-01T13:10:45.878Z
+date: 2024-05-19T02:51:30.245Z
+updated: 2024-05-20T02:51:30.245Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -469,4 +469,5 @@ Acquiring Sun Stones for Pokémon evolutions can be quite a hassle. This rare ev
 <li><a href="https://ai-video-editing.techidaily.com/updated-2024-approved-a-detailed-guid-to-remove-background-from-a-video-in-premier-pro/"><u>Updated 2024 Approved A Detailed Guid to Remove Background From a Video in Premier Pro</u></a></li>
 <li><a href="https://fix-guide.techidaily.com/itel-a60s-camera-not-working-unexpected-error-fix-it-now-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Itel A60s Camera Not Working Unexpected Error? Fix It Now | Dr.fone</u></a></li>
 </ul></div>
+
 

@@ -1,7 +1,7 @@
 ---
 title: How to use Pokemon Go Joystick on Apple iPhone 12? | Dr.fone
-date: 2024-04-30T13:10:44.923Z
-updated: 2024-05-01T13:10:44.923Z
+date: 2024-05-19T02:51:30.237Z
+updated: 2024-05-20T02:51:30.237Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -492,4 +492,5 @@ Now that you know **how to hatch eggs in Pokemon Go without walking** in 9 diffe
 <li><a href="https://techidaily.com/how-to-upgrade-apple-iphone-xr-to-the-latest-ios-version-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Upgrade Apple iPhone XR to the Latest iOS Version? | Dr.fone</u></a></li>
 <li><a href="https://change-location.techidaily.com/honor-x50-gt-not-receiving-texts-10-hassle-free-solutions-here-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Honor X50 GT Not Receiving Texts? 10 Hassle-Free Solutions Here | Dr.fone</u></a></li>
 </ul></div>
+
 

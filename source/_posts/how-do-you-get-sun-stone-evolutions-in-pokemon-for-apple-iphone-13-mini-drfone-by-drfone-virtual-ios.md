@@ -1,7 +1,7 @@
 ---
 title: How Do You Get Sun Stone Evolutions in Pokémon For Apple iPhone 13 mini? | Dr.fone
-date: 2024-04-30T13:09:46.621Z
-updated: 2024-05-01T13:09:46.621Z
+date: 2024-05-19T02:51:29.617Z
+updated: 2024-05-20T02:51:29.617Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -436,4 +436,5 @@ Creating Pokemon overworld maps is a paramount step to playing Pokemon Go. This 
 <li><a href="https://android-pokemon-go.techidaily.com/in-2024-ways-to-trade-pokemon-go-from-far-away-on-motorola-moto-g04-drfone-by-drfone-virtual-android/"><u>In 2024, Ways to trade pokemon go from far away On Motorola Moto G04? | Dr.fone</u></a></li>
 <li><a href="https://ai-editing-video.techidaily.com/updated-list-of-supported-iphone-video-formats-and-best-iphone-video-editor/"><u>Updated List of Supported iPhone Video Formats and Best iPhone Video Editor</u></a></li>
 </ul></div>
+
 

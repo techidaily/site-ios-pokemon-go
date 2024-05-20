@@ -1,7 +1,7 @@
 ---
 title: Pokémon Go Cooldown Chart On Apple iPhone 12 mini | Dr.fone
-date: 2024-04-30T13:18:33.504Z
-updated: 2024-05-01T13:18:33.504Z
+date: 2024-05-19T02:51:35.579Z
+updated: 2024-05-20T02:51:35.579Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -414,4 +414,5 @@ There you go! After reading this post, I’m sure that you would be able to know
 <li><a href="https://activate-lock.techidaily.com/how-to-remove-icloud-from-apple-iphone-13-smoothly-by-drfone-ios/"><u>How To Remove iCloud From Apple iPhone 13 Smoothly</u></a></li>
 <li><a href="https://howto.techidaily.com/fix-infinix-hot-40-android-system-webview-crash-2024-issue-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Infinix Hot 40 Android System Webview Crash 2024 Issue | Dr.fone</u></a></li>
 </ul></div>
+
 

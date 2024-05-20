@@ -1,7 +1,7 @@
 ---
 title: Top 15 Augmented Reality Games Like Pokémon GO To Play On Apple iPhone 8 Plus | Dr.fone
-date: 2024-04-30T13:19:37.674Z
-updated: 2024-05-01T13:19:37.674Z
+date: 2024-05-19T02:51:36.170Z
+updated: 2024-05-20T02:51:36.170Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -477,4 +477,5 @@ Pokémon Go Plus mods like iPogo involves a certain degree of care in order to h
 <li><a href="https://android-transfer.techidaily.com/in-2024-how-can-you-transfer-files-from-oneplus-open-to-iphone-151413-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How Can You Transfer Files From OnePlus Open To iPhone 15/14/13? | Dr.fone</u></a></li>
 <li><a href="https://screen-mirror.techidaily.com/in-2024-process-of-screen-sharing-xiaomi-redmi-a2-to-pc-detailed-steps-drfone-by-drfone-android/"><u>In 2024, Process of Screen Sharing Xiaomi Redmi A2 to PC- Detailed Steps | Dr.fone</u></a></li>
 </ul></div>
+
 

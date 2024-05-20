@@ -1,7 +1,7 @@
 ---
 title: How to use Pokemon Go Joystick on Apple iPhone 8 Plus? | Dr.fone
-date: 2024-04-30T13:10:49.380Z
-updated: 2024-05-01T13:10:49.380Z
+date: 2024-05-19T02:51:30.348Z
+updated: 2024-05-20T02:51:30.348Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -391,4 +391,5 @@ When you need to, you can teleport your device to an area where Dratini is popul
 <li><a href="https://howto.techidaily.com/calls-on-realme-c51-go-straight-to-voicemail-12-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Calls on Realme C51 Go Straight to Voicemail? 12 Fixes | Dr.fone</u></a></li>
 <li><a href="https://bypass-frp.techidaily.com/how-to-bypass-zte-frp-in-3-different-ways-by-drfone-android/"><u>How To Bypass ZTE FRP In 3 Different Ways</u></a></li>
 </ul></div>
+
 

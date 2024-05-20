@@ -1,7 +1,7 @@
 ---
 title: Pokémon Go Cooldown Chart On Apple iPhone 13 Pro Max | Dr.fone
-date: 2024-04-30T13:18:34.628Z
-updated: 2024-05-01T13:18:34.628Z
+date: 2024-05-19T02:51:35.588Z
+updated: 2024-05-20T02:51:35.588Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -489,4 +489,5 @@ Now that you know **how to hatch eggs in Pokemon Go without walking** in 9 diffe
 <li><a href="https://unlock-android.techidaily.com/5-solutions-for-zte-axon-40-lite-unlock-without-password-by-drfone-android/"><u>5 Solutions For ZTE Axon 40 Lite Unlock Without Password</u></a></li>
 <li><a href="https://ai-vdieo-software.techidaily.com/windows-movie-maker-for-mac-top-alternative-video-editing-tools/"><u>Windows Movie Maker for Mac Top Alternative Video Editing Tools</u></a></li>
 </ul></div>
+
 

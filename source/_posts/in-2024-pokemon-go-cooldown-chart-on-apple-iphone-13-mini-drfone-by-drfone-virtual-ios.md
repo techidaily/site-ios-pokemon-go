@@ -1,7 +1,7 @@
 ---
 title: In 2024, Pokémon Go Cooldown Chart On Apple iPhone 13 mini | Dr.fone
-date: 2024-04-30T13:15:22.714Z
-updated: 2024-05-01T13:15:22.714Z
+date: 2024-05-19T02:51:33.498Z
+updated: 2024-05-20T02:51:33.498Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -682,4 +682,5 @@ The location will be locked by the program and your Apple iPhone 13 mini will al
 <li><a href="https://techidaily.com/complete-tutorial-for-samsung-galaxy-a05s-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>Complete Tutorial for Samsung Galaxy A05s Hard Reset | Dr.fone</u></a></li>
 <li><a href="https://activate-lock.techidaily.com/best-ways-to-bypass-icloud-activation-lock-on-apple-iphone-xipadipod-by-drfone-ios/"><u>Best Ways to Bypass iCloud Activation Lock on Apple iPhone X/iPad/iPod</u></a></li>
 </ul></div>
+
 

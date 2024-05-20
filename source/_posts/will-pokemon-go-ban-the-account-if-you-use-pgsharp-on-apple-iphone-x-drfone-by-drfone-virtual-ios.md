@@ -1,7 +1,7 @@
 ---
 title: Will Pokémon Go Ban the Account if You Use PGSharp On Apple iPhone X | Dr.fone
-date: 2024-04-30T13:21:04.344Z
-updated: 2024-05-01T13:21:04.344Z
+date: 2024-05-19T02:51:37.096Z
+updated: 2024-05-20T02:51:37.096Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -464,4 +464,5 @@ Who has given a thought to the involvement of a navigation app for experiencing 
 <li><a href="https://screen-mirror.techidaily.com/guide-to-mirror-your-vivo-x100-pro-to-other-android-devices-drfone-by-drfone-android/"><u>Guide to Mirror Your Vivo X100 Pro to Other Android devices | Dr.fone</u></a></li>
 <li><a href="https://screen-mirror.techidaily.com/recommended-best-applications-for-mirroring-your-vivo-y100-5g-screen-drfone-by-drfone-android/"><u>Recommended Best Applications for Mirroring Your Vivo Y100 5G Screen | Dr.fone</u></a></li>
 </ul></div>
+
 

@@ -1,7 +1,7 @@
 ---
 title: Pokémon Go Cooldown Chart On Apple iPhone 15 | Dr.fone
-date: 2024-04-30T13:18:35.567Z
-updated: 2024-05-01T13:18:35.567Z
+date: 2024-05-19T02:51:35.595Z
+updated: 2024-05-20T02:51:35.595Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -459,4 +459,5 @@ We hope that this article has been informative, about Dr Fone Virtual Location a
 <li><a href="https://howto.techidaily.com/super-easy-ways-to-deal-with-realme-c33-2023-unresponsive-screen-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Super Easy Ways To Deal with Realme C33 2023 Unresponsive Screen | Dr.fone</u></a></li>
 <li><a href="https://apple-account.techidaily.com/protecting-your-privacy-how-to-remove-apple-id-from-apple-iphone-12-mini-by-drfone-ios/"><u>Protecting Your Privacy How To Remove Apple ID From Apple iPhone 12 mini</u></a></li>
 </ul></div>
+
 

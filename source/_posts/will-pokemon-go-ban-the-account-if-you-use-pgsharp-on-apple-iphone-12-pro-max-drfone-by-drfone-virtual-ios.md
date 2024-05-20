@@ -1,7 +1,7 @@
 ---
 title: Will Pokémon Go Ban the Account if You Use PGSharp On Apple iPhone 12 Pro Max | Dr.fone
-date: 2024-04-30T13:20:59.693Z
-updated: 2024-05-01T13:20:59.693Z
+date: 2024-05-19T02:51:37.064Z
+updated: 2024-05-20T02:51:37.064Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -368,4 +368,5 @@ There you go! By following these tips, you would be able to come up with a winni
 <li><a href="https://sim-unlock.techidaily.com/how-to-change-your-sim-pin-code-on-your-xiaomi-13-ultra-phone-by-drfone-android/"><u>How To Change Your SIM PIN Code on Your Xiaomi 13 Ultra Phone</u></a></li>
 <li><a href="https://ai-editing-video.techidaily.com/updated-2024-approved-how-to-change-font-in-premiere-pro/"><u>Updated 2024 Approved How To Change Font In Premiere Pro</u></a></li>
 </ul></div>
+
 

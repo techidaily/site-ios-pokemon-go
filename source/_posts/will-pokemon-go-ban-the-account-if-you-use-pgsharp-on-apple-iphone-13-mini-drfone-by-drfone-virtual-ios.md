@@ -1,7 +1,7 @@
 ---
 title: Will Pokémon Go Ban the Account if You Use PGSharp On Apple iPhone 13 mini | Dr.fone
-date: 2024-04-30T13:21:00.072Z
-updated: 2024-05-01T13:21:00.072Z
+date: 2024-05-19T02:51:37.066Z
+updated: 2024-05-20T02:51:37.066Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -388,4 +388,5 @@ Trading in Pokemon go was introduced in recent times and had now become one of t
 <li><a href="https://fix-guide.techidaily.com/how-to-stop-life360-from-tracking-you-on-motorola-moto-g-5g-2023-drfone-by-drfone-virtual-android/"><u>How to Stop Life360 from Tracking You On Motorola Moto G 5G (2023)? | Dr.fone</u></a></li>
 <li><a href="https://android-transfer.techidaily.com/in-2024-5-easy-ways-to-copy-contacts-from-vivo-y78plus-t1-edition-to-iphone-14-and-15-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Easy Ways to Copy Contacts from Vivo Y78+ (T1) Edition to iPhone 14 and 15 | Dr.fone</u></a></li>
 </ul></div>
+
 

@@ -1,7 +1,7 @@
 ---
 title: Will Pokémon Go Ban the Account if You Use PGSharp On Apple iPhone 11 | Dr.fone
-date: 2024-04-30T13:20:58.520Z
-updated: 2024-05-01T13:20:58.520Z
+date: 2024-05-19T02:51:37.056Z
+updated: 2024-05-20T02:51:37.056Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -322,4 +322,5 @@ So, we have reached the end of this article. We hope that you found the article 
 <li><a href="https://easy-unlock-android.techidaily.com/7-ways-to-unlock-a-locked-realme-c67-4g-phone-by-drfone-android/"><u>7 Ways to Unlock a Locked Realme C67 4G Phone</u></a></li>
 <li><a href="https://screen-mirror.techidaily.com/8-best-apps-for-screen-mirroring-nokia-c12-plus-pc-drfone-by-drfone-android/"><u>8 Best Apps for Screen Mirroring Nokia C12 Plus PC | Dr.fone</u></a></li>
 </ul></div>
+
 

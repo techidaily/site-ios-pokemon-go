@@ -1,7 +1,7 @@
 ---
 title: Will Pokémon Go Ban the Account if You Use PGSharp On Apple iPhone 8 | Dr.fone
-date: 2024-04-30T13:21:03.383Z
-updated: 2024-05-01T13:21:03.383Z
+date: 2024-05-19T02:51:37.089Z
+updated: 2024-05-20T02:51:37.089Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -370,4 +370,5 @@ Being a first timer, you may find it very complicated to fake your gps location.
 <li><a href="https://android-frp.techidaily.com/how-to-bypass-motorola-g24-power-frp-in-3-different-ways-by-drfone-android/"><u>How To Bypass Motorola G24 Power FRP In 3 Different Ways</u></a></li>
 <li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-can-i-get-more-stardust-in-pokemon-go-on-tecno-phantom-v-flip-drfone-by-drfone-virtual-android/"><u>In 2024, How can I get more stardust in pokemon go On Tecno Phantom V Flip? | Dr.fone</u></a></li>
 </ul></div>
+
 

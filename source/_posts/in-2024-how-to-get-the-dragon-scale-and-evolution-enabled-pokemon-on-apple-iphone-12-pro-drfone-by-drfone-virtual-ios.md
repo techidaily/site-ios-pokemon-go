@@ -1,7 +1,7 @@
 ---
 title: In 2024, How to get the dragon scale and evolution-enabled pokemon On Apple iPhone 12 Pro? | Dr.fone
-date: 2024-04-30T13:14:22.572Z
-updated: 2024-05-01T13:14:22.572Z
+date: 2024-05-19T02:51:32.841Z
+updated: 2024-05-20T02:51:32.841Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -348,4 +348,5 @@ I hope that after following this guide, you would be able to know more about the
 <li><a href="https://change-location.techidaily.com/how-to-deal-with-the-vivo-v30-pro-screen-black-but-still-works-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Deal With the Vivo V30 Pro Screen Black But Still Works? | Dr.fone</u></a></li>
 <li><a href="https://android-location-track.techidaily.com/in-2024-best-anti-tracker-software-for-realme-narzo-60-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Best Anti Tracker Software For Realme Narzo 60 5G | Dr.fone</u></a></li>
 </ul></div>
+
 

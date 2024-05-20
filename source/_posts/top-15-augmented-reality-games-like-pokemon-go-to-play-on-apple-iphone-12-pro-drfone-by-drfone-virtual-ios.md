@@ -1,7 +1,7 @@
 ---
 title: Top 15 Augmented Reality Games Like Pokémon GO To Play On Apple iPhone 12 Pro | Dr.fone
-date: 2024-04-30T13:19:33.556Z
-updated: 2024-05-01T13:19:33.556Z
+date: 2024-05-19T02:51:36.135Z
+updated: 2024-05-20T02:51:36.135Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -515,4 +515,5 @@ Dr. Fone's virtual location is the best and the most advanced program that will 
 <li><a href="https://change-location.techidaily.com/in-2024-why-is-ipogo-not-working-on-vivo-y17s-fixed-drfone-by-drfone-virtual-android/"><u>In 2024, Why is iPogo not working On Vivo Y17s? Fixed | Dr.fone</u></a></li>
 <li><a href="https://fake-location.techidaily.com/how-to-fix-my-xiaomi-14-ultra-location-is-wrong-drfone-by-drfone-virtual-android/"><u>How to Fix My Xiaomi 14 Ultra Location Is Wrong | Dr.fone</u></a></li>
 </ul></div>
+
 

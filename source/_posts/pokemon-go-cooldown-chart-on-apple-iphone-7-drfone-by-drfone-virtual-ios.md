@@ -1,7 +1,7 @@
 ---
 title: Pokémon Go Cooldown Chart On Apple iPhone 7 | Dr.fone
-date: 2024-04-30T13:18:37.123Z
-updated: 2024-05-01T13:18:37.123Z
+date: 2024-05-19T02:51:35.619Z
+updated: 2024-05-20T02:51:35.619Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -470,4 +470,5 @@ When you need to, you can teleport your device to an area where Dratini is popul
 <li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-samsung-galaxy-a15-4g-bootloader-easily-by-drfone-android/"><u>In 2024, How to Unlock Samsung Galaxy A15 4G Bootloader Easily</u></a></li>
 <li><a href="https://ios-unlock.techidaily.com/unlock-apple-iphone-6-with-forgotten-passcode-different-methods-you-can-try-by-drfone-ios/"><u>Unlock Apple iPhone 6 With Forgotten Passcode Different Methods You Can Try</u></a></li>
 </ul></div>
+
 

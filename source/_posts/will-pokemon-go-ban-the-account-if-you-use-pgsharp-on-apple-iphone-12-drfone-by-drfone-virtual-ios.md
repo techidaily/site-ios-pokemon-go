@@ -1,7 +1,7 @@
 ---
 title: Will Pokémon Go Ban the Account if You Use PGSharp On Apple iPhone 12 | Dr.fone
-date: 2024-04-30T13:20:59.125Z
-updated: 2024-05-01T13:20:59.125Z
+date: 2024-05-19T02:51:37.059Z
+updated: 2024-05-20T02:51:37.059Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -435,4 +435,5 @@ All **Pokemon promo codes** have an expiry time frame. And the time frames are u
 <li><a href="https://ios-unlock.techidaily.com/in-2024-unlock-apple-iphone-xr-without-passcode-easily-by-drfone-ios/"><u>In 2024, Unlock Apple iPhone XR Without Passcode Easily</u></a></li>
 <li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-reset-a-motorola-edge-40-neo-phone-that-is-locked-by-drfone-android/"><u>In 2024, How to Reset a Motorola Edge 40 Neo Phone that is Locked?</u></a></li>
 </ul></div>
+
 

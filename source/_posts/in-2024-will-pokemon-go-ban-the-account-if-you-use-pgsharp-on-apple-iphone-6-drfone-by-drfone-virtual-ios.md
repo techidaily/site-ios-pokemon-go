@@ -1,7 +1,7 @@
 ---
 title: In 2024, Will Pokémon Go Ban the Account if You Use PGSharp On Apple iPhone 6 | Dr.fone
-date: 2024-04-30T13:17:50.390Z
-updated: 2024-05-01T13:17:50.390Z
+date: 2024-05-19T02:51:35.185Z
+updated: 2024-05-20T02:51:35.185Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -439,4 +439,5 @@ There you go! I’m sure that after reading this post, you would be able to know
 <li><a href="https://ai-video-apps.techidaily.com/new-2024-approved-effortless-video-size-adjustment-a-how-to-guide/"><u>New 2024 Approved Effortless Video Size Adjustment A How-To Guide</u></a></li>
 <li><a href="https://techidaily.com/unlock-android-phone-if-you-don-t-have-honor-x7b-fingerprint-by-drfone-android-unlock-android-unlock/"><u>Unlock android phone if you don't have Honor X7b fingerprint</u></a></li>
 </ul></div>
+
 

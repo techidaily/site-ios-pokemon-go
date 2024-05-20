@@ -1,7 +1,7 @@
 ---
 title: Pokémon Go Cooldown Chart On Apple iPhone 12 Pro Max | Dr.fone
-date: 2024-04-30T13:18:33.879Z
-updated: 2024-05-01T13:18:33.879Z
+date: 2024-05-19T02:51:35.582Z
+updated: 2024-05-20T02:51:35.582Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -495,4 +495,5 @@ Pokemon PvP ranking may not be the ultimate priority of most Pokemon Go players 
 <li><a href="https://android-transfer.techidaily.com/how-to-transfer-photos-from-tecno-spark-20c-to-laptop-without-usb-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Photos from Tecno Spark 20C to Laptop Without USB | Dr.fone</u></a></li>
 <li><a href="https://fix-guide.techidaily.com/in-2024-does-find-my-friends-work-on-vivo-y200e-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Does find my friends work on Vivo Y200e 5G | Dr.fone</u></a></li>
 </ul></div>
+
 

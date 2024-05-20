@@ -1,7 +1,7 @@
 ---
 title: Will Pokémon Go Ban the Account if You Use PGSharp On Apple iPhone XR | Dr.fone
-date: 2024-04-30T13:21:04.531Z
-updated: 2024-05-01T13:21:04.531Z
+date: 2024-05-19T02:51:37.098Z
+updated: 2024-05-20T02:51:37.098Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -408,4 +408,5 @@ Here, we have agreed to do to the conclusion that if iPogo won’t install there
 <li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-iphone-xr-without-passcode-drfone-by-drfone-ios/"><u>In 2024, How to Unlock iPhone XR Without Passcode? | Dr.fone</u></a></li>
 <li><a href="https://location-social.techidaily.com/in-2024-how-to-pause-life360-location-sharing-for-apple-iphone-x-drfone-by-drfone-virtual-ios/"><u>In 2024, How To Pause Life360 Location Sharing For Apple iPhone X | Dr.fone</u></a></li>
 </ul></div>
+
 

@@ -1,7 +1,7 @@
 ---
 title: In 2024, Top 15 Augmented Reality Games Like Pokémon GO To Play On Apple iPhone 12 Pro | Dr.fone
-date: 2024-04-30T13:16:21.546Z
-updated: 2024-05-01T13:16:21.546Z
+date: 2024-05-19T02:51:34.116Z
+updated: 2024-05-20T02:51:34.116Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -528,4 +528,5 @@ Well, it looks a lot like Pokemon Go streaming is the newest way to enjoy this m
 <li><a href="https://apple-account.techidaily.com/in-2024-turning-off-two-factor-authentication-on-iphone-13-pro-5-tips-you-must-know-by-drfone-ios/"><u>In 2024, Turning Off Two Factor Authentication On iPhone 13 Pro? 5 Tips You Must Know</u></a></li>
 <li><a href="https://blog-min.techidaily.com/how-to-get-back-lost-contacts-from-infinix-hot-40i-by-fonelab-android-recover-contacts/"><u>How to get back lost contacts from Infinix Hot 40i.</u></a></li>
 </ul></div>
+
 

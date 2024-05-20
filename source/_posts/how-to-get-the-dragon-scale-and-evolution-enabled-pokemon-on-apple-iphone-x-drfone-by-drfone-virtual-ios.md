@@ -1,7 +1,7 @@
 ---
 title: How to get the dragon scale and evolution-enabled pokemon On Apple iPhone X? | Dr.fone
-date: 2024-04-30T13:10:36.853Z
-updated: 2024-05-01T13:10:36.853Z
+date: 2024-05-19T02:51:30.137Z
+updated: 2024-05-20T02:51:30.137Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -428,4 +428,5 @@ Getting Pokémon Emerald Master Ball cheat codes is important if you want to cat
 <li><a href="https://android-unlock.techidaily.com/how-to-remove-forgotten-pin-of-your-samsung-galaxy-s23plus-by-drfone-android/"><u>How to Remove Forgotten PIN Of Your Samsung Galaxy S23+</u></a></li>
 <li><a href="https://howto.techidaily.com/11-proven-solutions-to-fix-google-play-store-not-working-issue-on-motorola-defy-2-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>11 Proven Solutions to Fix Google Play Store Not Working Issue on Motorola Defy 2 | Dr.fone</u></a></li>
 </ul></div>
+
 

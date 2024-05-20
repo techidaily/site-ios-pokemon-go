@@ -1,7 +1,7 @@
 ---
 title: How to get the dragon scale and evolution-enabled pokemon On Apple iPhone 12 mini? | Dr.fone
-date: 2024-04-30T13:10:31.848Z
-updated: 2024-05-01T13:10:31.848Z
+date: 2024-05-19T02:51:30.101Z
+updated: 2024-05-20T02:51:30.102Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -376,4 +376,5 @@ There you go! After reading this post, I’m sure that you would be able to know
 <li><a href="https://android-location-track.techidaily.com/how-do-i-stop-someone-from-tracking-my-honor-magic-6-pro-drfone-by-drfone-virtual-android/"><u>How Do I Stop Someone From Tracking My Honor Magic 6 Pro? | Dr.fone</u></a></li>
 <li><a href="https://techidaily.com/remove-lock-screen-without-passwordp55-by-drfone-android-unlock-android-unlock/"><u>Remove Lock Screen without Password(P55)</u></a></li>
 </ul></div>
+
 

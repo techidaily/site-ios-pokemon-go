@@ -1,7 +1,7 @@
 ---
 title: Pokémon Go Cooldown Chart On Apple iPhone XS | Dr.fone
-date: 2024-04-30T13:18:38.916Z
-updated: 2024-05-01T13:18:38.916Z
+date: 2024-05-19T02:51:35.632Z
+updated: 2024-05-20T02:51:35.632Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -408,4 +408,5 @@ Pokémon Go continues to amaze trainers and fans of the franchise, and is becomi
 <li><a href="https://review-topics.techidaily.com/how-to-update-or-downgrade-iphone-12-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Update or Downgrade iPhone 12? | Dr.fone</u></a></li>
 <li><a href="https://iphone-unlock.techidaily.com/in-2024-4-ways-to-unlock-apple-iphone-14-pro-max-to-use-usb-accessories-without-passcode-drfone-by-drfone-ios/"><u>In 2024, 4 Ways to Unlock Apple iPhone 14 Pro Max to Use USB Accessories Without Passcode | Dr.fone</u></a></li>
 </ul></div>
+
 

@@ -1,7 +1,7 @@
 ---
 title: The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Apple iPhone 12 mini | Dr.fone
-date: 2024-04-30T13:19:26.744Z
-updated: 2024-05-01T13:19:26.744Z
+date: 2024-05-19T02:51:36.051Z
+updated: 2024-05-20T02:51:36.051Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -441,4 +441,5 @@ Well, the article did give us a lot of idea about stardust trade cost and how to
 <li><a href="https://fix-guide.techidaily.com/proven-ways-to-fix-there-was-a-problem-parsing-the-package-on-realme-gt-3-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Proven Ways to Fix There Was A Problem Parsing the Package on Realme GT 3 | Dr.fone</u></a></li>
 <li><a href="https://phone-solutions.techidaily.com/bypassreset-itel-phone-screen-passcodepatternpin-by-drfone-android-unlock-android-unlock/"><u>Bypass/Reset Itel Phone Screen Passcode/Pattern/Pin</u></a></li>
 </ul></div>
+
 

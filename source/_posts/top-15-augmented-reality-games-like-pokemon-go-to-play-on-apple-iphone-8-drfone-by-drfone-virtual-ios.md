@@ -1,7 +1,7 @@
 ---
 title: Top 15 Augmented Reality Games Like Pokémon GO To Play On Apple iPhone 8 | Dr.fone
-date: 2024-04-30T13:19:37.475Z
-updated: 2024-05-01T13:19:37.475Z
+date: 2024-05-19T02:51:36.168Z
+updated: 2024-05-20T02:51:36.168Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -698,4 +698,5 @@ The location will be locked by the program and your Apple iPhone 8 will also sho
 <li><a href="https://android-pokemon-go.techidaily.com/in-2024-the-most-useful-tips-for-pokemon-go-ultra-league-on-motorola-razr-40-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, The Most Useful Tips for Pokemon Go Ultra League On Motorola Razr 40 Ultra | Dr.fone</u></a></li>
 <li><a href="https://screen-mirror.techidaily.com/how-realme-c33-2023-mirror-screen-to-pc-drfone-by-drfone-android/"><u>How Realme C33 2023 Mirror Screen to PC? | Dr.fone</u></a></li>
 </ul></div>
+
 

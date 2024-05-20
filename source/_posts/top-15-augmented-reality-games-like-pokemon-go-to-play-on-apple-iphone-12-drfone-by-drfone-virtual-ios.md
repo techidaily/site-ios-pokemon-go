@@ -1,7 +1,7 @@
 ---
 title: Top 15 Augmented Reality Games Like Pokémon GO To Play On Apple iPhone 12 | Dr.fone
-date: 2024-04-30T13:19:33.174Z
-updated: 2024-05-01T13:19:33.174Z
+date: 2024-05-19T02:51:36.132Z
+updated: 2024-05-20T02:51:36.132Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -470,4 +470,5 @@ There you go! After reading this post, I’m sure that you would be able to know
 <li><a href="https://blog-min.techidaily.com/how-to-restore-missing-pictures-files-from-honor-by-fonelab-android-recover-pictures/"><u>How To  Restore Missing Pictures Files from Honor .</u></a></li>
 <li><a href="https://ai-vdieo-software.techidaily.com/top-imovie-replacements-for-windows-11-and-10-for-2024/"><u>Top iMovie Replacements for Windows 11 and 10 for 2024</u></a></li>
 </ul></div>
+
 

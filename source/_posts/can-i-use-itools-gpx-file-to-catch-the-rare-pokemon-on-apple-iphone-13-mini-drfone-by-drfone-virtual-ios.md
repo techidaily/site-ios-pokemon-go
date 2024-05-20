@@ -1,7 +1,7 @@
 ---
 title: Can I use iTools gpx file to catch the rare Pokemon On Apple iPhone 13 mini | Dr.fone
-date: 2024-04-30T13:09:15.540Z
-updated: 2024-05-01T13:09:15.540Z
+date: 2024-05-19T02:51:28.563Z
+updated: 2024-05-20T02:51:28.563Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -371,4 +371,5 @@ I hope that after following this guide, you would be able to know more about the
 <li><a href="https://android-pokemon-go.techidaily.com/the-most-useful-tips-for-pokemon-go-ultra-league-on-oppo-f25-pro-5g-drfone-by-drfone-virtual-android/"><u>The Most Useful Tips for Pokemon Go Ultra League On Oppo F25 Pro 5G | Dr.fone</u></a></li>
 <li><a href="https://techidaily.com/undelete-lost-call-logs-from-htc-u23-by-fonelab-android-recover-call-logs/"><u>Undelete lost call logs from HTC U23</u></a></li>
 </ul></div>
+
 

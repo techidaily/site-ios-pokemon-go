@@ -1,7 +1,7 @@
 ---
 title: Will Pokémon Go Ban the Account if You Use PGSharp On Apple iPhone 12 mini | Dr.fone
-date: 2024-04-30T13:20:59.315Z
-updated: 2024-05-01T13:20:59.315Z
+date: 2024-05-19T02:51:37.061Z
+updated: 2024-05-20T02:51:37.061Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -371,4 +371,5 @@ Now when you know about the updated Pokemon Go Battle League rewards, you must b
 <li><a href="https://android-location-track.techidaily.com/in-2024-top-10-telegram-spy-tools-on-realme-narzo-n53-for-parents-drfone-by-drfone-virtual-android/"><u>In 2024, Top 10 Telegram Spy Tools On Realme Narzo N53 for Parents | Dr.fone</u></a></li>
 <li><a href="https://blog-min.techidaily.com/how-to-sign-a-pdf-file-document-with-digital-signature-app-by-ldigisigner-sign-a-pdf-sign-a-pdf/"><u>How to sign a .pdf file document with digital signature app</u></a></li>
 </ul></div>
+
 

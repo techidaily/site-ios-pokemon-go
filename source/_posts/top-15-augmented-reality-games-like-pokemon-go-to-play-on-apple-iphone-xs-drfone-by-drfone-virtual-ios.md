@@ -1,7 +1,7 @@
 ---
 title: Top 15 Augmented Reality Games Like Pokémon GO To Play On Apple iPhone XS | Dr.fone
-date: 2024-04-30T13:19:38.827Z
-updated: 2024-05-01T13:19:38.827Z
+date: 2024-05-19T02:51:36.179Z
+updated: 2024-05-20T02:51:36.179Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -599,4 +599,5 @@ If you’re searching for ways to collect these items as quickly as possible and
 <li><a href="https://blog-min.techidaily.com/2-ways-to-transfer-text-messages-from-infinix-note-30-pro-to-iphone-1514131211x8-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>2 Ways to Transfer Text Messages from Infinix Note 30 Pro to iPhone 15/14/13/12/11/X/8/ | Dr.fone</u></a></li>
 <li><a href="https://review-topics.techidaily.com/in-2024-does-life360-notify-when-you-log-out-on-sony-xperia-1-v-drfone-by-drfone-virtual-android/"><u>In 2024, Does Life360 Notify When You Log Out On Sony Xperia 1 V? | Dr.fone</u></a></li>
 </ul></div>
+
 

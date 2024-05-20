@@ -1,7 +1,7 @@
 ---
 title: Will Pokémon Go Ban the Account if You Use PGSharp On Apple iPhone XS Max | Dr.fone
-date: 2024-04-30T13:21:04.909Z
-updated: 2024-05-01T13:21:04.909Z
+date: 2024-05-19T02:51:37.101Z
+updated: 2024-05-20T02:51:37.101Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -389,4 +389,5 @@ Pokémon Go Plus mods like iPogo involves a certain degree of care in order to h
 <li><a href="https://iphone-unlock.techidaily.com/in-2024-did-your-apple-iphone-13-pro-passcode-change-itself-unlock-it-now-drfone-by-drfone-ios/"><u>In 2024, Did Your Apple iPhone 13 Pro Passcode Change Itself? Unlock It Now | Dr.fone</u></a></li>
 <li><a href="https://screen-mirror.techidaily.com/how-can-oppo-a2mirror-share-to-pc-drfone-by-drfone-android/"><u>How Can Oppo A2Mirror Share to PC? | Dr.fone</u></a></li>
 </ul></div>
+
 

@@ -1,7 +1,7 @@
 ---
 title: In 2024, Pokémon Go Cooldown Chart On Apple iPhone 12 mini | Dr.fone
-date: 2024-04-30T13:15:21.961Z
-updated: 2024-05-01T13:15:21.961Z
+date: 2024-05-19T02:51:33.492Z
+updated: 2024-05-20T02:51:33.492Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -349,4 +349,5 @@ This is a desktop-based spoofing tool which can help you fake your location. It 
 <li><a href="https://howto.techidaily.com/fixes-for-apps-keep-crashing-on-oppo-k11x-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fixes for Apps Keep Crashing on Oppo K11x | Dr.fone</u></a></li>
 <li><a href="https://easy-unlock-android.techidaily.com/a-perfect-guide-to-remove-or-disable-google-smart-lock-on-nokia-c32-by-drfone-android/"><u>A Perfect Guide To Remove or Disable Google Smart Lock On Nokia C32</u></a></li>
 </ul></div>
+
 

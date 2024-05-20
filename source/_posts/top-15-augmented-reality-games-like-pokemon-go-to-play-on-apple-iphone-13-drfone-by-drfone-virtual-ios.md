@@ -1,7 +1,7 @@
 ---
 title: Top 15 Augmented Reality Games Like Pokémon GO To Play On Apple iPhone 13 | Dr.fone
-date: 2024-04-30T13:19:33.933Z
-updated: 2024-05-01T13:19:33.933Z
+date: 2024-05-19T02:51:36.138Z
+updated: 2024-05-20T02:51:36.138Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -474,4 +474,5 @@ Playing Pokémon GO from the comfort of your home is what one wants, especially 
 <li><a href="https://screen-mirror.techidaily.com/how-to-mirror-apple-iphone-13-to-ipad-drfone-by-drfone-ios/"><u>How to Mirror Apple iPhone 13 to iPad? | Dr.fone</u></a></li>
 <li><a href="https://ai-topics.techidaily.com/updated-2024-approved-users-guide-how-to-create-photo-talking-videos-with-the-best-tools/"><u>Updated 2024 Approved Users Guide How To Create Photo Talking Videos With the Best Tools?</u></a></li>
 </ul></div>
+
 

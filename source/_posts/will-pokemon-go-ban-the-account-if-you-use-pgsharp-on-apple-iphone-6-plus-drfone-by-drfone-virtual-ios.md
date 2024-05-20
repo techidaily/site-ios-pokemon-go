@@ -1,7 +1,7 @@
 ---
 title: Will Pokémon Go Ban the Account if You Use PGSharp On Apple iPhone 6 Plus | Dr.fone
-date: 2024-04-30T13:21:02.440Z
-updated: 2024-05-01T13:21:02.440Z
+date: 2024-05-19T02:51:37.082Z
+updated: 2024-05-20T02:51:37.082Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -414,4 +414,5 @@ I hope that after following this guide, you would be able to know more about the
 <li><a href="https://ai-video-editing.techidaily.com/in-2024-how-to-create-and-add-an-adjustment-layer-in-final-cut-pro/"><u>In 2024, How to Create and Add an Adjustment Layer in Final Cut Pro</u></a></li>
 <li><a href="https://screen-mirror.techidaily.com/how-to-use-allshare-cast-to-turn-on-screen-mirroring-on-poco-c50-drfone-by-drfone-android/"><u>How To Use Allshare Cast To Turn On Screen Mirroring On Poco C50 | Dr.fone</u></a></li>
 </ul></div>
+
 

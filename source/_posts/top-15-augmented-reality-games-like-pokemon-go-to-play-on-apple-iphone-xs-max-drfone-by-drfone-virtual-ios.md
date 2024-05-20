@@ -1,7 +1,7 @@
 ---
 title: Top 15 Augmented Reality Games Like Pokémon GO To Play On Apple iPhone XS Max | Dr.fone
-date: 2024-04-30T13:19:39.020Z
-updated: 2024-05-01T13:19:39.020Z
+date: 2024-05-19T02:51:36.181Z
+updated: 2024-05-20T02:51:36.181Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -530,4 +530,5 @@ Pokémon Go is a viral and fantastic game. However, sometimes players get into t
 <li><a href="https://android-location-track.techidaily.com/in-2024-3-solutions-to-find-your-realme-narzo-60-pro-5g-current-location-of-a-mobile-number-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Solutions to Find Your Realme Narzo 60 Pro 5G Current Location of a Mobile Number | Dr.fone</u></a></li>
 <li><a href="https://location-social.techidaily.com/in-2024-edit-and-send-fake-location-on-telegram-for-your-samsung-galaxy-s24-ultra-in-3-ways-drfone-by-drfone-virtual-android/"><u>In 2024, Edit and Send Fake Location on Telegram For your Samsung Galaxy S24 Ultra in 3 Ways | Dr.fone</u></a></li>
 </ul></div>
+
 

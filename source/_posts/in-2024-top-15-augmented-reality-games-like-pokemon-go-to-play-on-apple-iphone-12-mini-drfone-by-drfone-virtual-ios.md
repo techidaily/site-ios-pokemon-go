@@ -1,7 +1,7 @@
 ---
 title: In 2024, Top 15 Augmented Reality Games Like Pokémon GO To Play On Apple iPhone 12 mini | Dr.fone
-date: 2024-04-30T13:16:21.238Z
-updated: 2024-05-01T13:16:21.238Z
+date: 2024-05-19T02:51:34.114Z
+updated: 2024-05-20T02:51:34.114Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -481,4 +481,5 @@ Playing Pokémon GO from the comfort of your home is what one wants, especially 
 <li><a href="https://phone-solutions.techidaily.com/5-ways-to-restart-samsung-galaxy-f15-5g-without-power-button-drfone-by-drfone-reset-android-reset-android/"><u>5 Ways to Restart Samsung Galaxy F15 5G Without Power Button | Dr.fone</u></a></li>
 <li><a href="https://location-social.techidaily.com/how-to-changeadd-location-filters-on-snapchat-for-your-realme-11-proplus-drfone-by-drfone-virtual-android/"><u>How to Change/Add Location Filters on Snapchat For your Realme 11 Pro+ | Dr.fone</u></a></li>
 </ul></div>
+
 

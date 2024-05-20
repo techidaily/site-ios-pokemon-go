@@ -1,7 +1,7 @@
 ---
 title: How to get the dragon scale and evolution-enabled pokemon On Apple iPhone 13 mini? | Dr.fone
-date: 2024-04-30T13:10:32.599Z
-updated: 2024-05-01T13:10:32.599Z
+date: 2024-05-19T02:51:30.107Z
+updated: 2024-05-20T02:51:30.107Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -355,4 +355,5 @@ I’m sure that after reading this post, you would be able to know more about iP
 <li><a href="https://apple-account.techidaily.com/the-easy-way-to-remove-an-apple-id-from-your-macbook-for-your-iphone-15-plus-by-drfone-ios/"><u>The Easy Way to Remove an Apple ID from Your MacBook For your iPhone 15 Plus</u></a></li>
 <li><a href="https://howto.techidaily.com/calls-on-honor-magic-6-go-straight-to-voicemail-12-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Calls on Honor Magic 6 Go Straight to Voicemail? 12 Fixes | Dr.fone</u></a></li>
 </ul></div>
+
 
