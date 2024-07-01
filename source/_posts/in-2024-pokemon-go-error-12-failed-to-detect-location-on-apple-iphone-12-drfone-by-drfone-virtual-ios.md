@@ -1,7 +1,7 @@
 ---
 title: In 2024, Pokemon Go Error 12 Failed to Detect Location On Apple iPhone 12? | Dr.fone
-date: 2024-05-19T02:51:33.538Z
-updated: 2024-05-20T02:51:33.538Z
+date: 2024-06-30T12:11:16.702Z
+updated: 2024-07-01T12:11:16.702Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes Pokemon Go Error 12 Failed to Detect Location On Apple iPhone 12?
 excerpt: This article describes Pokemon Go Error 12 Failed to Detect Location On Apple iPhone 12?
 keywords: Pokémon Go for iPhone 12,Pokemon Go Joystick for iPhone,Pokémon Go for iPad,Pokemon Go Joystick for iPhone 12,Pokemon Go for iPhone 12,Pokemon Go Joystick for iPad,Pokemon Go for iPad,Pokémon Go for iPhone
-thumbnail: https://www.lifewire.com/thmb/tytwbqcYgTF7h7x0nLFuA1_IxhI=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-515810476-aabe0e5a88b44bb1ae49a5bfa97bec62.jpg
+thumbnail: https://thmb.techidaily.com/1f190d8040197877fe9d91a786d037cb715f0068f8eaaf0f310614210c430f98.jpg
 ---
 
 ## Pokemon Go Error 12 Failed to Detect Location On Apple iPhone 12?

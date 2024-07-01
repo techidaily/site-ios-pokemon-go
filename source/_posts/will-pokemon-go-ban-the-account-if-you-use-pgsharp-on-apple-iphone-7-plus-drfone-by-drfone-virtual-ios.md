@@ -1,7 +1,7 @@
 ---
 title: Will Pokémon Go Ban the Account if You Use PGSharp On Apple iPhone 7 Plus | Dr.fone
-date: 2024-05-19T02:51:37.088Z
-updated: 2024-05-20T02:51:37.088Z
+date: 2024-06-30T12:11:20.473Z
+updated: 2024-07-01T12:11:20.473Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes Will Pokémon Go Ban the Account if You Use PGSharp On Apple iPhone 7 Plus
 excerpt: This article describes Will Pokémon Go Ban the Account if You Use PGSharp On Apple iPhone 7 Plus
 keywords: Pokemon Go for iPhone,Pokemon Go Joystick for iPhone,Pokemon Go for iPhone 7 Plus,Pokémon Go for iPhone 7 Plus,Pokémon Go for iPhone,Pokemon Go Joystick for iPad,Pokémon Go for iPad
-thumbnail: https://www.lifewire.com/thmb/ru-jVd0Cvv8tkOSsngOh3taWsHA=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/laptop-2443739-5b55bc7c46e0fb00378df55b.jpg
+thumbnail: https://thmb.techidaily.com/390e6108c338c717535ae5268513a4f027783679d87088006ba977c8519d5351.jpg
 ---
 
 ## Will Pokémon Go Ban the Account if You Use PGSharp On Apple iPhone 7 Plus

@@ -1,7 +1,7 @@
 ---
 title: How can I get more stardust in pokemon go On Apple iPhone XR? | Dr.fone
-date: 2024-05-19T02:51:29.602Z
-updated: 2024-05-20T02:51:29.602Z
+date: 2024-06-30T12:11:20.131Z
+updated: 2024-07-01T12:11:20.131Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes How can I get more stardust in pokemon go On Apple iPhone XR?
 excerpt: This article describes How can I get more stardust in pokemon go On Apple iPhone XR?
 keywords: Pokémon Go for iPhone,Pokemon Go Joystick for iPad,Pokémon Go for iPhone XR,Pokemon Go Joystick for iPhone,Pokemon Go for iPhone,Pokemon Go for iPhone XR,Pokemon Go for iPad,Pokémon Go for iPad,Pokemon Go Joystick for iPhone XR
-thumbnail: https://www.lifewire.com/thmb/0LHpu91V9jV229cdma0w0BAh3EI=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/apple-logo-steering-wheel-25522ee2c5664139948ebfd1cb1df653.jpg
+thumbnail: https://thmb.techidaily.com/74113c2d83645a48c9d2ad195371cc6a07bee43db8bd23e967a3613c122b6663.jpg
 ---
 
 ## How can I get more stardust in pokemon go On Apple iPhone XR?

@@ -1,7 +1,7 @@
 ---
 title: Pokemon Go Error 12 Failed to Detect Location On Apple iPhone 13 mini? | Dr.fone
-date: 2024-05-19T02:51:35.646Z
-updated: 2024-05-20T02:51:35.646Z
+date: 2024-06-30T12:11:17.845Z
+updated: 2024-07-01T12:11:17.845Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes Pokemon Go Error 12 Failed to Detect Location On Apple iPhone 13 mini?
 excerpt: This article describes Pokemon Go Error 12 Failed to Detect Location On Apple iPhone 13 mini?
 keywords: Pokemon Go Joystick for iPad,Pokemon Go for iPad,Pokémon Go for iPhone 13 mini,Pokemon Go for iPhone 13 mini,Pokemon Go Joystick for iPhone,Pokemon Go Joystick for iPhone 13 mini,Pokemon Go for iPhone,Pokémon Go for iPhone,Pokémon Go for iPad
-thumbnail: https://www.lifewire.com/thmb/Kjjyyc_72u15QvgACgVI3pdI338=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/003_the-best-lgbt-movies-on-netflix-right-now-june-2022-5069913-8dbc370e568349c8a347c650353f17b1.jpg
+thumbnail: https://thmb.techidaily.com/6d644818f4603c573461e1572ce0a1a0270aa91bb3cb0a406132a63c5b84e5a5.jpg
 ---
 
 ## Pokemon Go Error 12 Failed to Detect Location On Apple iPhone 13 mini?

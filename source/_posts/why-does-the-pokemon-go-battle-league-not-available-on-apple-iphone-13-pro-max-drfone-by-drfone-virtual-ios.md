@@ -1,7 +1,7 @@
 ---
 title: Why does the pokemon go battle league not available On Apple iPhone 13 Pro Max | Dr.fone
-date: 2024-05-19T02:51:36.949Z
-updated: 2024-05-20T02:51:36.949Z
+date: 2024-06-30T12:11:19.668Z
+updated: 2024-07-01T12:11:19.668Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes Why does the pokemon go battle league not available On Apple iPhone 13 Pro Max
 excerpt: This article describes Why does the pokemon go battle league not available On Apple iPhone 13 Pro Max
 keywords: Pokémon Go for iPad,Pokemon Go for iPad,Pokemon Go Joystick for iPad,Pokemon Go for iPhone,Pokemon Go Joystick for iPhone,Pokémon Go for iPhone 13 Pro Max,Pokemon Go Joystick for iPhone 13 Pro Max,Pokemon Go for iPhone 13 Pro Max,Pokémon Go for iPhone
-thumbnail: https://www.lifewire.com/thmb/nkL-0VwZC4rZHc_IxhqFzu82L6A=/360x240/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/ps6-concept-trailer-64aac5b7323041ad93d7535eccf7df40.png
+thumbnail: https://thmb.techidaily.com/a69a15798572265a2574284260281ddf651b6e2edc67c914e7a3a40f4a1feb7f.png
 ---
 
 ## Why does the pokemon go battle league not available On Apple iPhone 13 Pro Max

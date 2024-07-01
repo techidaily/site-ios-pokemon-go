@@ -1,7 +1,7 @@
 ---
 title: Pokémon Go Cooldown Chart On Apple iPhone 6 | Dr.fone
-date: 2024-05-19T02:51:35.600Z
-updated: 2024-05-20T02:51:35.600Z
+date: 2024-06-30T12:11:18.273Z
+updated: 2024-07-01T12:11:18.273Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes Pokémon Go Cooldown Chart On Apple iPhone 6
 excerpt: This article describes Pokémon Go Cooldown Chart On Apple iPhone 6
 keywords: Pokemon Go for iPhone 6,Pokemon Go Joystick for iPad,Pokemon Go Joystick for iPhone 6,Pokémon Go for iPhone 6,Pokemon Go for iPad,Pokemon Go for iPhone,Pokemon Go Joystick for iPhone,Pokémon Go for iPhone,Pokémon Go for iPad
-thumbnail: https://www.lifewire.com/thmb/W4WRTJiI80qWQugtfcrcauwLImY=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Rearviewofboywithlaptoponsofa-31ba45dfa7fb4553a257c133b352ef64.jpg
+thumbnail: https://thmb.techidaily.com/26dcef27c207b8605e3fcf4585ee0822110eeb8a794c85ff8e27071c7786d452.jpg
 ---
 
 ## Pokémon Go Cooldown Chart On Apple iPhone 6
