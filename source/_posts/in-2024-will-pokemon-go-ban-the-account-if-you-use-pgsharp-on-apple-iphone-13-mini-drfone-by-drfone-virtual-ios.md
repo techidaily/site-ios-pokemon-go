@@ -1,7 +1,7 @@
 ---
 title: In 2024, Will Pokémon Go Ban the Account if You Use PGSharp On Apple iPhone 13 mini | Dr.fone
-date: 2024-05-19T02:51:35.167Z
-updated: 2024-05-20T02:51:35.167Z
+date: 2024-07-08T03:09:32.863Z
+updated: 2024-07-09T03:09:32.863Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes Will Pokémon Go Ban the Account if You Use PGSharp On Apple iPhone 13 mini
 excerpt: This article describes Will Pokémon Go Ban the Account if You Use PGSharp On Apple iPhone 13 mini
 keywords: Pokémon Go for iPhone,Pokemon Go for iPhone 13 mini,Pokemon Go Joystick for iPhone,Pokemon Go for iPhone,Pokémon Go for iPhone 13 mini,Pokémon Go for iPad
-thumbnail: https://www.lifewire.com/thmb/7wWwLeV8KAaB-XqPIbKe8lIgaY4=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/reddit-app-for-andoird-652f6fcd646245e9807afbac25a072ee.jpg
+thumbnail: https://thmb.techidaily.com/ca9ebd9e5568d283ff74716c5b52278ddfb01bff412fbb14fb93882fc8d1dc09.jpg
 ---
 
 ## Will Pokémon Go Ban the Account if You Use PGSharp On Apple iPhone 13 mini
@@ -154,7 +154,7 @@ With ThinkSky, you can add gpx file to iTools and fake your gps location. This a
 
 - Lastly, input the coordinates names and group name and then export your favorite location list.
 
-![ click=](https://images.wondershare.com/drfone/2020/2020/import-location.jpg)
+![click=](https://images.wondershare.com/drfone/2020/2020/import-location.jpg)
 
 ## Part 3：Is there any safer tool to spoof Pokemon with iTools file?
 

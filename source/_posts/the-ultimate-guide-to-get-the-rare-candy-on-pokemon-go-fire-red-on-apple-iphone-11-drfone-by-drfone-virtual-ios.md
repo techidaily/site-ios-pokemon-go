@@ -1,7 +1,7 @@
 ---
 title: The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Apple iPhone 11 | Dr.fone
-date: 2024-05-19T02:51:36.046Z
-updated: 2024-05-20T02:51:36.046Z
+date: 2024-07-08T03:09:36.326Z
+updated: 2024-07-09T03:09:36.326Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Apple iPhone 11
 excerpt: This article describes The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Apple iPhone 11
 keywords: Pokémon Go for iPhone,Pokemon Go Joystick for iPad,Pokemon Go for iPhone 11,Pokemon Go Joystick for iPhone,Pokemon Go for iPhone,Pokémon Go for iPhone 11,Pokemon Go Joystick for iPhone 11
-thumbnail: https://www.lifewire.com/thmb/0xgLnS3M6CP4FiP4I-VE1zFOiLo=/360x240/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/how-to-use-a-ps5-controller-on-your-pc-or-mac-5089439-b56739aa27bd48858200878a6b64f952.jpg
+thumbnail: https://thmb.techidaily.com/0c4c453f95a612f76b387ff712305941e5398ae6df028882ef27bbdd6859fdde.jpg
 ---
 
 ## The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Apple iPhone 11

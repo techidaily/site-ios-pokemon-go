@@ -1,7 +1,7 @@
 ---
 title: Pokémon Go Cooldown Chart On Apple iPhone 13 Pro Max | Dr.fone
-date: 2024-05-19T02:51:35.588Z
-updated: 2024-05-20T02:51:35.588Z
+date: 2024-07-08T03:09:32.366Z
+updated: 2024-07-09T03:09:32.366Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes Pokémon Go Cooldown Chart On Apple iPhone 13 Pro Max
 excerpt: This article describes Pokémon Go Cooldown Chart On Apple iPhone 13 Pro Max
 keywords: Pokemon Go for iPad,Pokémon Go for iPhone,Pokemon Go for iPhone 13 Pro Max,Pokemon Go Joystick for iPhone 13 Pro Max,Pokémon Go for iPad,Pokemon Go Joystick for iPad,Pokemon Go for iPhone,Pokémon Go for iPhone 13 Pro Max,Pokemon Go Joystick for iPhone
-thumbnail: https://www.lifewire.com/thmb/-JO-0dyylsxj3szzMyduNG-Qvig=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-919006240-ee5ef631cb6f4e4997bce403b8bafa77.jpg
+thumbnail: https://thmb.techidaily.com/84ba87eddab3e368851899b58852311f605514d50db5d45ec6de18d3ab0b6cd6.jpg
 ---
 
 ## Pokémon Go Cooldown Chart On Apple iPhone 13 Pro Max

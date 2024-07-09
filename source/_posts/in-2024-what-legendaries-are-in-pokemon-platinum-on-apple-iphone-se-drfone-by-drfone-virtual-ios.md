@@ -1,7 +1,7 @@
 ---
 title: In 2024, What Legendaries Are In Pokemon Platinum On Apple iPhone SE? | Dr.fone
-date: 2024-05-19T02:51:34.638Z
-updated: 2024-05-20T02:51:34.638Z
+date: 2024-07-08T03:09:37.941Z
+updated: 2024-07-09T03:09:37.941Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes What Legendaries Are In Pokemon Platinum On Apple iPhone SE?
 excerpt: This article describes What Legendaries Are In Pokemon Platinum On Apple iPhone SE?
 keywords: Pokémon Go for iPhone SE,Pokemon Go for iPhone,Pokemon Go Joystick for iPhone,Pokemon Go Joystick for iPad,Pokemon Go for iPad,Pokémon Go for iPhone,Pokemon Go for iPhone SE,Pokemon Go Joystick for iPhone SE,Pokémon Go for iPad
-thumbnail: https://www.lifewire.com/thmb/P9BLOm818Wmv2RgfhK_jtXxf4Rk=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/178665671_HighRes-56a532a83df78cf77286de1b.jpg
+thumbnail: https://thmb.techidaily.com/b5dfde40e2a9ad5275b840b5f0fbb161aac4de7d7745911720b5a34076945390.jpg
 ---
 
 ## What Legendaries Are In Pokemon Platinum On Apple iPhone SE?

@@ -1,7 +1,7 @@
 ---
 title: Unova Stone Pokémon Go Evolution List and How Catch Them For Apple iPhone 12 Pro Max | Dr.fone
-date: 2024-05-19T02:51:36.295Z
-updated: 2024-05-20T02:51:36.295Z
+date: 2024-07-08T03:09:31.875Z
+updated: 2024-07-09T03:09:31.875Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes Unova Stone Pokémon Go Evolution List and How Catch Them For Apple iPhone 12 Pro Max
 excerpt: This article describes Unova Stone Pokémon Go Evolution List and How Catch Them For Apple iPhone 12 Pro Max
 keywords: Pokemon Go for iPhone 12 Pro Max,Pokemon Go Joystick for iPhone,Pokemon Go for iPhone,Pokemon Go Joystick for iPad,Pokémon Go for iPhone 12 Pro Max,Pokemon Go Joystick for iPhone 12 Pro Max,Pokémon Go for iPhone,Pokemon Go for iPad
-thumbnail: https://www.lifewire.com/thmb/lwyffvP10dLE4EinuE3HUVO38bo=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-1342255561-483b636ee00f40a1b3d91d1969b1aaf6.jpg
+thumbnail: https://thmb.techidaily.com/4286d1d9e7f9f222d6b24d7259e18b93ce578dc75aedffe72b83d7d3b1179de6.jpg
 ---
 
 ## Unova Stone Pokémon Go Evolution List and How Catch Them For Apple iPhone 12 Pro Max

@@ -1,7 +1,7 @@
 ---
 title: What Legendaries Are In Pokemon Platinum On Apple iPhone 12 mini? | Dr.fone
-date: 2024-05-19T02:51:36.684Z
-updated: 2024-05-20T02:51:36.684Z
+date: 2024-07-08T03:09:36.676Z
+updated: 2024-07-09T03:09:36.676Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes What Legendaries Are In Pokemon Platinum On Apple iPhone 12 mini?
 excerpt: This article describes What Legendaries Are In Pokemon Platinum On Apple iPhone 12 mini?
 keywords: Pokemon Go Joystick for iPad,Pokemon Go Joystick for iPhone,Pokemon Go for iPad,Pokémon Go for iPhone,Pokémon Go for iPhone 12 mini,Pokemon Go Joystick for iPhone 12 mini,Pokemon Go for iPhone 12 mini,Pokémon Go for iPad,Pokemon Go for iPhone
-thumbnail: https://www.lifewire.com/thmb/is45Yw-eZ0hbBH1GVSPPw-e8Duo=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/samsung-smart-tv-lifestyle-alt-5c89160046e0fb00013365c2.jpg
+thumbnail: https://thmb.techidaily.com/a7150b4ff2ea7550c12f390526178357d28d5879ccd1eca0b9ed1b9c559e12d9.jpg
 ---
 
 ## What Legendaries Are In Pokemon Platinum On Apple iPhone 12 mini?

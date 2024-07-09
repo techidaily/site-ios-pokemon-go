@@ -1,7 +1,7 @@
 ---
 title: How to get the dragon scale and evolution-enabled pokemon On Apple iPhone 14 Plus? | Dr.fone
-date: 2024-06-08T04:51:56.587Z
-updated: 2024-06-09T04:51:56.587Z
+date: 2024-07-08T03:09:23.280Z
+updated: 2024-07-09T03:09:23.280Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -126,7 +126,7 @@ Unlike iSpoofer, this will not require jailbreak access, detects every location 
 
 
 
-### [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/)
+### Dr.Fone - Virtual Location
 
 1-Click Location Changer for both iOS and Android
 

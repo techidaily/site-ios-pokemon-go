@@ -1,7 +1,7 @@
 ---
 title: In 2024, Pokémon Go Cooldown Chart On Apple iPhone 12 mini | Dr.fone
-date: 2024-05-19T02:51:33.492Z
-updated: 2024-05-20T02:51:33.492Z
+date: 2024-07-08T03:09:27.387Z
+updated: 2024-07-09T03:09:27.387Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes Pokémon Go Cooldown Chart On Apple iPhone 12 mini
 excerpt: This article describes Pokémon Go Cooldown Chart On Apple iPhone 12 mini
 keywords: Pokemon Go Joystick for iPhone,Pokémon Go for iPhone 12 mini,Pokemon Go for iPad,Pokemon Go Joystick for iPad,Pokemon Go for iPhone 12 mini,Pokémon Go for iPhone
-thumbnail: https://www.lifewire.com/thmb/XF8XZEIjsJng0yh72ZnUp_8O804=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/young-muslim-woman-using-phone-1137305438-75947aa7fb484506bf9da8c38fc68a03.jpg
+thumbnail: https://thmb.techidaily.com/2453bc5c0249af0de921ee166f14d8e128b375913b07ba9cca730be764e6c410.jpg
 ---
 
 ## Pokémon Go Cooldown Chart On Apple iPhone 12 mini

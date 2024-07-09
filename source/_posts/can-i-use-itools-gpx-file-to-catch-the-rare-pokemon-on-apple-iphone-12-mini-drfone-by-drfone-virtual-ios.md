@@ -1,7 +1,7 @@
 ---
 title: Can I use iTools gpx file to catch the rare Pokemon On Apple iPhone 12 mini | Dr.fone
-date: 2024-05-19T02:51:28.558Z
-updated: 2024-05-20T02:51:28.558Z
+date: 2024-07-08T03:09:35.156Z
+updated: 2024-07-09T03:09:35.156Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes Can I use iTools gpx file to catch the rare Pokemon On Apple iPhone 12 mini
 excerpt: This article describes Can I use iTools gpx file to catch the rare Pokemon On Apple iPhone 12 mini
 keywords: Pokemon Go Joystick for iPhone,Pokemon Go for iPhone 12 mini,Pokemon Go Joystick for iPhone 12 mini,Pokemon Go Joystick for iPad,Pokémon Go for iPhone,Pokemon Go for iPhone
-thumbnail: https://www.lifewire.com/thmb/6e-dHhpfl-OgzUpZXzufYG-qf-Y=/540x405/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/movie-night-at-home-with-popcorn_t20_yv3PA9-5c815f7fc9e77c0001fd5b49.jpg
+thumbnail: https://thmb.techidaily.com/d021ea19d35ef3673abfe0bc9bdff457eb34791e55514d7bc0ce5bafaca00aee.jpg
 ---
 
 ## Can I use iTools gpx file to catch the rare Pokemon On Apple iPhone 12 mini
@@ -65,7 +65,7 @@ With ThinkSky, you can add gpx file to iTools and fake your gps location. This a
 
 - Lastly, input the coordinates names and group name and then export your favorite location list.
 
-![ click=](https://images.wondershare.com/drfone/2020/2020/import-location.jpg)
+![click=](https://images.wondershare.com/drfone/2020/2020/import-location.jpg)
 
 ## Part 3：Is there any safer tool to spoof Pokemon with iTools file?
 

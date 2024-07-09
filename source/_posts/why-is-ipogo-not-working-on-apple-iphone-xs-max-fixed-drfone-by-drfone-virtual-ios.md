@@ -1,7 +1,7 @@
 ---
 title: Why is iPogo not working On Apple iPhone XS Max? Fixed | Dr.fone
-date: 2024-05-19T02:51:37.054Z
-updated: 2024-05-20T02:51:37.054Z
+date: 2024-07-08T03:09:35.123Z
+updated: 2024-07-09T03:09:35.123Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes Why is iPogo not working On Apple iPhone XS Max? Fixed
 excerpt: This article describes Why is iPogo not working On Apple iPhone XS Max? Fixed
 keywords: Pokemon Go for iPhone,Pokémon Go for iPad,Pokemon Go for iPad,Pokémon Go for iPhone,Pokemon Go Joystick for iPhone,Pokemon Go for iPhone XS Max,Pokemon Go Joystick for iPhone XS Max,Pokémon Go for iPhone XS Max
-thumbnail: https://www.lifewire.com/thmb/DkM9pHd1hq5V02UbKX94h0TfJkQ=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/duetinslides-fd2c11f1a91a4d7388cc25f2f4719cca.jpg
+thumbnail: https://thmb.techidaily.com/c097990fd37784ce6293a6224fb832fd4d9a7841c40f79ad9e48ab602a74cd56.jpg
 ---
 
 ## Why is iPogo not working On Apple iPhone XS Max? Fixed

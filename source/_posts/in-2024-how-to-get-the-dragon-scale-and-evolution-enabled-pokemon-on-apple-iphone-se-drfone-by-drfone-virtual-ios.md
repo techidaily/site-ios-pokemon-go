@@ -1,7 +1,7 @@
 ---
 title: In 2024, How to get the dragon scale and evolution-enabled pokemon On Apple iPhone SE? | Dr.fone
-date: 2024-05-19T02:51:32.875Z
-updated: 2024-05-20T02:51:32.875Z
+date: 2024-07-08T03:09:33.205Z
+updated: 2024-07-09T03:09:33.205Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes How to get the dragon scale and evolution-enabled pokemon On Apple iPhone SE?
 excerpt: This article describes How to get the dragon scale and evolution-enabled pokemon On Apple iPhone SE?
 keywords: Pokemon Go for iPhone,Pokemon Go Joystick for iPhone,Pokemon Go Joystick for iPhone SE,Pokemon Go for iPad,Pokemon Go Joystick for iPad,Pokémon Go for iPhone SE,Pokémon Go for iPhone,Pokemon Go for iPhone SE,Pokémon Go for iPad
-thumbnail: https://www.lifewire.com/thmb/n7XTjADWmcwt2P_LF7WoPjqi8O4=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-538600261-56c643115f9b5879cc3d6bde.jpg
+thumbnail: https://thmb.techidaily.com/5f19d12263b1224bd46b49560f2a184a0c0f8c0d56bb43f9e5c26e9a6768a6cd.jpg
 ---
 
 ## How to get the dragon scale and evolution-enabled pokemon On Apple iPhone SE?
@@ -292,7 +292,7 @@ Apart from that, you can also simulate the movement of your device by selecting 
 
 Furthermore, you can enter the number of times to cover the route and even select a preferred speed for the movement. Once you click on the “March” button, the simulation of the movement would be started. You can also access a GPS joystick at the bottom to move realistically on the map in any direction.
 
-![Safe download](https://images.wondershare.com/drfone/article/2022/05/security.svg)safe & secure
+![Safe download](https://images.wondershare.com/drfone/article/2022/05/security.svg) safe & secure
 
 **4,039,074** people have downloaded it
 

@@ -1,7 +1,7 @@
 ---
 title: Will Pokémon Go Ban the Account if You Use PGSharp On Apple iPhone 11 Pro Max | Dr.fone
-date: 2024-05-19T02:51:37.058Z
-updated: 2024-05-20T02:51:37.058Z
+date: 2024-07-08T03:09:29.747Z
+updated: 2024-07-09T03:09:29.747Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes Will Pokémon Go Ban the Account if You Use PGSharp On Apple iPhone 11 Pro Max
 excerpt: This article describes Will Pokémon Go Ban the Account if You Use PGSharp On Apple iPhone 11 Pro Max
 keywords: Pokemon Go for iPad,Pokemon Go for iPhone 11 Pro Max,Pokémon Go for iPhone,Pokémon Go for iPad,Pokemon Go Joystick for iPad,Pokémon Go for iPhone 11 Pro Max,Pokemon Go Joystick for iPhone 11 Pro Max,Pokemon Go for iPhone,Pokemon Go Joystick for iPhone
-thumbnail: https://www.lifewire.com/thmb/hlshSPtDf3zsXAhW4UAOkuNWyQM=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-Macys-59e6c3699abed500118af858.jpg
+thumbnail: https://thmb.techidaily.com/a6ef7d238dd7bb214a3984e4799089ad86b5e4b6f433cd32ec9f580258b7206c.jpg
 ---
 
 ## Will Pokémon Go Ban the Account if You Use PGSharp On Apple iPhone 11 Pro Max

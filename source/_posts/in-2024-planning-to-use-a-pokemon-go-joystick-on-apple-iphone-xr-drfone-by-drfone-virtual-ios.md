@@ -1,7 +1,7 @@
 ---
 title: In 2024, Planning to Use a Pokemon Go Joystick on Apple iPhone XR? | Dr.fone
-date: 2024-05-19T02:51:33.483Z
-updated: 2024-05-20T02:51:33.483Z
+date: 2024-07-08T03:09:21.592Z
+updated: 2024-07-09T03:09:21.592Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes Planning to Use a Pokemon Go Joystick on Apple iPhone XR?
 excerpt: This article describes Planning to Use a Pokemon Go Joystick on Apple iPhone XR?
 keywords: Pokemon Go for iPhone,Pokemon Go Joystick for iPhone XR,Pokemon Go Joystick for iPad,Pokémon Go for iPhone XR,Pokemon Go Joystick for iPhone,Pokémon Go for iPad,Pokemon Go for iPhone XR,Pokémon Go for iPhone,Pokemon Go for iPad
-thumbnail: https://www.lifewire.com/thmb/tP3PGqv5XalObxjPn5UrSpbUwa0=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/preaknessstakes-5c804f1b46e0fb00019b8ee0.jpg
+thumbnail: https://thmb.techidaily.com/4a7e35e05dbbab3383219ac491b7159c730c023be090a3ce22bfc91cc23bb5f7.jpg
 ---
 
 ## Planning to Use a Pokemon Go Joystick on Apple iPhone XR?

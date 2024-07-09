@@ -1,7 +1,7 @@
 ---
 title: The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Apple iPhone 14 | Dr.fone
-date: 2024-05-19T02:51:36.059Z
-updated: 2024-05-20T02:51:36.059Z
+date: 2024-07-08T03:09:31.578Z
+updated: 2024-07-09T03:09:31.578Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Apple iPhone 14
 excerpt: This article describes The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Apple iPhone 14
 keywords: Pokemon Go Joystick for iPhone 14,Pokemon Go for iPhone,Pokémon Go for iPad,Pokemon Go for iPad,Pokémon Go for iPhone,Pokemon Go for iPhone 14,Pokémon Go for iPhone 14
-thumbnail: https://www.lifewire.com/thmb/HNtneePKuJeaZXX7qZjEwvmSz6M=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Flora_and_Son-f6517d3de531487e89f5e0e99192d13f.jpg
+thumbnail: https://thmb.techidaily.com/4815bdc4b07f62378c934e8844c6ab3ed5ccd8bb0ecbd12c41105ddecee78795.jpg
 ---
 
 ## The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Apple iPhone 14

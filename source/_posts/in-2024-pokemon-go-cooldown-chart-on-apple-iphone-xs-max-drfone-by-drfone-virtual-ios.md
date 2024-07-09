@@ -1,7 +1,7 @@
 ---
 title: In 2024, Pokémon Go Cooldown Chart On Apple iPhone XS Max | Dr.fone
-date: 2024-05-19T02:51:33.533Z
-updated: 2024-05-20T02:51:33.533Z
+date: 2024-07-08T03:09:27.595Z
+updated: 2024-07-09T03:09:27.595Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes Pokémon Go Cooldown Chart On Apple iPhone XS Max
 excerpt: This article describes Pokémon Go Cooldown Chart On Apple iPhone XS Max
 keywords: Pokémon Go for iPad,Pokemon Go for iPad,Pokemon Go Joystick for iPhone XS Max,Pokemon Go for iPhone,Pokemon Go Joystick for iPad,Pokémon Go for iPhone,Pokemon Go Joystick for iPhone,Pokémon Go for iPhone XS Max,Pokemon Go for iPhone XS Max
-thumbnail: https://www.lifewire.com/thmb/iQjRSYdl3d8RlM-9oprGSEgt6gU=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-667603173-fac0b8f4b1d9453c866d332dc73821f8.jpg
+thumbnail: https://thmb.techidaily.com/f47c079fa1fce90a8221b9c2c003a393b4231e2fbb42dbd4e99eb8971ba63ab6.jpg
 ---
 
 ## Pokémon Go Cooldown Chart On Apple iPhone XS Max

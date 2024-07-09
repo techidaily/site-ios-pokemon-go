@@ -1,7 +1,7 @@
 ---
 title: Planning to Use a Pokemon Go Joystick on Apple iPhone XS Max? | Dr.fone
-date: 2024-05-19T02:51:35.572Z
-updated: 2024-05-20T02:51:35.572Z
+date: 2024-07-08T03:09:21.420Z
+updated: 2024-07-09T03:09:21.420Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes Planning to Use a Pokemon Go Joystick on Apple iPhone XS Max?
 excerpt: This article describes Planning to Use a Pokemon Go Joystick on Apple iPhone XS Max?
 keywords: Pokemon Go for iPad,Pokémon Go for iPad,Pokemon Go for iPhone XS Max,Pokémon Go for iPhone,Pokemon Go Joystick for iPhone XS Max,Pokemon Go Joystick for iPad,Pokémon Go for iPhone XS Max,Pokemon Go for iPhone
-thumbnail: https://www.lifewire.com/thmb/LSRhv9V0PxzBAHOqiakqf0M89LI=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-1302402871-ea3debd2e3c64ec5a78a99e580b6a8d1.jpg
+thumbnail: https://thmb.techidaily.com/930df60c591e2a9cac7ea1bfd12cb488be55e4b8a96b142f6b85654b12ef9f8e.jpg
 ---
 
 ## Planning to Use a Pokemon Go Joystick on Apple iPhone XS Max?

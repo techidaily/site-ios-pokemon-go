@@ -1,7 +1,7 @@
 ---
 title: In 2024, CatchEmAll Celebrate National Pokémon Day with Virtual Location On Apple iPhone 12 mini | Dr.fone
-date: 2024-05-19T02:51:31.484Z
-updated: 2024-05-20T02:51:31.484Z
+date: 2024-07-08T03:09:18.333Z
+updated: 2024-07-09T03:09:18.333Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes CatchEmAll Celebrate National Pokémon Day with Virtual Location On Apple iPhone 12 mini
 excerpt: This article describes CatchEmAll Celebrate National Pokémon Day with Virtual Location On Apple iPhone 12 mini
 keywords: Pokemon Go Joystick for iPhone 12 mini,Pokemon Go for iPhone,Pokemon Go for iPad,Pokemon Go Joystick for iPhone,Pokemon Go for iPhone 12 mini,Pokemon Go Joystick for iPad
-thumbnail: https://www.lifewire.com/thmb/bEojajcVOmaMDVv4xG-kC_soHHk=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-81522363-5683a5573df78ccc15cabf56.jpg
+thumbnail: https://thmb.techidaily.com/58d1c82f33ff87a2a49ef482dc26ca840416cdee7dcea0bf9addd82da02902e0.jpg
 ---
 
 ## CatchEmAll Celebrate National Pokémon Day with Virtual Location On Apple iPhone 12 mini

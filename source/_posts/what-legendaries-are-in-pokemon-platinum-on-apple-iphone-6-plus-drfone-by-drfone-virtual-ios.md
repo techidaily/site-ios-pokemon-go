@@ -1,7 +1,7 @@
 ---
 title: What Legendaries Are In Pokemon Platinum On Apple iPhone 6 Plus? | Dr.fone
-date: 2024-05-19T02:51:36.705Z
-updated: 2024-05-20T02:51:36.705Z
+date: 2024-07-08T03:09:36.093Z
+updated: 2024-07-09T03:09:36.093Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes What Legendaries Are In Pokemon Platinum On Apple iPhone 6 Plus?
 excerpt: This article describes What Legendaries Are In Pokemon Platinum On Apple iPhone 6 Plus?
 keywords: Pokemon Go for iPad,Pokémon Go for iPhone,Pokemon Go Joystick for iPhone,Pokemon Go Joystick for iPad,Pokemon Go for iPhone 6 Plus,Pokemon Go Joystick for iPhone 6 Plus,Pokémon Go for iPhone 6 Plus,Pokémon Go for iPad,Pokemon Go for iPhone
-thumbnail: https://www.lifewire.com/thmb/bJZjivkvkiXSPidjAhZPdQz2Xu8=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-545995058-58ed21243df78cadab023f3c.jpg
+thumbnail: https://thmb.techidaily.com/6a8b7b3cdb25a03e07ba1819bb3940ce3cb079bf3680cebd2f9e48a956c136d3.jpg
 ---
 
 ## What Legendaries Are In Pokemon Platinum On Apple iPhone 6 Plus?

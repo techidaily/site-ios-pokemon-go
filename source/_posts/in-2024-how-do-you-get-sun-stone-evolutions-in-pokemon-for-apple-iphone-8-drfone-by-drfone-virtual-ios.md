@@ -1,7 +1,7 @@
 ---
 title: In 2024, How Do You Get Sun Stone Evolutions in Pokémon For Apple iPhone 8? | Dr.fone
-date: 2024-05-19T02:51:32.413Z
-updated: 2024-05-20T02:51:32.413Z
+date: 2024-07-08T03:09:28.500Z
+updated: 2024-07-09T03:09:28.500Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes How Do You Get Sun Stone Evolutions in Pokémon For Apple iPhone 8?
 excerpt: This article describes How Do You Get Sun Stone Evolutions in Pokémon For Apple iPhone 8?
 keywords: Pokemon Go Joystick for iPhone 8,Pokémon Go for iPad,Pokémon Go for iPhone,Pokemon Go for iPhone,Pokemon Go for iPad,Pokemon Go Joystick for iPhone,Pokémon Go for iPhone 8,Pokemon Go Joystick for iPad,Pokemon Go for iPhone 8
-thumbnail: https://www.lifewire.com/thmb/17eYx3JlNgYWrNsT2X2f6cCUjf0=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/edit-tweet-after-publish-3476767-34af9aa3b62b4bf4b11891460076916b.png
+thumbnail: https://thmb.techidaily.com/a9309627364580efd732c4c8f6349cf67c0dc25ea886bdb64936441ab4225274.png
 ---
 
 ## How Do You Get Sun Stone Evolutions in Pokémon For Apple iPhone 8?
