@@ -1,7 +1,7 @@
 ---
 title: In 2024, Top 15 Augmented Reality Games Like Pokémon GO To Play On Apple iPhone 8 Plus | Dr.fone
-date: 2024-05-19T02:51:34.164Z
-updated: 2024-05-20T02:51:34.164Z
+date: 2024-07-12T05:35:50.822Z
+updated: 2024-07-13T05:35:50.822Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes Top 15 Augmented Reality Games Like Pokémon GO To Play On Apple iPhone 8 Plus
 excerpt: This article describes Top 15 Augmented Reality Games Like Pokémon GO To Play On Apple iPhone 8 Plus
 keywords: Pokémon Go for iPhone 8 Plus,Pokemon Go Joystick for iPad,Pokemon Go for iPhone,Pokémon Go for iPad,Pokemon Go Joystick for iPhone 8 Plus,Pokemon Go for iPhone 8 Plus,Pokemon Go for iPad,Pokemon Go Joystick for iPhone,Pokémon Go for iPhone
-thumbnail: https://www.lifewire.com/thmb/iwoCmi7AdF2SQEdJBdU3jN_mTWY=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-136612668-5c640cc5c9e77c00010a4ff4.jpg
+thumbnail: https://thmb.techidaily.com/fd49bc993ce8510e13bd3ece8f5853b9890f1d550e51d2b3c30dcfc01a7a61b2.jpg
 ---
 
 ## Top 15 Augmented Reality Games Like Pokémon GO To Play On Apple iPhone 8 Plus
@@ -65,8 +65,8 @@ If you like zombie movies, this game is the right one to download. “The Walkin
 
 ![the walking dead: our world](https://images.wondershare.com/drfone/article/2022/06/top-ar-games-like-pokemon-go-1.jpg)
 
-- _App Download for Android: [Link](https://play.google.com/store/apps/details?id=com.nextgames.android.ourworld&hl=en&gl=US)_
-- _App Download for iOS: [Link](https://apps.apple.com/us/app/the-walking-dead-our-world/id1328359160)_
+- _App Download for Android: [Link](https://play.google.com/store/apps/details?id=com.nextgames.android.ourworld&hl=en&gl=US) _
+- _App Download for iOS: [Link](https://apps.apple.com/us/app/the-walking-dead-our-world/id1328359160) _
 
 ### 14\. Dragon Quest Walk
 
@@ -74,7 +74,7 @@ Dragon Quest Walk is a game for those people who love watching or reading about 
 
 ![dragon quest walk](https://images.wondershare.com/drfone/article/2022/06/top-ar-games-like-pokemon-go-2.jpg)
 
-- _App Download for Android: [Link](https://play.google.com/store/apps/details?id=com.square_enix.android_googleplay.dqwalkj&hl=en&gl=US)_
+- _App Download for Android: [Link](https://play.google.com/store/apps/details?id=com.square_enix.android_googleplay.dqwalkj&hl=en&gl=US) _
 
 ### 13\. Pokémon Sword And Shield
 
@@ -82,7 +82,7 @@ After Pokémon Go’s popularity, they created another game with a different sto
 
 ![pokémon sword and shield](https://images.wondershare.com/drfone/article/2022/06/top-ar-games-like-pokemon-go-3.jpg)
 
-- _Official Website: [Link](https://swordshield.pokemon.com/en-us/)_
+- _Official Website: [Link](https://swordshield.pokemon.com/en-us/) _
 
 ### 12\. Jurassic World Alive
 
@@ -90,8 +90,8 @@ If you have watched and loved watching the Jurassic Park movies and just love di
 
 ![jurassic world alive](https://images.wondershare.com/drfone/article/2022/06/top-ar-games-like-pokemon-go-4.jpg)
 
-- _App Download for Android: [Link](https://play.google.com/store/apps/details?id=com.ludia.jw2&hl=en&gl=US)_
-- _App Download for iOS: [Link](https://apps.apple.com/us/app/jurassic-world-alive/id1231085864)_
+- _App Download for Android: [Link](https://play.google.com/store/apps/details?id=com.ludia.jw2&hl=en&gl=US) _
+- _App Download for iOS: [Link](https://apps.apple.com/us/app/jurassic-world-alive/id1231085864) _
 
 ### 11\. Ghost Busters World
 
@@ -99,7 +99,7 @@ Ghost Busters World is a game that was created and inspired by the Ghost Busters
 
 ![ghost busters world](https://images.wondershare.com/drfone/article/2022/06/top-ar-games-like-pokemon-go-5.jpg)
 
-- _App Download for Android: [Link](https://ghostbusters-world.en.softonic.com/android)_
+- _App Download for Android: [Link](https://ghostbusters-world.en.softonic.com/android) _
 
 ### 10\. Geocaching
 
@@ -107,8 +107,8 @@ If you love searching and hunting for treasure, then Geocaching is the perfect g
 
 ![geocaching](https://images.wondershare.com/drfone/article/2022/06/top-ar-games-like-pokemon-go-6.jpg)
 
-- _App Download for Android: [Link](https://play.google.com/store/apps/details?id=com.groundspeak.geocaching.intro&hl=en&gl=US)_
-- _App Download for iOS: [Link](https://apps.apple.com/us/app/geocaching/id329541503)_
+- _App Download for Android: [Link](https://play.google.com/store/apps/details?id=com.groundspeak.geocaching.intro&hl=en&gl=US) _
+- _App Download for iOS: [Link](https://apps.apple.com/us/app/geocaching/id329541503) _
 
 ### 9\. Zombies, Run
 
@@ -116,8 +116,8 @@ For those players who are into running or are physically fit, you playing the ga
 
 ![zombies, run](https://images.wondershare.com/drfone/article/2022/06/top-ar-games-like-pokemon-go-7.jpg)
 
-- _App Download for Android: [Link](https://play.google.com/store/apps/details?id=com.sixtostart.zombiesrunclient&hl=en)_
-- _App Download for iOS: [Link](https://apps.apple.com/us/app/zombies-run/id503519713)_
+- _App Download for Android: [Link](https://play.google.com/store/apps/details?id=com.sixtostart.zombiesrunclient&hl=en) _
+- _App Download for iOS: [Link](https://apps.apple.com/us/app/zombies-run/id503519713) _
 
 ### 8\. Orna
 
@@ -125,8 +125,8 @@ Orna is a role-playing game where you battle different creatures, explore dungeo
 
 ![orna](https://images.wondershare.com/drfone/article/2022/06/top-ar-games-like-pokemon-go-8.jpg)
 
-- _App Download for Android: [Link](https://play.google.com/store/apps/details?id=playorna.com.orna&hl=en&gl=US)_
-- _App Download for iOS: [Link](https://apps.apple.com/th/app/orna-turn-based-gps-rpg/id1451775309?l=th)_
+- _App Download for Android: [Link](https://play.google.com/store/apps/details?id=playorna.com.orna&hl=en&gl=US) _
+- _App Download for iOS: [Link](https://apps.apple.com/th/app/orna-turn-based-gps-rpg/id1451775309?l=th) _
 
 ### 7\. Sharks in the Park
 
@@ -134,7 +134,7 @@ If you love anything underwater, then Sharks in the Park is the game that you sh
 
 ![sharks in the park](https://images.wondershare.com/drfone/article/2022/06/top-ar-games-like-pokemon-go-9.jpg)
 
-- _App Download for Android: [Link](https://sharks-in-the-park.en.softonic.com/android)_
+- _App Download for Android: [Link](https://sharks-in-the-park.en.softonic.com/android) _
 
 ### 6\. The Witcher: Monster Slayer
 
@@ -142,8 +142,8 @@ The Witcher: Monster Slayer is a game that will be a big hit for gamers who like
 
 ![the witcher: monster slayer](https://images.wondershare.com/drfone/article/2022/06/top-ar-games-like-pokemon-go-15.jpg)
 
-- _App Download for Android: [Link](https://play.google.com/store/apps/details?id=com.spokko.witchermonsterslayer&hl=en&gl=US)_
-- _App Download for iOS: [Link](https://apps.apple.com/th/app/the-witcher-monster-slayer/id1509704647)_
+- _App Download for Android: [Link](https://play.google.com/store/apps/details?id=com.spokko.witchermonsterslayer&hl=en&gl=US) _
+- _App Download for iOS: [Link](https://apps.apple.com/th/app/the-witcher-monster-slayer/id1509704647) _
 
 ### 5\. The Walk
 
@@ -151,7 +151,7 @@ If you love going for walks, then The Walk is the game that you should try to el
 
 ![the walk](https://images.wondershare.com/drfone/article/2022/06/top-ar-games-like-pokemon-go-10.jpg)
 
-- _App Download for Android: [Link](https://play.google.com/store/apps/details?id=com.sixtostart.thewalk2&hl=en&gl=US)_
+- _App Download for Android: [Link](https://play.google.com/store/apps/details?id=com.sixtostart.thewalk2&hl=en&gl=US) _
 
 ### _4\. Minecraft Earth_
 
@@ -159,7 +159,7 @@ If you have played Minecraft or just have the knack for creating worlds, then yo
 
 ![minecraft earth](https://images.wondershare.com/drfone/article/2022/06/top-ar-games-like-pokemon-go-11.jpg)
 
-- _App Download for Android: [Link](https://play.google.com/store/apps/details?id=com.mojang.minecraftearth&hl=en&gl=AE)_
+- _App Download for Android: [Link](https://play.google.com/store/apps/details?id=com.mojang.minecraftearth&hl=en&gl=AE) _
 
 ### 3\. Pikmin Bloom
 
@@ -167,8 +167,8 @@ If you love creating and designing, you can try Pikmin Bloom game. This game all
 
 ![pikmin bloom](https://images.wondershare.com/drfone/article/2022/06/top-ar-games-like-pokemon-go-12.jpg)
 
-- _App Download for Android: [Link](https://play.google.com/store/apps/details?id=com.nianticlabs.pikmin&hl=en&gl=US)_
-- _App Download for iOS: [Link](https://apps.apple.com/us/app/pikmin-bloom/id1556357398)_
+- _App Download for Android: [Link](https://play.google.com/store/apps/details?id=com.nianticlabs.pikmin&hl=en&gl=US) _
+- _App Download for iOS: [Link](https://apps.apple.com/us/app/pikmin-bloom/id1556357398) _
 
 ### 2\. Harry Potter: Wizards Unite
 
@@ -176,7 +176,7 @@ If you grew up watching Harry Potter and would love to be a wizard, you should d
 
 ![harry potter: wizards unite](https://images.wondershare.com/drfone/article/2022/06/top-ar-games-like-pokemon-go-13.jpg)
 
-- _App Download for Android: [Link](https://play.google.com/store/apps/details?id=com.nianticlabs.hpwu.prod&hl=en&gl=RU)_
+- _App Download for Android: [Link](https://play.google.com/store/apps/details?id=com.nianticlabs.hpwu.prod&hl=en&gl=RU) _
 
 ### 1\. Ingress Prime
 
@@ -184,8 +184,8 @@ Ingress Prime is best suited for players who like the concept of playing Pokémo
 
 ![ingress prime](https://images.wondershare.com/drfone/article/2022/06/top-ar-games-like-pokemon-go-14.jpg)
 
-- _App Download for Android: [Link](https://play.google.com/store/apps/details?id=com.nianticproject.ingress&hl=en&gl=US)_
-- _App Downloads for iOS: [Link](https://apps.apple.com/us/app/ingress-prime/id576505181)_
+- _App Download for Android: [Link](https://play.google.com/store/apps/details?id=com.nianticproject.ingress&hl=en&gl=US) _
+- _App Downloads for iOS: [Link](https://apps.apple.com/us/app/ingress-prime/id576505181) _
 
 ## Conclusion
 
@@ -394,3 +394,52 @@ Now, spoof Pokémon Go without ban with the help of PGSharp on android devices. 
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-hacks-to-do-pokemon-go-trainer-battles-for-apple-iphone-15-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, Hacks to do pokemon go trainer battles For Apple iPhone 15 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-hacks-to-do-pokemon-go-trainer-battles-for-apple-iphone-14-drfone-by-drfone-virtual-ios/"><u>In 2024, Hacks to do pokemon go trainer battles For Apple iPhone 14 | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-hacks-to-do-pokemon-go-trainer-battles-for-apple-iphone-6s-drfone-by-drfone-virtual-ios/"><u>In 2024, Hacks to do pokemon go trainer battles For Apple iPhone 6s | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-hacks-to-do-pokemon-go-trainer-battles-for-apple-iphone-7-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, Hacks to do pokemon go trainer battles For Apple iPhone 7 Plus | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-hacks-to-do-pokemon-go-trainer-battles-for-apple-iphone-13-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, Hacks to do pokemon go trainer battles For Apple iPhone 13 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-exit-dfu-mode-on-iphone-12-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Exit DFU Mode on iPhone 12? | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-hacks-to-do-pokemon-go-trainer-battles-for-apple-iphone-14-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, Hacks to do pokemon go trainer battles For Apple iPhone 14 Plus | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-hacks-to-do-pokemon-go-trainer-battles-for-apple-iphone-13-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, Hacks to do pokemon go trainer battles For Apple iPhone 13 Pro | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-syncing-songs-to-social-networks-iphonesandroid-approach/"><u>In 2024, Syncing Songs to Social Networks  IPhones/Android Approach</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-hacks-to-do-pokemon-go-trainer-battles-for-apple-iphone-6s-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, Hacks to do pokemon go trainer battles For Apple iPhone 6s Plus | Dr.fone</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-ultimate-list-of-premier-video-capture-apps-for-2024/"><u>[New] Ultimate List of Premier Video Capture Apps for 2024</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-hacks-to-do-pokemon-go-trainer-battles-for-apple-iphone-14-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, Hacks to do pokemon go trainer battles For Apple iPhone 14 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/legal-download-how-to-safely-transfer-youtube-to-mp4-for-2024/"><u>Legal Download  How to Safely Transfer YouTube to MP4 for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-avoiding-the-crowd-stand-out-with-unique-youtube-persona/"><u>[New] In 2024, Avoiding the Crowd  Stand Out with Unique YouTube Persona</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-hacks-to-do-pokemon-go-trainer-battles-for-apple-iphone-se-2022-drfone-by-drfone-virtual-ios/"><u>In 2024, Hacks to do pokemon go trainer battles For Apple iPhone SE (2022) | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/new-building-powerful-relationships-through-strategic-social-media-engagement/"><u>[New] Building Powerful Relationships Through Strategic Social Media Engagement</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-the-essential-tools-every-new-creator-needs/"><u>In 2024, The Essential Tools Every New Creator Needs</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/background-noise-reduction-with-imovie-guide-for-mac/"><u>Background Noise Reduction With iMovie Guide For Mac</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-elevate-your-social-strategy-with-these-top-8-apps-phones-included/"><u>[New] Elevate Your Social Strategy with These Top 8 Apps, Phones Included</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-hacks-to-do-pokemon-go-trainer-battles-for-apple-iphone-13-drfone-by-drfone-virtual-ios/"><u>In 2024, Hacks to do pokemon go trainer battles For Apple iPhone 13 | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-hacks-to-do-pokemon-go-trainer-battles-for-apple-iphone-12-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, Hacks to do pokemon go trainer battles For Apple iPhone 12 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-hacks-to-do-pokemon-go-trainer-battles-for-apple-iphone-15-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, Hacks to do pokemon go trainer battles For Apple iPhone 15 Pro | Dr.fone</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-avoiding-youtubes-controversial-scrutiny/"><u>[Updated] Avoiding YouTube's Controversial Scrutiny</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-puzzle-prints-crafting-hilarity-in-minutes/"><u>In 2024, Puzzle Prints  Crafting Hilarity in Minutes</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-hacks-to-do-pokemon-go-trainer-battles-for-apple-iphone-15-drfone-by-drfone-virtual-ios/"><u>In 2024, Hacks to do pokemon go trainer battles For Apple iPhone 15 | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-hacks-to-do-pokemon-go-trainer-battles-for-apple-iphone-13-mini-drfone-by-drfone-virtual-ios/"><u>In 2024, Hacks to do pokemon go trainer battles For Apple iPhone 13 mini | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-top-11-free-apps-to-check-imei-on-oneplus-11-5g-phones-by-drfone-android/"><u>In 2024, Top 11 Free Apps to Check IMEI on OnePlus 11 5G Phones</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-the-art-of-adding-gifs-to-instagram-posts-4-easy-steps/"><u>[Updated] The Art of Adding GIFs to Instagram Posts (4 Easy Steps)</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/2024-approved-action-archetypes-choosing-the-best-7-first-person-shooters/"><u>2024 Approved  Action Archetypes  Choosing the Best 7 First-Person Shooters</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-hacks-to-do-pokemon-go-trainer-battles-for-apple-iphone-6-drfone-by-drfone-virtual-ios/"><u>In 2024, Hacks to do pokemon go trainer battles For Apple iPhone 6 | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-hacks-to-do-pokemon-go-trainer-battles-for-apple-iphone-8-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, Hacks to do pokemon go trainer battles For Apple iPhone 8 Plus | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-hacks-to-do-pokemon-go-trainer-battles-for-apple-iphone-14-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, Hacks to do pokemon go trainer battles For Apple iPhone 14 Pro | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-hacks-to-do-pokemon-go-trainer-battles-for-apple-iphone-7-drfone-by-drfone-virtual-ios/"><u>In 2024, Hacks to do pokemon go trainer battles For Apple iPhone 7 | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-hacks-to-do-pokemon-go-trainer-battles-for-apple-iphone-6-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, Hacks to do pokemon go trainer battles For Apple iPhone 6 Plus | Dr.fone</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/quickplay-quotient-top-10-lightning-gaming-apps/"><u>Quickplay Quotient  Top 10 Lightning Gaming Apps</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-hacks-to-do-pokemon-go-trainer-battles-for-apple-iphone-se-2020-drfone-by-drfone-virtual-ios/"><u>In 2024, Hacks to do pokemon go trainer battles For Apple iPhone SE (2020) | Dr.fone</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/updated-elevate-your-canon-videos-expert-video-editing-software-and-techniques-for-2024/"><u>Updated Elevate Your Canon Videos Expert Video Editing Software and Techniques for 2024</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-in-2024-the-ultimate-list-5-free-online-tone-generators/"><u>New In 2024, The Ultimate List 5 Free Online Tone Generators</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-hacks-to-do-pokemon-go-trainer-battles-for-apple-iphone-8-drfone-by-drfone-virtual-ios/"><u>In 2024, Hacks to do pokemon go trainer battles For Apple iPhone 8 | Dr.fone</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/1715701226607-top-cycling-sims-worth-your-time/"><u>Top Cycling Sims Worth Your Time!</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-check-distance-and-radius-on-google-maps-for-your-xiaomi-14-ultra-drfone-by-drfone-virtual-android/"><u>How to Check Distance and Radius on Google Maps For your Xiaomi 14 Ultra | Dr.fone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-mastering-the-art-of-sounding-different-in-pubg/"><u>2024 Approved  Mastering the Art of Sounding Different in PUBG</u></a></li>
+<li><a href="https://techidaily.com/top-iphone-13-pro-message-recovery-software-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>Top iPhone 13 Pro Message Recovery Software | Stellar</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-ragnors-rebirth-warriors-alliance/"><u>[New] Ragnor's Rebirth  Warriors Alliance</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-hacks-to-do-pokemon-go-trainer-battles-for-apple-iphone-15-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, Hacks to do pokemon go trainer battles For Apple iPhone 15 Plus | Dr.fone</u></a></li>
+</ul></div>

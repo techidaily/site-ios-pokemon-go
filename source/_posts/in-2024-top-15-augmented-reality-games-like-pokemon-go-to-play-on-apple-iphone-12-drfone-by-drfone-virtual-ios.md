@@ -1,7 +1,7 @@
 ---
 title: In 2024, Top 15 Augmented Reality Games Like Pokémon GO To Play On Apple iPhone 12 | Dr.fone
-date: 2024-05-19T02:51:34.113Z
-updated: 2024-05-20T02:51:34.113Z
+date: 2024-07-12T05:35:25.130Z
+updated: 2024-07-13T05:35:25.130Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -10,7 +10,7 @@ categories:
 description: This article describes Top 15 Augmented Reality Games Like Pokémon GO To Play On Apple iPhone 12
 excerpt: This article describes Top 15 Augmented Reality Games Like Pokémon GO To Play On Apple iPhone 12
 keywords: Pokemon Go for iPhone,Pokemon Go Joystick for iPhone 12,Pokemon Go for iPhone 12,Pokemon Go Joystick for iPad,Pokémon Go for iPad,Pokémon Go for iPhone 12
-thumbnail: https://www.lifewire.com/thmb/s_49EdazIwlAKelLWFU8LSaOlMk=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-585151372-a659baf0c7b441b9b7e7896716b12784.jpg
+thumbnail: https://thmb.techidaily.com/97d650cd0f6e07d2facd0c86f96f609a10afc326cf6eb9f144fb267795cd5a9a.jpg
 ---
 
 ## Top 15 Augmented Reality Games Like Pokémon GO To Play On Apple iPhone 12
@@ -65,8 +65,8 @@ If you like zombie movies, this game is the right one to download. “The Walkin
 
 ![the walking dead: our world](https://images.wondershare.com/drfone/article/2022/06/top-ar-games-like-pokemon-go-1.jpg)
 
-- _App Download for Android: [Link](https://play.google.com/store/apps/details?id=com.nextgames.android.ourworld&hl=en&gl=US)_
-- _App Download for iOS: [Link](https://apps.apple.com/us/app/the-walking-dead-our-world/id1328359160)_
+- _App Download for Android: [Link](https://play.google.com/store/apps/details?id=com.nextgames.android.ourworld&hl=en&gl=US) _
+- _App Download for iOS: [Link](https://apps.apple.com/us/app/the-walking-dead-our-world/id1328359160) _
 
 ### 14\. Dragon Quest Walk
 
@@ -74,7 +74,7 @@ Dragon Quest Walk is a game for those people who love watching or reading about 
 
 ![dragon quest walk](https://images.wondershare.com/drfone/article/2022/06/top-ar-games-like-pokemon-go-2.jpg)
 
-- _App Download for Android: [Link](https://play.google.com/store/apps/details?id=com.square_enix.android_googleplay.dqwalkj&hl=en&gl=US)_
+- _App Download for Android: [Link](https://play.google.com/store/apps/details?id=com.square_enix.android_googleplay.dqwalkj&hl=en&gl=US) _
 
 ### 13\. Pokémon Sword And Shield
 
@@ -82,7 +82,7 @@ After Pokémon Go’s popularity, they created another game with a different sto
 
 ![pokémon sword and shield](https://images.wondershare.com/drfone/article/2022/06/top-ar-games-like-pokemon-go-3.jpg)
 
-- _Official Website: [Link](https://swordshield.pokemon.com/en-us/)_
+- _Official Website: [Link](https://swordshield.pokemon.com/en-us/) _
 
 ### 12\. Jurassic World Alive
 
@@ -90,8 +90,8 @@ If you have watched and loved watching the Jurassic Park movies and just love di
 
 ![jurassic world alive](https://images.wondershare.com/drfone/article/2022/06/top-ar-games-like-pokemon-go-4.jpg)
 
-- _App Download for Android: [Link](https://play.google.com/store/apps/details?id=com.ludia.jw2&hl=en&gl=US)_
-- _App Download for iOS: [Link](https://apps.apple.com/us/app/jurassic-world-alive/id1231085864)_
+- _App Download for Android: [Link](https://play.google.com/store/apps/details?id=com.ludia.jw2&hl=en&gl=US) _
+- _App Download for iOS: [Link](https://apps.apple.com/us/app/jurassic-world-alive/id1231085864) _
 
 ### 11\. Ghost Busters World
 
@@ -99,7 +99,7 @@ Ghost Busters World is a game that was created and inspired by the Ghost Busters
 
 ![ghost busters world](https://images.wondershare.com/drfone/article/2022/06/top-ar-games-like-pokemon-go-5.jpg)
 
-- _App Download for Android: [Link](https://ghostbusters-world.en.softonic.com/android)_
+- _App Download for Android: [Link](https://ghostbusters-world.en.softonic.com/android) _
 
 ### 10\. Geocaching
 
@@ -107,8 +107,8 @@ If you love searching and hunting for treasure, then Geocaching is the perfect g
 
 ![geocaching](https://images.wondershare.com/drfone/article/2022/06/top-ar-games-like-pokemon-go-6.jpg)
 
-- _App Download for Android: [Link](https://play.google.com/store/apps/details?id=com.groundspeak.geocaching.intro&hl=en&gl=US)_
-- _App Download for iOS: [Link](https://apps.apple.com/us/app/geocaching/id329541503)_
+- _App Download for Android: [Link](https://play.google.com/store/apps/details?id=com.groundspeak.geocaching.intro&hl=en&gl=US) _
+- _App Download for iOS: [Link](https://apps.apple.com/us/app/geocaching/id329541503) _
 
 ### 9\. Zombies, Run
 
@@ -116,8 +116,8 @@ For those players who are into running or are physically fit, you playing the ga
 
 ![zombies, run](https://images.wondershare.com/drfone/article/2022/06/top-ar-games-like-pokemon-go-7.jpg)
 
-- _App Download for Android: [Link](https://play.google.com/store/apps/details?id=com.sixtostart.zombiesrunclient&hl=en)_
-- _App Download for iOS: [Link](https://apps.apple.com/us/app/zombies-run/id503519713)_
+- _App Download for Android: [Link](https://play.google.com/store/apps/details?id=com.sixtostart.zombiesrunclient&hl=en) _
+- _App Download for iOS: [Link](https://apps.apple.com/us/app/zombies-run/id503519713) _
 
 ### 8\. Orna
 
@@ -125,8 +125,8 @@ Orna is a role-playing game where you battle different creatures, explore dungeo
 
 ![orna](https://images.wondershare.com/drfone/article/2022/06/top-ar-games-like-pokemon-go-8.jpg)
 
-- _App Download for Android: [Link](https://play.google.com/store/apps/details?id=playorna.com.orna&hl=en&gl=US)_
-- _App Download for iOS: [Link](https://apps.apple.com/th/app/orna-turn-based-gps-rpg/id1451775309?l=th)_
+- _App Download for Android: [Link](https://play.google.com/store/apps/details?id=playorna.com.orna&hl=en&gl=US) _
+- _App Download for iOS: [Link](https://apps.apple.com/th/app/orna-turn-based-gps-rpg/id1451775309?l=th) _
 
 ### 7\. Sharks in the Park
 
@@ -134,7 +134,7 @@ If you love anything underwater, then Sharks in the Park is the game that you sh
 
 ![sharks in the park](https://images.wondershare.com/drfone/article/2022/06/top-ar-games-like-pokemon-go-9.jpg)
 
-- _App Download for Android: [Link](https://sharks-in-the-park.en.softonic.com/android)_
+- _App Download for Android: [Link](https://sharks-in-the-park.en.softonic.com/android) _
 
 ### 6\. The Witcher: Monster Slayer
 
@@ -142,8 +142,8 @@ The Witcher: Monster Slayer is a game that will be a big hit for gamers who like
 
 ![the witcher: monster slayer](https://images.wondershare.com/drfone/article/2022/06/top-ar-games-like-pokemon-go-15.jpg)
 
-- _App Download for Android: [Link](https://play.google.com/store/apps/details?id=com.spokko.witchermonsterslayer&hl=en&gl=US)_
-- _App Download for iOS: [Link](https://apps.apple.com/th/app/the-witcher-monster-slayer/id1509704647)_
+- _App Download for Android: [Link](https://play.google.com/store/apps/details?id=com.spokko.witchermonsterslayer&hl=en&gl=US) _
+- _App Download for iOS: [Link](https://apps.apple.com/th/app/the-witcher-monster-slayer/id1509704647) _
 
 ### 5\. The Walk
 
@@ -151,7 +151,7 @@ If you love going for walks, then The Walk is the game that you should try to el
 
 ![the walk](https://images.wondershare.com/drfone/article/2022/06/top-ar-games-like-pokemon-go-10.jpg)
 
-- _App Download for Android: [Link](https://play.google.com/store/apps/details?id=com.sixtostart.thewalk2&hl=en&gl=US)_
+- _App Download for Android: [Link](https://play.google.com/store/apps/details?id=com.sixtostart.thewalk2&hl=en&gl=US) _
 
 ### _4\. Minecraft Earth_
 
@@ -159,7 +159,7 @@ If you have played Minecraft or just have the knack for creating worlds, then yo
 
 ![minecraft earth](https://images.wondershare.com/drfone/article/2022/06/top-ar-games-like-pokemon-go-11.jpg)
 
-- _App Download for Android: [Link](https://play.google.com/store/apps/details?id=com.mojang.minecraftearth&hl=en&gl=AE)_
+- _App Download for Android: [Link](https://play.google.com/store/apps/details?id=com.mojang.minecraftearth&hl=en&gl=AE) _
 
 ### 3\. Pikmin Bloom
 
@@ -167,8 +167,8 @@ If you love creating and designing, you can try Pikmin Bloom game. This game all
 
 ![pikmin bloom](https://images.wondershare.com/drfone/article/2022/06/top-ar-games-like-pokemon-go-12.jpg)
 
-- _App Download for Android: [Link](https://play.google.com/store/apps/details?id=com.nianticlabs.pikmin&hl=en&gl=US)_
-- _App Download for iOS: [Link](https://apps.apple.com/us/app/pikmin-bloom/id1556357398)_
+- _App Download for Android: [Link](https://play.google.com/store/apps/details?id=com.nianticlabs.pikmin&hl=en&gl=US) _
+- _App Download for iOS: [Link](https://apps.apple.com/us/app/pikmin-bloom/id1556357398) _
 
 ### 2\. Harry Potter: Wizards Unite
 
@@ -176,7 +176,7 @@ If you grew up watching Harry Potter and would love to be a wizard, you should d
 
 ![harry potter: wizards unite](https://images.wondershare.com/drfone/article/2022/06/top-ar-games-like-pokemon-go-13.jpg)
 
-- _App Download for Android: [Link](https://play.google.com/store/apps/details?id=com.nianticlabs.hpwu.prod&hl=en&gl=RU)_
+- _App Download for Android: [Link](https://play.google.com/store/apps/details?id=com.nianticlabs.hpwu.prod&hl=en&gl=RU) _
 
 ### 1\. Ingress Prime
 
@@ -184,8 +184,8 @@ Ingress Prime is best suited for players who like the concept of playing Pokémo
 
 ![ingress prime](https://images.wondershare.com/drfone/article/2022/06/top-ar-games-like-pokemon-go-14.jpg)
 
-- _App Download for Android: [Link](https://play.google.com/store/apps/details?id=com.nianticproject.ingress&hl=en&gl=US)_
-- _App Downloads for iOS: [Link](https://apps.apple.com/us/app/ingress-prime/id576505181)_
+- _App Download for Android: [Link](https://play.google.com/store/apps/details?id=com.nianticproject.ingress&hl=en&gl=US) _
+- _App Downloads for iOS: [Link](https://apps.apple.com/us/app/ingress-prime/id576505181) _
 
 ## Conclusion
 
@@ -366,3 +366,39 @@ Some YouTube channels teach you how to use drones to cheat in Pokémon Go. A goo
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://ios-pokemon-go.techidaily.com/how-to-get-and-use-pokemon-go-promo-codes-on-apple-iphone-13-pro-max-drfone-by-drfone-virtual-ios/"><u>How to Get and Use Pokemon Go Promo Codes On Apple iPhone 13 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/how-to-get-and-use-pokemon-go-promo-codes-on-apple-iphone-7-plus-drfone-by-drfone-virtual-ios/"><u>How to Get and Use Pokemon Go Promo Codes On Apple iPhone 7 Plus | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-mastering-yt-creator-hub-the-ultimate-playbook/"><u>[New] Mastering YT Creator Hub  The Ultimate Playbook</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/new-premier-audio-labeling-software-for-windows-and-mac-users-for-2024/"><u>New Premier Audio Labeling Software for Windows & Mac Users for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/step-into-photo-magic-innovative-edits-on-snapchat-for-2024/"><u>Step Into Photo Magic  Innovative Edits on Snapchat for 2024</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/how-to-get-and-use-pokemon-go-promo-codes-on-apple-iphone-15-plus-drfone-by-drfone-virtual-ios/"><u>How to Get and Use Pokemon Go Promo Codes On Apple iPhone 15 Plus | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/how-to-get-and-use-pokemon-go-promo-codes-on-apple-iphone-se-2020-drfone-by-drfone-virtual-ios/"><u>How to Get and Use Pokemon Go Promo Codes On Apple iPhone SE (2020) | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/how-to-get-and-use-pokemon-go-promo-codes-on-apple-iphone-6s-plus-drfone-by-drfone-virtual-ios/"><u>How to Get and Use Pokemon Go Promo Codes On Apple iPhone 6s Plus | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/how-to-get-and-use-pokemon-go-promo-codes-on-apple-iphone-14-pro-max-drfone-by-drfone-virtual-ios/"><u>How to Get and Use Pokemon Go Promo Codes On Apple iPhone 14 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/how-to-get-and-use-pokemon-go-promo-codes-on-apple-iphone-6s-drfone-by-drfone-virtual-ios/"><u>How to Get and Use Pokemon Go Promo Codes On Apple iPhone 6s | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/how-to-get-and-use-pokemon-go-promo-codes-on-apple-iphone-x-drfone-by-drfone-virtual-ios/"><u>How to Get and Use Pokemon Go Promo Codes On Apple iPhone X | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-calculating-youtubes-income-potential-with-cpm-rates/"><u>[Updated] 2024 Approved  Calculating YouTube's Income Potential with CPM Rates</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/melodies-to-move-you-discovering-the-emotional-playlists-for-2024/"><u>Melodies to Move You Discovering the Emotional Playlists for 2024</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/how-to-get-and-use-pokemon-go-promo-codes-on-apple-iphone-8-plus-drfone-by-drfone-virtual-ios/"><u>How to Get and Use Pokemon Go Promo Codes On Apple iPhone 8 Plus | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/how-to-get-and-use-pokemon-go-promo-codes-on-apple-iphone-xr-drfone-by-drfone-virtual-ios/"><u>How to Get and Use Pokemon Go Promo Codes On Apple iPhone XR | Dr.fone</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-masterful-moment-captures-with-expert-photo-frames-online/"><u>[Updated] 2024 Approved  Masterful Moment Captures with Expert Photo Frames Online</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/how-to-get-and-use-pokemon-go-promo-codes-on-apple-iphone-se-drfone-by-drfone-virtual-ios/"><u>How to Get and Use Pokemon Go Promo Codes On Apple iPhone SE | Dr.fone</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-speed-up-your-storytelling-time-lapse-video-creation-in-final-cut-pro-for-2024/"><u>New Speed Up Your Storytelling Time Lapse Video Creation in Final Cut Pro for 2024</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/innovative-strategies-for-youtube-ads-by-the-elite-for-2024/"><u>Innovative Strategies for YouTube Ads by the Elite for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/catchemall-celebrate-national-pokemon-day-with-virtual-location-on-oppo-f23-5g-drfone-by-drfone-virtual-android/"><u>CatchEmAll Celebrate National Pokémon Day with Virtual Location On Oppo F23 5G | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/how-to-get-and-use-pokemon-go-promo-codes-on-apple-iphone-15-pro-max-drfone-by-drfone-virtual-ios/"><u>How to Get and Use Pokemon Go Promo Codes On Apple iPhone 15 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-secure-your-favorite-youtube-images-download-without-paying/"><u>[Updated] Secure Your Favorite YouTube Images  Download without Paying</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/how-to-get-and-use-pokemon-go-promo-codes-on-apple-iphone-7-drfone-by-drfone-virtual-ios/"><u>How to Get and Use Pokemon Go Promo Codes On Apple iPhone 7 | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/how-to-get-and-use-pokemon-go-promo-codes-on-apple-iphone-15-drfone-by-drfone-virtual-ios/"><u>How to Get and Use Pokemon Go Promo Codes On Apple iPhone 15 | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/how-to-get-and-use-pokemon-go-promo-codes-on-apple-iphone-6-drfone-by-drfone-virtual-ios/"><u>How to Get and Use Pokemon Go Promo Codes On Apple iPhone 6 | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/how-to-get-and-use-pokemon-go-promo-codes-on-apple-iphone-8-drfone-by-drfone-virtual-ios/"><u>How to Get and Use Pokemon Go Promo Codes On Apple iPhone 8 | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/how-to-get-and-use-pokemon-go-promo-codes-on-apple-iphone-se-2022-drfone-by-drfone-virtual-ios/"><u>How to Get and Use Pokemon Go Promo Codes On Apple iPhone SE (2022) | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/how-to-get-and-use-pokemon-go-promo-codes-on-apple-iphone-15-pro-drfone-by-drfone-virtual-ios/"><u>How to Get and Use Pokemon Go Promo Codes On Apple iPhone 15 Pro | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/how-to-get-and-use-pokemon-go-promo-codes-on-apple-iphone-6-plus-drfone-by-drfone-virtual-ios/"><u>How to Get and Use Pokemon Go Promo Codes On Apple iPhone 6 Plus | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/how-to-get-and-use-pokemon-go-promo-codes-on-apple-iphone-14-drfone-by-drfone-virtual-ios/"><u>How to Get and Use Pokemon Go Promo Codes On Apple iPhone 14 | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/how-to-get-and-use-pokemon-go-promo-codes-on-apple-iphone-14-pro-drfone-by-drfone-virtual-ios/"><u>How to Get and Use Pokemon Go Promo Codes On Apple iPhone 14 Pro | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/how-to-get-and-use-pokemon-go-promo-codes-on-apple-iphone-14-plus-drfone-by-drfone-virtual-ios/"><u>How to Get and Use Pokemon Go Promo Codes On Apple iPhone 14 Plus | Dr.fone</u></a></li>
+</ul></div>
