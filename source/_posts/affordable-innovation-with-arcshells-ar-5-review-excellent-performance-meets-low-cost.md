@@ -1,7 +1,7 @@
 ---
 title: "Affordable Innovation with ArcShell's AR-5 Review: Excellent Performance Meets Low Cost."
-date: 2024-08-15T08:10:27.930Z
-updated: 2024-08-16T08:10:27.930Z
+date: 2024-09-04T12:23:11.105Z
+updated: 2024-09-05T12:23:11.105Z
 categories:
   - BestProducts
 description: "This Article Describes Affordable Innovation with ArcShell's AR-5 Review: Excellent Performance Meets Low Cost."
@@ -39,15 +39,9 @@ Lifewire / Jonno Hill
 
 4.5
 
-<!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Corsair One Pro
 
 ![Corsair One Pro](https://www.lifewire.com/thmb/bAGUctxOJ12bRS1igxDea_7Ukpw=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Corsair-One-Pro-Desktop-Computer-1-18b604776a364414be0d3f42d78f93cb.jpg)
-<!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Jonno Hill
 
@@ -82,6 +76,12 @@ Lifewire / Jonno Hill
 
  Lifewire / Jonno Hill
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137380/7443" target="_top" id="2137380">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137380" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137380/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Design** :**Beautiful and compact**
 
  The first thing I noticed about the Corsair One Pro when taking it out of the box was how small it was, and I was already anticipating a small PC. The 12 Liter case measures just 7.8 x 6.9 x 14.9 inches (HWD)—absolutely minuscule by gaming desktop standards. They also manage to do all this without making the case look like a cheesy aesthetic nightmare designed by an 11-year-old with a Mountain Dew Code Red addiction. A feat, I know. Hats off to Corsair for designing a PC for adults.
@@ -97,17 +97,9 @@ Lifewire / Jonno Hill
  Most home computer builders scoff at the notion of paying a company a premium to put together a system for you—that’s supposed to be part of the fun! But if you were ever going to sway one of us, this is how you would do it. Put together a custom system using parts that I can’t just buy off a shelf, delivering something that I can’t easily make.
 
 ![Corsair One Pro](https://www.lifewire.com/thmb/fx7g2Vg5VksuNwH4LThQhniEsg0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Corsair-One-Pro-Desktop-Computer-3-51b17ae55a144069ac2ce72488200290.jpg)
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296685&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2022/video-pp/ScreenshotSlider/Nero-Video-Advanced-editing.JPG" border="0">Simple and intuitive video editing
-🎬 Nero Video:
-The powerful video editing program for your Windows PC</a>
-<!-- affiliate ads end -->
 
  Lifewire / Jonno Hill
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Performance** : **Solid for gaming, but limited RAM for video editing**
 
  The Corsair One Pro that I tested featured an Intel Core i7-7700k processor, 32GB of RAM, a 480GB[M.2 NVMe drive](https://www.lifewire.com/what-is-m2-833453) , a 2TB HDD, and an Nvidia GTX GeForce 1080 Ti graphics card. I’m a fan of almost everything about this hardware configuration except for the RAM. It’s certainly enough memory if you don’t do much beyond gaming and web browsing, but it’s quite limiting for any creative applications like video editing and motion graphics.
@@ -118,12 +110,30 @@ The powerful video editing program for your Windows PC</a>
 
  It’s certainly enough memory if you don’t do much beyond gaming and web browsing, but it’s quite limiting for any creative applications like video editing and motion graphics.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972684/19272" target="_top" id="1972684">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972684" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972684/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Network** :**Everything a gaming PC needs**
 
  The Corsair One Pro features[Gigabit Ethernet](https://www.lifewire.com/definition-of-gigabit-ethernet-816338) , 802.11ac Wi-Fi, and Bluetooth 4.2\. While most serious users will want to get off of Wi-Fi and onto Ethernet as soon as they can, the presence of Wi-Fi is still very critical. Not everyone has access to Ethernet, or at least not right away, and sometimes being able to hop on Wi-Fi in a pinch makes all the difference.
 
  I didn’t have any trouble on the networking front with either the Wi-Fi or the Ethernet. My test setup was about 50 ft from the nearest router in direct line of sight, so I didn’t expect too many issues, but I was happy with the stability that I enjoyed during testing.
 
+<!-- affiliate ads begin -->
+<span id="1983472">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983472.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983472">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983472%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983472/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Software: A light touch**
 
  Software is definitely an area where most buyers appreciate seeing as little extra as possible, and Corsair certainly knows this. There isn’t a ton of flashy bloatware clogging the user experience of the Corsair One Pro, and we’re all the better for it. You can make use of the Corsair Link software, nonetheless, to monitor and manage the internals from the comfort of your windows desktop.
@@ -132,8 +142,26 @@ The powerful video editing program for your Windows PC</a>
 
 ![Corsair One Pro](https://www.lifewire.com/thmb/wD8iDgpKfKl5SxrOM7HcPorqmgw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Corsair-One-Pro-Desktop-Computer-5-d413b11c28bb49e0baada954e10dcb3a.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1983551">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983551.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983551">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983551.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983551%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983551/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Lifewire / Jonno Hill
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135375/19272" target="_top" id="2135375">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135375" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135375/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Price: A premium, but a deserved one**
 
  The Corsair One Pro as configured can be found online for between $1700-$1900, which is a pretty great deal for this system. I put together a comparable build on PCPartPicker and despite cutting a few corners still ended up at around $1600 all-in. A $100-300 premium for a well-built, compact desktop like this is incredibly reasonable by any measure.
@@ -144,11 +172,14 @@ The powerful video editing program for your Windows PC</a>
 
 ![Corsair One Pro](https://www.lifewire.com/thmb/b6k5YWyriZ_Y7470FGAcu1W_ff4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Corsair-One-Pro-Desktop-Computer-4-0587a464511c4a0c9b312ba9693af470.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105870/7443" target="_top" id="2105870">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105870/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Lifewire / Jonno Hill
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453719/17020" target="_top" id="1453719"><img src="//a.impactradius-go.com/display-ad/17020-1453719" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453719/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Corsair One Pro vs HP OMEN Obelisk**
 
  These systems are quite different, inside and out, but they represent roughly the same effort: building an affordable high-performance gaming desktop in a smaller-than-average form factor. HP’s approach to this is in the form of the H[P OMEN Obelisk](https://www.lifewire.com/hp-omen-obelisk-review-5072832) (see on[HP](https://store.hp.com/us/en/mdp/desktops/omen-875) ), which uses an Intel i9-9900k and 32GB of RAM in conjunction with an Nvidia RTX 2080 Super.
@@ -163,9 +194,6 @@ The powerful video editing program for your Windows PC</a>
 
  Corsair has done an admirable job putting together a pre-built PC that can satisfy everyone from the total novice to the PC-building veteran. The Corsair One Pro is beautifully designed, space-efficient, quiet, and cool. To top things off, they aren’t even charging an extraordinary premium over what the parts would cost if purchased individually. Buyers should be able to consider the Corsair One Pro with very few reservations.
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  One Pro
