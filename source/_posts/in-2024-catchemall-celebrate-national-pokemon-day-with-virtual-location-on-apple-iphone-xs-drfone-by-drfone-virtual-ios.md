@@ -1,7 +1,7 @@
 ---
 title: In 2024, CatchEmAll Celebrate National Pokémon Day with Virtual Location On Apple iPhone XS | Dr.fone
-date: 2024-07-12T05:11:52.182Z
-updated: 2024-07-13T05:11:52.182Z
+date: 2024-09-11T06:03:41.773Z
+updated: 2024-09-15T00:03:34.496Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -147,6 +147,13 @@ Now, your location has changed successfully, and you can see it on your screen. 
 
 ![location changed successfully](https://images.wondershare.com/drfone/guide/virtual-location-06.png)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137209/26400" target="_top" id="2137209">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137209" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137209/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Play Pokémon Go with a Joystick for iOS trainers
 
 Get better control over your [GPS movement on your Apple iPhone XS](https://drfone.wondershare.com/virtual-location/fake-gps-location-ios.html) by using the joystick feature of Dr.Fone - Virtual Location. This feature can be easily accessed on the main screen of the map. You can either access it from the toolbar located near the top right corner or the lower left side of the screen. 360-degree directions are available. You can move forward or backward by clicking the Up or Down arrows. Keyboard shortcuts W, A, S, and D can be used to control GPS movements, as can Up, Down, Left, and Right keys.
@@ -195,6 +202,19 @@ Also, called the Ninja Pokemon, Greninja is Dark/ Water-type pokemon. Some peopl
 It makes use of very sharp throwing stars to slice its enemies. It features Torrent ability.
 
 There are various weaknesses of this pokemon which include “Fighting”, “Grass”, “Electric”, “Bug”, and “Fairy”.Its worth mentioning here that Greninja pokemon is the final evolution of Froakie.
+
+<!-- affiliate ads begin -->
+<span id="1983573">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983573.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983573">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983573.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983573%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983573/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 2: What are the Strengths of Greninja in Pokemon?
 
@@ -262,6 +282,19 @@ Dratini undergoes two different evolutions
 
 The first un-evolved version is the serpentine Dratini that looks like a snake and continues shedding its skin as it grows. When you get to level 30, Dratini evolves into Dragonair, and at level 55 it becomes Dragonite
 
+<!-- affiliate ads begin -->
+<span id="1424529">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424529.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424529">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424529.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424529%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424529/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Dragonair
 
 This is an evolution of Dratini, which has a long scaly serpent-like body. It still retails the blue body with a white underside. The white bump on the forehead now becomes a white horn. The budding wings on the side of the head have now grown into full wings. It also carries three crystal orbs, with one on the neck and the other two on the tail.
@@ -292,6 +325,13 @@ If the Dratini nest migrates, it can still come back in the future. You should a
 
 Dratini nests will migrate on alternate Thursdays at midnight. The nest migrations are random, so make sure that you visit and hit them many times over the two weeks in order to get the most Dratini that you can.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139115/17108" target="_top" id="2139115">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139115" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139115/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 4: How to increase the possibility of earning Pokémon Go Dratini?
 
 As mentioned earlier, Dratini can be found in certain places around the world. If you live outside these regions, you cannot be able to get Dratini. The best way to go about getting Dratini in such cases is to virtually relocate your device. This means that you can take your device to Tokyo nest sites even if you live in Africa.
@@ -321,6 +361,13 @@ Looking at the map, you can now see the actual location of your device. If the c
 
 ![virtual location 03](https://images.wondershare.com/drfone/guide/virtual-location-03.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135373/19272" target="_top" id="2135373">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135373" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135373/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Now go to the top side of your computer screen and click on the third icon on the bar. This instantly puts you in “teleport” mode. Now enter the coordinates of the Dratini nest that you have located. Hit the “Go” button and your device will instantly be teleported to the coordinates you entered.
 
 The image below shows an example of coordinates entered for Rome, Italy.
@@ -343,18 +390,11 @@ This is how your location will be viewed on another iPhone device.
 
 ![virtual location 07](https://images.wondershare.com/drfone/guide/virtual-location-07.png)
 
-
-
 ## In conclusion
 
 Dratini is one of the most friendly but rare Pokémon to get. It can evolve from a small serpentine worm, into a might, good-hearted dragon. This is one of the Pokémon that people love to farm for trading and taking part in raids and such events.
 
 When you need to, you can teleport your device to an area where Dratini is popular using [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) (iOS). Use the Dratini nest maps to find Dratini, and then visit the area or teleport there.
-
-
-
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -368,9 +408,15 @@ When you need to, you can teleport your device to an area where Dratini is popul
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-enter-immersive-realms-top-10-youtubes-most-captivating-vr-videos/"><u>[New] In 2024, Enter Immersive Realms Top 10 YouTube's Most Captivating VR Videos</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-top-8-metaverse-headsets-and-glasses-to-dive-into-metaverse/"><u>2024 Approved Top 8 Metaverse Headsets and Glasses to Dive Into Metaverse</u></a></li>
+<li><a href="https://driver-download.techidaily.com/comprehensive-guide-to-downloading-and-updating-canons-mx-series-mx492-printer-drivers-on-windows-pc/"><u>Comprehensive Guide to Downloading and Updating Canon's MX Series (MX492) Printer Drivers on Windows PC</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/comprehensive-study-gopro-slr4-sliver-feature-review-for-2024/"><u>Comprehensive Study GoPro SLR4 Sliver Feature Review for 2024</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/how-to-get-and-use-pokemon-go-promo-codes-on-apple-iphone-8-plus-drfone-by-drfone-virtual-ios/"><u>How to Get and Use Pokemon Go Promo Codes On Apple iPhone 8 Plus | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-a-working-guide-for-pachirisu-pokemon-go-map-on-apple-iphone-8-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, A Working Guide For Pachirisu Pokemon Go Map On Apple iPhone 8 Plus | Dr.fone</u></a></li>
+<li><a href="https://fox-that.techidaily.com/resolving-iphone-qr-code-scanner-malfunctions-discover-these-10-quick-solutions/"><u>Resolving iPhone QR Code Scanner Malfunctions: Discover These 10 Quick Solutions</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/where-is-the-best-place-to-catch-dratini-on-apple-iphone-xs-drfone-by-drfone-virtual-ios/"><u>Where Is the Best Place to Catch Dratini On Apple iPhone XS | Dr.fone</u></a></li>
+</ul></div>
 
