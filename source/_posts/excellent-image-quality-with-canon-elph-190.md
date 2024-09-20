@@ -1,7 +1,7 @@
 ---
 title: Excellent Image Quality with Canon ELPH 190
-date: 2024-09-10T18:14:16.937Z
-updated: 2024-09-14T22:12:10.128Z
+date: 2024-09-14T08:21:44.714Z
+updated: 2024-09-20T08:26:24.941Z
 categories:
   - BestProducts
 description: This Article Describes Excellent Image Quality with Canon ELPH 190
@@ -81,6 +81,13 @@ Lifewire / Andrew Hayward
 
  The C302 has a little bit of accent lighting via a pair of blue lights beneath each fan, but it doesn’t emanate a significant glow, nor is it customizable in any way.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948937/19272" target="_top" id="1948937">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948937" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948937/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Setup Process: Plug and play
 
  The C302 is a purely plug-and-play accessory with no flashy perks or settings to deal with, nor any need for software on your computer. Simply place it under your laptop, adjust the feet and holding nubs as desired, and plug the USB port into your computer to power on the pad. The fans will then activate and run at the only available speed, and you can unplug it when you’re done or don’t need it anymore.
@@ -90,16 +97,10 @@ Lifewire / Andrew Hayward
 Lifewire / Andrew Hayward
 
 <!-- affiliate ads begin -->
-<span id="1982461">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982461.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982461">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982461.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982461%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982461/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2151893/7443" target="_top" id="2151893">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151893" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151893/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Performance: It makes a difference
@@ -130,13 +131,6 @@ Lifewire / Andrew Hayward
 
 Lifewire / Andrew Hayward
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130870/7443" target="_top" id="2130870">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130870" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130870/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## TopMate C302 vs. Kootek Laptop Cooling Pad
 
  At $27, the Kootek Laptop Cooling Pad is a bit more robust. It gives you the ability to power the fans on and off—either the one large fan, or the group of four smaller fans around it—plus it runs a little quieter in use. The unit feels more durable overall, although the Kootek’s height adjustment system feels clunky, as you slide a hanging metal bar into plastic ridges to keep it upright. Kootek’s pad is larger and designed for laptops as large at 17 inches, but if you don’t need the extra size, the TopMate C302 gets the job done for less cash.
@@ -154,10 +148,10 @@ Lifewire / Andrew Hayward
 * [North Face Pivoter Backpack](https://www.lifewire.com/north-face-pivoter-backpack-review-4690198)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137411/7443" target="_top" id="2137411">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137411" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135413/19272" target="_top" id="2135413">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135413" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135413/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specs
@@ -188,21 +182,17 @@ Lifewire / Andrew Hayward
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-pro-tips-on-selecting-the-best-mac-snipers/"><u>[New] 2024 Approved Pro Tips on Selecting the Best Mac Snipers</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-smooth-media-transfer-twitvideos-to-whatsapp-guide/"><u>[New] Smooth Media Transfer TwitVideos to WhatsApp Guide</u></a></li>
-<li><a href="https://some-skills.techidaily.com/new-unparalleled-pc-sound-control/"><u>[New] Unparalleled PC Sound Control</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-swift-solutions-for-recording-video-talks-for-2024/"><u>[Updated] Swift Solutions for Recording Video Talks for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/approved-overcoming-the-most-frequent-youtube-short-hurdles/"><u>2024 Approved Overcoming the Most Frequent YouTube Short Hurdles</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/breathe-new-life-into-your-ig-story-with-simple-animated-text-tips-for-2024/"><u>Breathe New Life Into Your IG Story with Simple Animated Text Tips for 2024</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/how-and-where-to-find-a-shiny-stone-pokemon-for-apple-iphone-se-drfone-by-drfone-virtual-ios/"><u>How and Where to Find a Shiny Stone Pokémon For Apple iPhone SE? | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/how-to-come-up-with-the-best-pokemon-team-on-apple-iphone-13-pro-drfone-by-drfone-virtual-ios/"><u>How to Come up With the Best Pokemon Team On Apple iPhone 13 Pro? | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-apple-iphone-6s-drfone-by-drfone-virtual-ios/"><u>In 2024, How PGSharp Save You from Ban While Spoofing Pokemon Go On Apple iPhone 6s? | Dr.fone</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/in-2024-logitech-webcam-filming-tips-for-clear-visuals-and-smooth-sessions/"><u>In 2024, Logitech Webcam Filming Tips for Clear Visuals and Smooth Sessions</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-most-asked-questions-about-pokemon-go-battle-league-rewards-on-apple-iphone-15-drfone-by-drfone-virtual-ios/"><u>In 2024, Most Asked Questions about Pokemon Go Battle League Rewards On Apple iPhone 15 | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-apple-iphone-13-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, Unova Stone Pokémon Go Evolution List and How Catch Them For Apple iPhone 13 Pro Max | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-apple-iphone-15-pro-drfone-by-drfone-virtual-ios/"><u>Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Apple iPhone 15 Pro | Dr.fone</u></a></li>
-<li><a href="https://program-issues.techidaily.com/valheims-persistent-pc-issues-solved-avoid-game-crashes-effortlessly/"><u>Valheim's Persistent PC Issues Solved: Avoid Game Crashes Effortlessly</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/why-is-ipogo-not-working-on-apple-iphone-xr-fixed-drfone-by-drfone-virtual-ios/"><u>Why is iPogo not working On Apple iPhone XR? Fixed | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719145296408-zucks-farming-ventures-crypto-inspired-goat-name-revealed/"><u>Zuck's Farming Ventures: Crypto-Inspired Goat Name Revealed</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-beat-the-purchase-free-fb-playlists-download/"><u>[Updated] 2024 Approved Beat the Purchase Free FB Playlists Download</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-resonant-revelry-auditory-additions-to-whatsapp-statues/"><u>2024 Approved Resonant Revelry Auditory Additions to WhatsApp Statues</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/download-logitech-brio-webcam-software-compatible-with-windows-1087/"><u>Download Logitech Brio Webcam Software Compatible with Windows 10/8/7</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-apple-iphone-14-plus-drfone-by-drfone-virtual-ios/"><u>Here are Some Pro Tips for Pokemon Go PvP Battles On Apple iPhone 14 Plus | Dr.fone</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-aerial-adventures-with-husqvarnas-x4-fpv-quadcopter/"><u>In 2024, Aerial Adventures with Husqvarna's X4 FPV Quadcopter</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-catch-or-beat-sleeping-snorlax-on-pokemon-go-for-apple-iphone-se-2020-drfone-by-drfone-virtual-ios/"><u>In 2024, Catch or Beat Sleeping Snorlax on Pokemon Go For Apple iPhone SE (2020) | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-which-pokemon-can-evolve-with-a-moon-stone-for-apple-iphone-12-drfone-by-drfone-virtual-ios/"><u>In 2024, Which Pokémon can Evolve with a Moon Stone For Apple iPhone 12? | Dr.fone</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/master-the-conversion-avi-files-become-gifs-using-filmora-software-windowsmac/"><u>Master the Conversion AVI Files Become GIFs Using Filmora Software (Windows/Mac)</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/the-most-useful-tips-for-pokemon-go-ultra-league-on-apple-iphone-14-pro-drfone-by-drfone-virtual-ios/"><u>The Most Useful Tips for Pokemon Go Ultra League On Apple iPhone 14 Pro | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/the-ultimate-guide-to-oneplus-11r-pattern-lock-screen-everything-you-need-to-know-by-drfone-android/"><u>The Ultimate Guide to OnePlus 11R Pattern Lock Screen Everything You Need to Know</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-10-telegram-spy-tools-on-zte-nubia-flip-5g-for-parents-drfone-by-drfone-virtual-android/"><u>Top 10 Telegram Spy Tools On ZTE Nubia Flip 5G for Parents | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-apple-iphone-8-drfone-by-drfone-virtual-ios/"><u>Will Pokémon Go Ban the Account if You Use PGSharp On Apple iPhone 8 | Dr.fone</u></a></li>
 </ul></div>
 

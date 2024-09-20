@@ -1,7 +1,7 @@
 ---
 title: Why cant I install the ipogo On Apple iPhone 11 Pro Max | Dr.fone
-date: 2024-09-09T21:03:18.314Z
-updated: 2024-09-14T23:09:33.664Z
+date: 2024-09-14T19:57:04.127Z
+updated: 2024-09-19T18:17:17.562Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -103,13 +103,6 @@ You now need to get your iPgone plugged with PC via a USB cord. Once you do this
 
 ![virtual location 01](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135418/19272" target="_top" id="2135418">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135418" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135418/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 3: Check Location Accuracy**
 
 A new window will appear indicating the actual location on the map. If the location does not appear to be accurate hit on “Centre on” icon at the lower right part to get an accurate location.
@@ -121,19 +114,6 @@ A new window will appear indicating the actual location on the map. If the locat
 By clicking on the Corresponding icon in the upper right activates “Teleport Mode”. Now mention the place you want to teleport in the upper left field. Click “Go” (consider a Rome in Italy as an example)
 
 ![virtual location 04](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
-
-<!-- affiliate ads begin -->
-<span id="1424531">
-					<video width="864" height="NaN" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424531.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424531">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424531.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424531%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424531/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 5: Start Spoof**
 
@@ -271,6 +251,13 @@ The cooldown time is proportional to the distance covered by the player. So, whe
 
 The waiting period for a soft ban is around 12 hours. After this time, if you can try and catch a Pokémon, it means the soft ban is over.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139117/17108" target="_top" id="2139117">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139117" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139117/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3\. Actions that Do trigger cooldown?
 
 The main reasons for a soft ban are GPS spoofing, changing your location to a distant place in a short time, and traveling too fast to combat playing while driving. Sharing accounts is another reason.
@@ -283,13 +270,6 @@ So, what action of a player can trigger a cooldown? Let us list them here for qu
 - When you feed a gym defender on a screen radar.
 - Gym battles.
 - When a Pokémon flees, if you try to catch it.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134236/18498" target="_top" id="2134236">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134236" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134236/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 4\. Actions that DO NOT trigger cooldown?
 
@@ -320,15 +300,22 @@ On the other hand, some actions that do not trigger a cooldown in Pokémon Go;
 - Finding and catching certain Pokémon from s Smeargle and Party Hat Pikachu
 - Dropping a ball
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100534/7443" target="_top" id="2100534">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100534" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100534/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 5\. What happens if you break the cooldown of Pokémon Go?
 
 When you break the cooldown Pokémon go, you are bound to face a soft ban. How do you know if you're soft-banned Pokémon go? If you attempt to take any action in the game and receive a "Try Again Later" error message, it means you are soft banned.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115911/19272" target="_top" id="2115911">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115911" border="0" alt="https://techidaily.com" width="125" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2111964/7443" target="_top" id="2111964">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111964" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115911/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111964/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 4: The Safest Way to Teleport in Pokémon GO Without Getting Banned?
@@ -343,6 +330,13 @@ It is a very simple-to-use application and provides robust results if you follow
 - Always log off from Pokémon before teleporting so the game does not detect your actions. For logging out, go to settings in your game by clicking the Pokeball in the center of the screen. Scroll down to locate and click the logout button.
 
 Dr.Fone - Virtual Location (iOS/Android) is an easy and reliable teleporting method for Android and iOS. So let us visit how to teleport using this software step by step.
+
+<!-- affiliate ads begin -->
+<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1584040/17916" target="_top" id="1584040">
+  <img src="//a.impactradius-go.com/display-ad/17916-1584040" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1584040/17916" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 5: How to Teleport in Pokémon Go Using Dr. Fone - Virtual Location
 
@@ -362,13 +356,6 @@ In the new screen, navigate to the teleport option on the menu in the top-right 
 
 ![virtual-location](https://images.wondershare.com/drfone/guide/virtual-location-03.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123738/7443" target="_top" id="2123738">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123738" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123738/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Now, you can choose the location by entering its name in the search bar or coordinates if you want to be more precise. Then, you can see the desired location on the map on the screen.
 
 ![virtual-location](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
@@ -378,6 +365,13 @@ Now, you can choose the location by entering its name in the search bar or coord
 When you reach the target location and move your pin, click the "Move Here" button.
 
 ![virtual-location](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137209/26400" target="_top" id="2137209">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137209" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137209/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Voila! You have teleported your location to the desired place.
 
@@ -403,19 +397,18 @@ Pokémon Go is a viral and fantastic game. However, sometimes players get into t
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-in-2024-boost-sound-level-for-twitters-quiet-vids/"><u>[New] In 2024, Boost Sound Level for Twitter's Quiet Vids</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-in-2024-maximize-visual-impact-smart-zooming-tricks-in-snapchat/"><u>[New] In 2024, Maximize Visual Impact Smart Zooming Tricks in Snapchat</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-2024-approved-visualize-vitality-vent-laughter-kapwings-design-suite/"><u>[Updated] 2024 Approved Visualize Vitality, Vent Laughter - Kapwing’s Design Suite</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-which-screen-recorder-excels-obs-or-fraps/"><u>[Updated] In 2024, Which Screen Recorder Excels OBS or Fraps?</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-apple-iphone-6-drfone-by-drfone-virtual-ios/"><u>15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Apple iPhone 6 | Dr.fone</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/3-must-know-methods-to-record-on-your-ipad/"><u>3 Must-Know Methods to Record on Your iPad</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/how-to-come-up-with-the-best-pokemon-team-on-apple-iphone-6-drfone-by-drfone-virtual-ios/"><u>How to Come up With the Best Pokemon Team On Apple iPhone 6? | Dr.fone</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-find-peace-and-power-the-10-greatest-yoga-channels-online/"><u>In 2024, Find Peace & Power The 10 Greatest Yoga Channels Online</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-to-use-pokemon-go-joystick-on-apple-iphone-15-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, How to use Pokemon Go Joystick on Apple iPhone 15 Pro? | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-the-magnificent-art-of-pokemon-go-streaming-on-honor-100-pro-drfone-by-drfone-virtual-android/"><u>In 2024, The Magnificent Art of Pokemon Go Streaming On Honor 100 Pro? | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/mastering-login-safety-implementing-fbs-authenticator-method/"><u>Mastering Login Safety: Implementing FB's Authenticator Method</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/silencing-the-shimmer-on-your-acer-monitor/"><u>Silencing the Shimmer on Your Acer Monitor</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/ways-to-trade-pokemon-go-from-far-away-on-apple-iphone-x-drfone-by-drfone-virtual-ios/"><u>Ways to trade pokemon go from far away On Apple iPhone X? | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/where-is-the-best-place-to-catch-dratini-on-apple-iphone-15-drfone-by-drfone-virtual-ios/"><u>Where Is the Best Place to Catch Dratini On Apple iPhone 15 | Dr.fone</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-android-and-ios-leaderboard-of-ps2-emulation-software-for-2024/"><u>[New] Android & iOS Leaderboard of PS2 Emulation Software for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-facebook-video-acquisition-made-easy-best-android-downloader-apps-ranked-for-2024/"><u>[New] Facebook Video Acquisition Made Easy Best Android Downloader Apps Ranked for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-in-2024-hands-free-tricks-capturing-gotomeetings-on-the-fly/"><u>[Updated] In 2024, Hands-Free Tricks Capturing GoToMeetings on the Fly</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/11-best-pokemon-go-spoofers-for-gps-spoofing-on-apple-iphone-11-pro-drfone-by-drfone-virtual-ios/"><u>11 Best Pokemon Go Spoofers for GPS Spoofing on Apple iPhone 11 Pro | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/how-does-the-stardust-trade-cost-in-pokemon-go-on-apple-iphone-12-pro-drfone-by-drfone-virtual-ios/"><u>How does the stardust trade cost In pokemon go On Apple iPhone 12 Pro? | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-apple-iphone-13-withwithout-sim-card-by-drfone-ios/"><u>How to Unlock Apple iPhone 13 with/without SIM Card</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-apple-iphone-15-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, 15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Apple iPhone 15 Pro | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-ipogo-will-be-the-new-ispoofer-on-apple-iphone-15-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, iPogo will be the new iSpoofer On Apple iPhone 15 Plus? | Dr.fone</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ize-exposure-the-ultimate-youtube-schedule-for-2024/"><u>Maximize Exposure The Ultimate YouTube Schedule for 2024</u></a></li>
+<li><a href="https://network-issues.techidaily.com/mitigating-phosphor-flash-interruptions/"><u>Mitigating Phosphor Flash Interruptions</u></a></li>
+<li><a href="https://win-blog.techidaily.com/smooth-sailing-now-outriders-corrects-distorted-and-fuzzy-images/"><u>Smooth Sailing Now: Outriders Corrects Distorted and Fuzzy Images</u></a></li>
+<li><a href="https://driver-error.techidaily.com/1721102392299-troubleshooting-dolby-atmos-sound-on-pc-solved/"><u>Troubleshooting Dolby Atmos Sound on PC - Solved</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/what-pokemon-evolve-with-a-dawn-stone-for-apple-iphone-15-plus-drfone-by-drfone-virtual-ios/"><u>What Pokémon Evolve with A Dawn Stone For Apple iPhone 15 Plus? | Dr.fone</u></a></li>
 </ul></div>
 

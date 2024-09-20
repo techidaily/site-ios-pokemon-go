@@ -1,7 +1,7 @@
 ---
 title: "Troubleshooting Call of Duty: WWII Issue - Error 4128 Solved!"
-date: 2024-09-08T04:50:55.921Z
-updated: 2024-09-14T16:17:28.527Z
+date: 2024-09-19T07:26:24.389Z
+updated: 2024-09-19T20:48:31.748Z
 tags:
   - win11
   - win10
@@ -225,6 +225,13 @@ OR
 
 Hopefully, your game works correctly now. Enjoy!
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037335/7443" target="_top" id="2037335">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037335" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037335/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Fixes for Xbox One Players
 
  If you’re gaming with your Xbox One and the error code 4128 appears while you’re gaming, check the fixes below.
@@ -258,6 +265,13 @@ Hopefully, your game works correctly now. Enjoy!
 **1)** On the home screen, press the**Xbox** button to open the guide.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/08/xbox-one-controller-2206687_1920-1024x671.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115937/19272" target="_top" id="2115937">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115937" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115937/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **2)** Select**Settings** .
 
@@ -293,16 +307,16 @@ Hopefully, your game works correctly now. Enjoy!
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/08/image-94.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135395/19272" target="_top" id="2135395">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135395" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135395/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **5)** Select**Reset console** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/08/image-97.png)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137226/26400" target="_top" id="2137226">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137226" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137226/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **6)** Select**Reset and keep my games & apps** .
 
@@ -318,6 +332,13 @@ Hopefully, your game works correctly now. Enjoy!
 
 ![This image has an empty alt attribute; its file name is xbox-one-controller-2206687_1920-1024x671.jpg](https://images.drivereasy.com/wp-content/uploads/2019/08/xbox-one-controller-2206687_1920-1024x671.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144309/7443" target="_top" id="2144309">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144309" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144309/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **2)** Select**My games & apps** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/08/image-95.png)
@@ -330,29 +351,9 @@ Hopefully, your game works correctly now. Enjoy!
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/08/image-107-1024x439.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135352/19272" target="_top" id="2135352">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135352" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135352/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **5)** Select**Uninstall** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/08/image-108.png)
-
-<!-- affiliate ads begin -->
-<span id="1982499">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982499.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982499">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982499.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982499%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982499/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **6)** After the game is uninstalled, insert**the game disc** into the drive to download and install Call of Duty: WW2.
 
@@ -399,33 +400,20 @@ Hope one of the fixes above worked for you.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/05/image-1080.png)
 
-<!-- affiliate ads begin -->
-<span id="1424528">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424528.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424528">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424528.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424528%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424528/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **2)** Select **Settings** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/05/image-1077-1024x217.png)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137212/26400" target="_top" id="2137212">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137212" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137212/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **3)** Select **System Software Update,** and then follow the on-screen instructions to update the system software for your PS4.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/05/image-1076.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049364/7443" target="_top" id="2049364">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049364" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049364/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **4)** Restart your game to see if this resolved your issues.
 
@@ -483,18 +471,20 @@ Hope one of the fixes above worked for you.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-joyful-journeys-in-cinema-summers-top-10-for-families/"><u>[Updated] 2024 Approved Joyful Journeys in Cinema Summer's Top 10 for Families</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-elite-capture-gear-the-best-recording-for-windows-11-for-2024/"><u>[Updated] Elite Capture Gear The Best Recording for Windows 11 for 2024</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-pinnacle-studio-25-review-2023/"><u>[Updated] Pinnacle Studio 25 Review 2023</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-ultimate-guide-top-screen-capture-tools-roundup-for-2024/"><u>[Updated] Ultimate Guide Top Screen Capture Tools Roundup for 2024</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/2024-approved-how-to-make-money-from-youtube-shorts-requirements-and-earning-potential/"><u>2024 Approved How to Make Money From YouTube Shorts Requirements and Earning Potential</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/from-gifs-to-videos-in-a-snap-top-online-platforms-for-content-upgraders/"><u>From GIFs to Videos in a Snap Top Online Platforms for Content Upgraders</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/full-guide-to-catch-100-iv-pokemon-using-a-map-on-apple-iphone-xs-drfone-by-drfone-virtual-ios/"><u>Full Guide to Catch 100 IV Pokémon Using a Map On Apple iPhone XS | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-apple-iphone-xs-max-drfone-by-drfone-virtual-ios/"><u>How PGSharp Save You from Ban While Spoofing Pokemon Go On Apple iPhone XS Max? | Dr.fone</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/how-to-activate-auto-hdr-setting-in-windows-11/"><u>How to Activate Auto HDR Setting in Windows 11</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/how-to-fix-cyberpunk-2077s-notorious-black-screen-problem-solutions-unveiled/"><u>How to Fix Cyberpunk 2077'S Notorious Black Screen Problem - Solutions Unveiled!</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-apple-iphone-se-2020-drfone-by-drfone-virtual-ios/"><u>In 2024, 15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Apple iPhone SE (2020) | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/is-mega-mewtwo-the-strongest-pokemon-on-apple-iphone-7-drfone-by-drfone-virtual-ios/"><u>Is Mega Mewtwo The Strongest Pokémon On Apple iPhone 7? | Dr.fone</u></a></li>
-<li><a href="https://audio-editing.techidaily.com/updated-mastering-silence-disabling-sound-in-videos/"><u>Updated Mastering Silence Disabling Sound in Videos</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-digital-broadcast-face-off-facebook-vs-youtube-and-tweetstreams/"><u>[New] 2024 Approved Digital Broadcast Face-Off FACEbook Vs. YOUTube & TweetStreams</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-how-to-shun-crossplay-in-apex-legends-your-guide-to-platform-choices/"><u>[Updated] How to Shun Crossplay in Apex Legends - Your Guide to Platform Choices</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-kinemaster-tutorial-seamless-integration-of-green-screen-techniques/"><u>[Updated] Kinemaster Tutorial Seamless Integration of Green Screen Techniques</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/a-comprehensive-guide-to-mastering-ipogo-for-pokemon-go-on-apple-iphone-7-drfone-by-drfone-virtual-ios/"><u>A Comprehensive Guide to Mastering iPogo for Pokémon GO On Apple iPhone 7 | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/a-detailed-pokemon-go-pvp-tier-list-to-make-you-a-pro-trainer-for-apple-iphone-14-drfone-by-drfone-virtual-ios/"><u>A Detailed Pokemon Go PvP Tier List to Make you a Pro Trainer For Apple iPhone 14 | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-apple-iphone-x-drfone-by-drfone-virtual-ios/"><u>In 2024, 4 solution to get rid of pokemon fail to detect location On Apple iPhone X | Dr.fone</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/in-2024-a-novices-choice-ideal-game-recording-and-editing-tools/"><u>In 2024, A Novice’s Choice Ideal Game Recording & Editing Tools</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-here-are-different-ways-to-find-pokemon-go-trainer-codes-to-add-to-your-account-on-apple-iphone-8-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, Here are Different Ways to Find Pokemon Go Trainer Codes to Add to Your Account On Apple iPhone 8 Plus | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-heres-everything-you-should-know-about-pokemon-stops-in-detail-on-apple-iphone-12-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, Heres Everything You Should Know About Pokemon Stops in Detail On Apple iPhone 12 Pro | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-to-fix-pokemon-go-route-not-working-on-apple-iphone-7-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Fix Pokemon Go Route Not Working On Apple iPhone 7? | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-top-15-augmented-reality-games-like-pokemon-go-to-play-on-apple-iphone-se-2022-drfone-by-drfone-virtual-ios/"><u>In 2024, Top 15 Augmented Reality Games Like Pokémon GO To Play On Apple iPhone SE (2022) | Dr.fone</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/macbook-revolution-the-rumored-touch-display-edition-with-price-insights-release-schedule-and-tech-specs/"><u>MacBook Revolution: The Rumored Touch Display Edition with Price Insights, Release Schedule & Tech Specs</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/mastering-audio-configuration-setting-up-unknown-speakers-in-windows-11/"><u>Mastering Audio Configuration: Setting Up Unknown Speakers in Windows 11</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/mastering-the-use-of-telegram-in-a-step-by-step-approach-for-2024/"><u>Mastering the Use of Telegram in a Step-by-Step Approach for 2024</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/resolving-not-charging-despite-being-connected-your-ultimate-guide-for-windows-surfaces/"><u>Resolving 'Not Charging Despite Being Connected', Your Ultimate Guide for Windows Surfaces</u></a></li>
 </ul></div>
 

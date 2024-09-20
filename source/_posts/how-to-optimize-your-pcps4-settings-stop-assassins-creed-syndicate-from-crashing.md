@@ -1,7 +1,7 @@
 ---
 title: "How to Optimize Your PC/PS4 Settings: Stop Assassin's Creed Syndicate From Crashing"
-date: 2024-09-11T05:54:16.345Z
-updated: 2024-09-14T17:45:08.118Z
+date: 2024-09-17T16:28:26.754Z
+updated: 2024-09-19T21:59:05.361Z
 tags:
   - win11
   - win10
@@ -44,10 +44,10 @@ thumbnail: https://thmb.techidaily.com/69f2f1d0be799b84094434c96c9ff028c4a80dbd7
  Assassin’s Creed Odyssey still crashes? Don’t worry. Try the next solution.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2128842/7443" target="_top" id="2128842">
-  <img src="//a.impactradius-go.com/display-ad/7443-2128842" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134237/18498" target="_top" id="2134237">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134237" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2128842/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134237/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Fix 3: Update available drivers
@@ -76,10 +76,10 @@ thumbnail: https://thmb.techidaily.com/69f2f1d0be799b84094434c96c9ff028c4a80dbd7
 ![](https://images.drivereasy.com/wp-content/uploads/2019/04/image-71.png)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120863/26400?prodsku=Mercury" target="_top" id="2120863">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120863" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137215/26400" target="_top" id="2137215">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137215" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120863/26400?prodsku=Mercury" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137215/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 4) Restart your computer to take effect.
@@ -88,13 +88,6 @@ Now launch Assassin’s Creed Odyssey and see if it stops crashing.
 
  Still no luck? Don’t give up hope. There is something else you can do.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135368/19272" target="_top" id="2135368">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135368" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135368/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Fix 4: Modify your in-game settings
 
  Many Assassin’s Creed Odyssey players have reported that configuring the settings in the game could help fix the crashing issue, such as switching to the other window mode or changing the graphics settings. So you can try this:
@@ -102,6 +95,13 @@ Now launch Assassin’s Creed Odyssey and see if it stops crashing.
  1) Open Assassin’s Creed Odyssey Settings (the**Options** tab).
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/04/image-72.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144288/7443" target="_top" id="2144288">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144288" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144288/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  2) Click the**Display** tab.
 
@@ -113,13 +113,6 @@ Now launch Assassin’s Creed Odyssey and see if it stops crashing.
  If you’re using**Borderless** mode, change it to**Fullscreen** mode.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/04/image-74.png)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2121332/18498" target="_top" id="2121332">
-  <img src="//a.impactradius-go.com/display-ad/18498-2121332" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121332/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  4) Turn off**VSync** .
 
@@ -135,24 +128,24 @@ Now launch Assassin’s Creed Odyssey and see if it stops crashing.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/04/image-76.png)
 
-<!-- affiliate ads begin -->
-<span id="1983588">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983588.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983588">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983588.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983588%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983588/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![](https://images.drivereasy.com/wp-content/uploads/2019/04/image-77.png)
 
 6) Restart your computer.
 
 Open Assassin’s Creed Odyssey and see if it works.
+
+<!-- affiliate ads begin -->
+<span id="1977023">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977023.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977023">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977023.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977023%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977023/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Fix 5: Verify Integrity of Game Files
 
@@ -175,6 +168,13 @@ Open Assassin’s Creed Odyssey and see if it works.
  5) Steam will check your game files and fix any detected problems. Follow the on-screen instructions to finish the process.
 
  6) Restart Steam and open Assassin’s Creed Odyssey and see if it works.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135375/19272" target="_top" id="2135375">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135375" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135375/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Why is Assassin’s Creed Odyssey crashing?
 
@@ -203,14 +203,20 @@ Open Assassin’s Creed Odyssey and see if it works.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-cutting-confinement-with-comedy-best-facebook-incarceration-laughs-of-today/"><u>[New] 2024 Approved Cutting Confinement with Comedy Best Facebook Incarceration Laughs of Today</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/a-comprehensive-guide-to-diagnosing-and-repairing-your-logitech-g430-microphone-problems/"><u>A Comprehensive Guide to Diagnosing and Repairing Your Logitech G430 Microphone Problems</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/how-to-fix-pokemon-go-route-not-working-on-apple-iphone-13-pro-max-drfone-by-drfone-virtual-ios/"><u>How to Fix Pokemon Go Route Not Working On Apple iPhone 13 Pro Max? | Dr.fone</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/immediate-flagging-of-insta-de-following-events-for-2024/"><u>Immediate Flagging of Insta De-Following Events for 2024</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-full-tutorial-to-bypass-your-samsung-galaxy-s23-ultra-face-lock-by-drfone-android/"><u>In 2024, Full Tutorial to Bypass Your Samsung Galaxy S23 Ultra Face Lock?</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-can-i-create-my-pokemon-overworld-maps-on-apple-iphone-15-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, How Can I Create My Pokemon Overworld Maps On Apple iPhone 15 Plus? | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/is-mega-mewtwo-the-strongest-pokemon-on-apple-iphone-13-pro-max-drfone-by-drfone-virtual-ios/"><u>Is Mega Mewtwo The Strongest Pokémon On Apple iPhone 13 Pro Max? | Dr.fone</u></a></li>
-<li><a href="https://win-dash.techidaily.com/solutions-for-troubleshooting-and-resolving-hp-officejet-pro-6978-printer-drivers/"><u>Solutions for Troubleshooting and Resolving HP Officejet Pro 6978 Printer Drivers</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/why-does-the-pokemon-go-battle-league-not-available-on-apple-iphone-8-plus-drfone-by-drfone-virtual-ios/"><u>Why does the pokemon go battle league not available On Apple iPhone 8 Plus | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-adding-subtitles-a-step-by-step-youtube-video-approach/"><u>[New] 2024 Approved Adding Subtitles A Step-by-Step YouTube Video Approach</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-decoding-the-features-that-make-youtube-premium-special/"><u>[New] 2024 Approved Decoding the Features That Make YouTube Premium Special</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-seamless-video-production-a-guide-to-snapchat-multisnaps/"><u>[Updated] 2024 Approved Seamless Video Production A Guide to Snapchat Multisnaps</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-apple-iphone-xs-drfone-by-drfone-virtual-ios/"><u>9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Apple iPhone XS | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/a-complete-rundown-reels-vs-stories-on-instagram/"><u>A Complete Rundown Reels vs Stories on Instagram</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-wiped-call-history-on-lava-agni-2-5g-by-fonelab-android-recover-call-logs/"><u>How to restore wiped call history on Lava Agni 2 5G?</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-simulate-gps-movement-in-ar-games-on-itel-p40-drfone-by-drfone-virtual-android/"><u>How to Simulate GPS Movement in AR games On Itel P40? | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/how-to-use-pokemon-emerald-master-ball-cheat-on-apple-iphone-12-mini-drfone-by-drfone-virtual-ios/"><u>How to Use Pokémon Emerald Master Ball Cheat On Apple iPhone 12 mini | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-a-detailed-pokemon-go-pvp-tier-list-to-make-you-a-pro-trainer-for-apple-iphone-14-drfone-by-drfone-virtual-ios/"><u>In 2024, A Detailed Pokemon Go PvP Tier List to Make you a Pro Trainer For Apple iPhone 14 | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-catch-or-beat-sleeping-snorlax-on-pokemon-go-for-apple-iphone-15-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, Catch or Beat Sleeping Snorlax on Pokemon Go For Apple iPhone 15 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-catchemall-celebrate-national-pokemon-day-with-virtual-location-on-apple-iphone-13-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, CatchEmAll Celebrate National Pokémon Day with Virtual Location On Apple iPhone 13 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-quick-clicks-to-creative-mosaics-with-google-imagery/"><u>In 2024, Quick Clicks to Creative Mosaics with Google Imagery</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/master-your-image-editing-game-with-these-top-1-photographic-repair-applications-for-desktop-systems/"><u>Master Your Image Editing Game with These Top 1 # Photographic Repair Applications for Desktop Systems</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/mastering-ai-independently-explore-15-costless-flexible-learning-opportunities-by-lifewire/"><u>Mastering AI Independently? Explore 15 Costless, Flexible Learning Opportunities by Lifewire</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/pokemon-go-no-gps-signal-heres-every-possible-solution-on-apple-iphone-7-plus-drfone-by-drfone-virtual-ios/"><u>Pokemon Go No GPS Signal? Heres Every Possible Solution On Apple iPhone 7 Plus | Dr.fone</u></a></li>
 </ul></div>
 

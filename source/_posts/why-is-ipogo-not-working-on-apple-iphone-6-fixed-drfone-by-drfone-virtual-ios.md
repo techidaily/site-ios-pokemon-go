@@ -1,7 +1,7 @@
 ---
 title: Why is iPogo not working On Apple iPhone 6? Fixed | Dr.fone
-date: 2024-09-08T07:08:41.921Z
-updated: 2024-09-14T18:04:19.003Z
+date: 2024-09-14T07:15:28.332Z
+updated: 2024-09-20T02:44:51.097Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -86,10 +86,10 @@ Now, grab your Apple iPhone 6 and get it connected with the PC using the lighten
 ![virtual location 01](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014859/22899" target="_top" id="2014859">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014859" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137211/26400" target="_top" id="2137211">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137211" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014859/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137211/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Step 3: Check Location**
@@ -97,13 +97,6 @@ Now, grab your Apple iPhone 6 and get it connected with the PC using the lighten
 You will notice a map on the screen now. As it comes, you got to click on ‘Centre On’ to accurately pin point the GPS to your location.
 
 ![virtual location 03](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120861/26400?prodsku=Saturn" target="_top" id="2120861">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120861" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120861/26400?prodsku=Saturn" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 4: Enable Teleport Mode**
 
@@ -116,13 +109,6 @@ Now, you are required to turn on the ‘teleport mode’. To do this, simply cli
 Once you enter the location, a pop-up will appear. Here, you can see the distance of the location you have chosen. Click on ‘Move here’ in the pop up box and you are good to go.
 
 ![virtual location 05](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139108/17108" target="_top" id="2139108">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139108" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139108/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Now, the location is changed. You can now open any location based app on your Apple iPhone 6 and check the location. It will show the location you have selected.
 
@@ -142,30 +128,24 @@ A soft ban is a restriction to discourage people from playing Pokémon Go while 
 
 What does cool down mean? Cooldown is the time a player has to wait after completing the in-game action. It is calculated from the distance you travel between the triggering activities. It depends on distance travel, and the time for cooldown is also high when the distance is high.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137395/7443" target="_top" id="2137395">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137395" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137395/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: What Happens When You Get a Soft Ban?
 
 When you get a soft ban, its duration is about 12 hours. In this period, any Pokémon you catch during the ban period will leave even if you use any ball type or berries. It also restricts you from winning gym fights and looting Pokéstops. You can still keep playing Pokémon, though, as it is the most lenient form of ban.
 
-<!-- affiliate ads begin -->
-<span id="1975658">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975658.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975658">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975658.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975658%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975658/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 3: Cooldown Rules and How to Avoid Soft Ban in Pokémon Go?
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135410/19272" target="_top" id="2135410">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135410" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2075462/7443" target="_top" id="2075462">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075462" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135410/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075462/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 1\. How long does it take for a Pokémon to Cool Down?
@@ -293,6 +273,13 @@ Pokémon Go is a viral and fantastic game. However, sometimes players get into t
 
 With the introduction of Pokémon Red and Blue and the following cartoon series, Charmander, Bulbasaur, and Squirtle to name a few have become cultural icons. However, there’s no Pokémon that can match the enthusiasm that fans of the series get on seeing Mewtwo. In this post, we’re going to talk about Mega Mewtwo X & Y. So, read on to find out how to evolve into a shiny version of Mewtwo and tips to get this Pokémon.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918703/19272" target="_top" id="1918703">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918703" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918703/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 1: What Is Mega Mewtwo In Pokémon?
 
 Mewtwo is a Psychic-type Legendary Pokémon that’s introduced in Gen 1. Though it is not known for evolving into or from any other Pokémon, Mewtwo is capable of Mega Evolving into different forms known as –
@@ -300,6 +287,13 @@ Mewtwo is a Psychic-type Legendary Pokémon that’s introduced in Gen 1. Though
 Mega Mewtwo X from Mewtwonite X  
 Mega Mewtwo Y from Mewtwonite Y  
 Mega Mewtwo X is bulkier and bigger than its normal state. On the other hand, Mega Mewtwo Y is lighter and smaller than its normal state.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087239/19272" target="_top" id="2087239">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087239" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087239/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 2: How to Evolve Into Shiny Mega Mewtwo?
 
@@ -361,18 +355,16 @@ That’s all on Mewtwo Mega Evolution. Yes, Mega Mewtwo is the strongest Pokémo
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-files.techidaily.com/new-2024-approved-highest-watched-online-clips-list/"><u>[New] 2024 Approved Highest-Watched Online Clips List</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-drone-category-definitions/"><u>[New] Drone Category Definitions</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/new-exploring-top-ios-psp-emulation-tools-for-gamers/"><u>[New] Exploring Top iOS PSP Emulation Tools for Gamers</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-elevate-your-sims-gaming-with-recording-expertise/"><u>[Updated] 2024 Approved Elevate Your Sims Gaming with Recording Expertise</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/all-you-need-to-know-about-mega-greninja-for-apple-iphone-8-drfone-by-drfone-virtual-ios/"><u>All You Need To Know About Mega Greninja For Apple iPhone 8 | Dr.fone</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/discover-the-ideal-iphones-email-solutions-for-24-curated-selection/"><u>Discover the Ideal iPhones Email Solutions for 2#4 - Curated Selection</u></a></li>
-<li><a href="https://driver-download.techidaily.com/find-and-secure-official-corsair-mouse-driver-downloads-today/"><u>Find and Secure Official Corsair Mouse Driver Downloads Today!</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/heres-everything-you-should-know-about-pokemon-stops-in-detail-on-apple-iphone-15-drfone-by-drfone-virtual-ios/"><u>Heres Everything You Should Know About Pokemon Stops in Detail On Apple iPhone 15 | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-apple-iphone-x-drfone-by-drfone-virtual-ios/"><u>In 2024, Can I use iTools gpx file to catch the rare Pokemon On Apple iPhone X | Dr.fone</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-gaming-gains-total-earnings-for-pewdiepie/"><u>In 2024, Gaming Gains Total Earnings for PewDiePie</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-apple-iphone-x-drfone-by-drfone-virtual-ios/"><u>In 2024, The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Apple iPhone X | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/pokemon-go-cooldown-chart-on-apple-iphone-xr-drfone-by-drfone-virtual-ios/"><u>Pokémon Go Cooldown Chart On Apple iPhone XR | Dr.fone</u></a></li>
-<li><a href="https://driver-download.techidaily.com/1722975421411-seamlessly-update-your-ryzen-graphics-find-and-download-the-right-drivers-for-model-2600/"><u>Seamlessly Update Your Ryzen Graphics: Find & Download the Right Drivers for Model #2600.</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-explore-the-best-8-mirrorless-cameras-for-youtube-vloggers/"><u>[New] 2024 Approved Explore the Best 8 Mirrorless Cameras for YouTube Vloggers</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-ideas-to-maximize-gopro-battery-performance/"><u>2024 Approved Ideas to Maximize GoPro Battery Performance</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/catchemall-celebrate-national-pokemon-day-with-virtual-location-on-apple-iphone-12-pro-max-drfone-by-drfone-virtual-ios/"><u>CatchEmAll Celebrate National Pokémon Day with Virtual Location On Apple iPhone 12 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-track-samsung-galaxy-s24-location-by-number-drfone-by-drfone-virtual-android/"><u>How to Track Samsung Galaxy S24 Location by Number | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-a-comprehensive-guide-to-mastering-ipogo-for-pokemon-go-on-apple-iphone-12-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, A Comprehensive Guide to Mastering iPogo for Pokémon GO On Apple iPhone 12 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-can-i-create-my-pokemon-overworld-maps-on-apple-iphone-14-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, How Can I Create My Pokemon Overworld Maps On Apple iPhone 14 Plus? | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-ways-to-trade-pokemon-go-from-far-away-on-apple-iphone-15-drfone-by-drfone-virtual-ios/"><u>In 2024, Ways to trade pokemon go from far away On Apple iPhone 15? | Dr.fone</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-webcam-integration-in-gaming-setup-mastery/"><u>In 2024, Webcam Integration in Gaming Setup Mastery</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/prime-graphic-hubs-offered-free-with-unmatched-quality-and-design-tools-for-2024/"><u>Prime Graphic Hubs Offered Free, With Unmatched Quality & Design Tools for 2024</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/solving-silent-clicks-on-your-logitech-g933-effortless-fixes-for-immediate-sound/"><u>Solving Silent Clicks on Your Logitech G933: Effortless Fixes for Immediate Sound</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/which-pokemon-can-evolve-with-a-moon-stone-for-apple-iphone-8-drfone-by-drfone-virtual-ios/"><u>Which Pokémon can Evolve with a Moon Stone For Apple iPhone 8? | Dr.fone</u></a></li>
 </ul></div>
 

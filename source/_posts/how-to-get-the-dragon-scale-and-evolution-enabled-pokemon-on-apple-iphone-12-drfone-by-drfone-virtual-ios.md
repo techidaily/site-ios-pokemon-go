@@ -1,7 +1,7 @@
 ---
 title: How to get the dragon scale and evolution-enabled pokemon On Apple iPhone 12? | Dr.fone
-date: 2024-07-12T05:01:56.497Z
-updated: 2024-07-13T05:01:56.497Z
+date: 2024-09-19T02:54:24.306Z
+updated: 2024-09-20T00:43:57.398Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -82,11 +82,16 @@ Pokemon go dragon scale can be obtained by taking charge of Gyms and spinning, w
 
 You can get your hands on a dragon scale by spinning a specific Pokestop seven days in a row to get the required streak bonus. This won't ensure you a dragon scale; however, it will give you the possibility of achieving other evolutionary objects such as the Sun Stone, Upgrade, Sinnoh Stone, Unova Stone, Metal Coat, and King's Rock.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918714/19272" target="_top" id="1918714">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918714" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918714/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 Specific Pokémon in Pokémon GO now call for rare evolution items such as a steel coat, a sunstone, a king's rock, a dragon scale, or an upgrade to evolve, all of which are unplanned drops from Pokestops. However, the players can make use of [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) application to gain version exclusive Pokemon and evolution items and make advancements in the game.
-
-
 
 ## What Legendaries Are In Pokemon Platinum On Apple iPhone 12?
 
@@ -154,6 +159,13 @@ There are about 18 platinum legendaries Pokemon that you can obtain per game car
 
 There are a few cheats to capture platinum legendaries in Pokemon. In addition to the official methods discusses above, you can use action replay codes or try location spoofing.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047351/19272" target="_top" id="2047351">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047351" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047351/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2.1 Action Replay Codes
 
 There are many action replay codes available on the Internet. Using these codes, you can easily capture legendary Pokemon available with the Pokemon Platinum Version.
@@ -192,7 +204,18 @@ For this illustration, we will use using Dr.fone to see how to iPhone GPS spoofi
 
 Now, enjoy playing Pokemon Platinum and capture more Legendary Pokemon to level up in the game.
 
-
+<!-- affiliate ads begin -->
+<span id="1444782">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1444782.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1444782">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1444782.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1444782%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1444782/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3: How to get Mewtwo in Pokemon Platinum?
 
@@ -208,11 +231,16 @@ According to some users, you can get Mewtwo with Pokemon Fire Red or Leaf Green.
 
 Hopefully, these comprehensive guides help you learn about all legendaries in Platinum. Advisably, using the location spoofing with a reliable app like [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) can be a great way to capture more legendary Pokemon in a much easier way.
 
-
-
 ## How Do You Get Sun Stone Evolutions in Pokémon For Apple iPhone 12?
 
 ![pokémon go sun stone](https://images.wondershare.com/drfone/article/2024/03/sun-stone-evolutions.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2005183/22899" target="_top" id="2005183">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005183" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005183/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Though you can certainly catch some powerful Pokémon in Pokémon Go just by playing the game, exploring the wilderness, and joining raids, it’s not enough. Evolving your Pokémon is how you advance through the game, level up, and become a better catcher.
 
@@ -316,13 +344,24 @@ You can use the Dr. Fone virtual location to set your location to anywhere in th
 
 To get started with Wondershare Dr.Fone and complete your field research tasks, you must follow a few steps:
 
-
-
 1. Download and launch Wondershare Dr.Fone on your computer;
 2. Connect your phone to your computer;
 3. Go to **Toolbox > Virtual Location > Get Started**;
 
 ![get started with wondershare dr.fone](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
+
+<!-- affiliate ads begin -->
+<span id="1993652">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 4. On the map that shows up, click on **No Device**in the upper right-hand corner;
 5. You’ll see a list of all connected devices, select your phone;
@@ -347,9 +386,6 @@ Fortunately, finding this out is pretty easy. Just keep track of Pokémon Go on 
 
 Acquiring Sun Stones for Pokémon evolutions can be quite a hassle. This rare evolution item can be a tricky find. Still, simply playing the game and joining all events, completing your research tasks, and more can significantly increase your chances of coming across a Sun Stone – especially if you have the help of apps like Wondershare Dr.Fone.
 
-
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
@@ -362,9 +398,15 @@ Acquiring Sun Stones for Pokémon evolutions can be quite a hassle. This rare ev
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-guidance.techidaily.com/new-seamlessly-add-music-to-inshot-on-mobile-devices/"><u>[New] Seamlessly Add Music to InShot on Mobile Devices</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/a-detailed-pokemon-go-pvp-tier-list-to-make-you-a-pro-trainer-for-apple-iphone-6-drfone-by-drfone-virtual-ios/"><u>A Detailed Pokemon Go PvP Tier List to Make you a Pro Trainer For Apple iPhone 6 | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/catchemall-celebrate-national-pokemon-day-with-virtual-location-on-apple-iphone-8-drfone-by-drfone-virtual-ios/"><u>CatchEmAll Celebrate National Pokémon Day with Virtual Location On Apple iPhone 8 | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fix-life360-shows-wrong-location-on-oppo-find-x6-drfone-by-drfone-virtual-android/"><u>How to Fix Life360 Shows Wrong Location On Oppo Find X6? | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/ipogo-will-be-the-new-ispoofer-on-apple-iphone-15-pro-max-drfone-by-drfone-virtual-ios/"><u>iPogo will be the new iSpoofer On Apple iPhone 15 Pro Max? | Dr.fone</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/low-cost-video-editing-options-that-deliver/"><u>Low-Cost Video Editing Options That Deliver</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/the-directors-toolkit-youtube-lessons-on-film-making/"><u>The Director's Toolkit YouTube Lessons on Film Making</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/your-life-your-legacy-youtube-videos-that-matter-for-2024/"><u>Your Life, Your Legacy YouTube Videos That Matter for 2024</u></a></li>
+</ul></div>
 

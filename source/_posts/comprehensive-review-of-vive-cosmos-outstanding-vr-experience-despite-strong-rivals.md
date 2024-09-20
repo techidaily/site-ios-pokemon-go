@@ -1,7 +1,7 @@
 ---
 title: Comprehensive Review of Vive Cosmos – Outstanding VR Experience Despite Strong Rivals
-date: 2024-09-09T23:48:36.982Z
-updated: 2024-09-15T04:19:45.104Z
+date: 2024-09-13T10:56:38.521Z
+updated: 2024-09-20T04:31:43.054Z
 categories:
   - BestProducts
 description: This Article Describes Comprehensive Review of Vive Cosmos – Outstanding VR Experience Despite Strong Rivals
@@ -81,6 +81,13 @@ Lifewire / Yoona Wagener
 
 Lifewire / Yoona Wagener
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972684/19272" target="_top" id="1972684">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972684" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972684/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Comfort: Streamlined but not immune to typical fit issues
 
  While the easy-adjusting Velcro strap is a welcome departure from the typical notch-and-clasp closure on most fitness trackers, adjusting the fit or removing the device wasn’t as smooth as I’d expected it to be. The end of the strap is finished with hardware that prevents the strap from coming completely undone from the loop. The band also includes a series of five strong Velcro strips/notches that serve as sizing adjusters. This construction helps prevent accidental drops when taking the band on/off, which is never a bad thing. On the other hand, though, the Velcro strips are so sturdy that they restricted quick adjustments and made removing the band less swift overall.
@@ -92,16 +99,10 @@ Lifewire / Yoona Wagener
  As for water resistance, I didn’t test the 50-meter swimproof rating of the Halo in a pool, but I did shower with the device for three days. Despite the band’s moisture-wicking band material, it remained damp far longer than was comfortable and compared to a fast-drying silicone band. If you’re an avid swimmer or prefer not to remove your wearable while showering, the sport band option will most likely be the more desirable option.
 
 <!-- affiliate ads begin -->
-<span id="1938141">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1938141.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1938141">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938141.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938141%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938141/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1925549/19272" target="_top" id="1925549">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925549" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925549/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Performance: Constantly monitoring movement, not performance
@@ -122,13 +123,6 @@ Lifewire / Yoona Wagener
 
  The body fat scan is based on pictures uploaded to the app—and based on prompts from the app. While it felt invasive and isn’t a feature I’d seek out in a fitness tracker, it worked without issue. Amazon reports that this technology is twice as accurate as smart scales. For the right user who feels comfortable with this kind of data compilation, this feature also offers visualizations of how different body fat percentages would look on your frame and stores your scans for a look at trends over time. All voice data and images used for the body scan are deletable from the app, though you can also choose to back up body data in the[cloud](https://www.lifewire.com/what-is-cloud-computing-817770) , which Amazon assures is private and well secured.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130869/7443" target="_top" id="2130869">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130869" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130869/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Software: An essential and user-friendly mobile app
 
  Without a visual display to interact with, the accompanying Halo mobile app is absolutely essential to the user experience. It delivers helpful explanations and guidance that most users want. Compatible with[iOS](https://www.lifewire.com/what-is-ios-1994355) and[Android](https://www.lifewire.com/what-is-google-android-1616887) phones, the Halo app makes everything from the initial setup to body scanning and voice tracking straightforward. Sleep data is backed up by explanations as is the activity point tracking system. Automatically tracked workout data is also easily accessible and so is the option to manually upload workout activities (there are 38 to choose from, including an all-encompassing Other category).
@@ -147,6 +141,13 @@ Lifewire / Yoona Wagener
 
 ![Amazon Halo](https://www.lifewire.com/thmb/fBsShcBruhAWkg-kTKPWkYUaImo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon_Halo_04-ee532fbe8d2f4e8195e63ed9dd45611a.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2126493/26400" target="_top" id="2126493">
+  <img src="//a.impactradius-go.com/display-ad/26400-2126493" border="0" alt="https://techidaily.com" width="640" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126493/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Yoona Wagener
 
 ## Price: A reasonable price for the feature set
@@ -154,10 +155,10 @@ Lifewire / Yoona Wagener
  Retailing for just about $100, the Amazon Halo band certainly won’t break the bank for budget-minded shoppers. While the lack of display could be a deterrent, the solid mobile app provides convenient access to the detailed sleep, automatic activity tracking, and specialized tone of voice and body fat analysis the Halo provides.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134223/18498" target="_top" id="2134223">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144288/7443" target="_top" id="2144288">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144288" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134223/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144288/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Amazon Halo vs. WHOOP Strap 3
@@ -177,13 +178,6 @@ Lifewire / Yoona Wagener
 * [Apple Watch Series 5](https://www.lifewire.com/apple-watch-series-6-review-5087552)
 * [Fitbit Sense](https://www.lifewire.com/fitbit-sense-review-5085832)
 * [Ticwatch Pro](https://www.lifewire.com/ticwatch-pro-4g-review-4797547)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134489/18498" target="_top" id="2134489">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134489" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134489/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -216,20 +210,16 @@ Lifewire / Yoona Wagener
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vimeo-videos.techidaily.com/updated-choosing-the-best-iphone-video-editor-filmorago-or-cameo-for-2024/"><u>[Updated] Choosing the Best iPhone Video Editor FilmoRaGo or Cameo for 2024</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-infuse-satire-and-smiles-kapwings-meme-builder/"><u>[Updated] Infuse Satire & Smiles - Kapwing's Meme Builder</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/exploring-the-power-of-gpt-all-an-in-depth-look-at-how-it-operates/"><u>Exploring the Power of GPT-# All: An In-Depth Look at How It Operates</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/how-does-the-stardust-trade-cost-in-pokemon-go-on-apple-iphone-8-plus-drfone-by-drfone-virtual-ios/"><u>How does the stardust trade cost In pokemon go On Apple iPhone 8 Plus? | Dr.fone</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-change-your-itel-a60-location-on-life360-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>How to Change Your Itel A60 Location on life360 Without Anyone Knowing? | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-a-comprehensive-guide-to-mastering-ipogo-for-pokemon-go-on-apple-iphone-15-drfone-by-drfone-virtual-ios/"><u>In 2024, A Comprehensive Guide to Mastering iPogo for Pokémon GO On Apple iPhone 15 | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-catchemall-celebrate-national-pokemon-day-with-virtual-location-on-apple-iphone-x-drfone-by-drfone-virtual-ios/"><u>In 2024, CatchEmAll Celebrate National Pokémon Day with Virtual Location On Apple iPhone X | Dr.fone</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-screen-mirroring-samsung-galaxy-m14-4g-to-pc-drfone-by-drfone-android/"><u>In 2024, How to Screen Mirroring Samsung Galaxy M14 4G to PC? | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-ipogo-will-be-the-new-ispoofer-on-apple-iphone-12-mini-drfone-by-drfone-virtual-ios/"><u>In 2024, iPogo will be the new iSpoofer On Apple iPhone 12 mini? | Dr.fone</u></a></li>
-<li><a href="https://ios-location-track.techidaily.com/in-2024-top-10-telegram-spy-tools-on-apple-iphone-11-pro-max-for-parents-drfone-by-drfone-virtual-ios/"><u>In 2024, Top 10 Telegram Spy Tools On Apple iPhone 11 Pro Max for Parents | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-what-pokemon-evolve-with-a-dawn-stone-for-apple-iphone-13-mini-drfone-by-drfone-virtual-ios/"><u>In 2024, What Pokémon Evolve with A Dawn Stone For Apple iPhone 13 mini? | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/reasons-why-pokemon-gps-does-not-work-on-apple-iphone-11-drfone-by-drfone-virtual-ios/"><u>Reasons why Pokémon GPS does not Work On Apple iPhone 11? | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/seamless-video-recording-on-facebook-with-top-5-tools/"><u>Seamless Video Recording on Facebook with Top 5 Tools</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/tagging-magic-elevating-game-based-youtubes-for-2024/"><u>Tagging Magic Elevating Game-Based YouTubes for 2024</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/unraveling-the-mystery-what-hides-in-snapchat-emoji-meanings-for-2024/"><u>Unraveling the Mystery What Hides in Snapchat Emoji Meanings for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-the-blueprint-for-social-success-six-proven-steps-toward-verification-and-growth-for-2024/"><u>[Updated] The Blueprint for Social Success Six Proven Steps Toward Verification and Growth for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-examining-the-tech-in-djis-phantom-3-prototype/"><u>2024 Approved Examining the Tech in DJI's Phantom 3 Prototype</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-luminous-upgrades-5-must-try-online-video-tools/"><u>2024 Approved Luminous Upgrades 5 Must-Try Online Video Tools</u></a></li>
+<li><a href="https://win-answers.techidaily.com/effective-remedies-for-the-live-config-servers-connection-error-challenge/"><u>Effective Remedies for the 'Live Config Servers Connection Error’ Challenge</u></a></li>
+<li><a href="https://win-able.techidaily.com/how-to-setup-and-use-hyper-v-virtualization-on-windows-10-a-comprehensive-tutorial/"><u>How to Setup and Use Hyper-V Virtualization on Windows 10: A Comprehensive Tutorial</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-photos-from-poco-m6-pro-5g-to-laptop-without-usb-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Photos from Poco M6 Pro 5G to Laptop Without USB | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-full-guide-to-catch-100-iv-pokemon-using-a-map-on-apple-iphone-11-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, Full Guide to Catch 100 IV Pokémon Using a Map On Apple iPhone 11 Pro | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-to-enter-the-ispoofer-discord-server-on-apple-iphone-14-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, How to enter the iSpoofer discord server On Apple iPhone 14 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-ultimate-guide-to-get-the-meltan-box-pokemon-go-for-apple-iphone-15-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, Ultimate guide to get the meltan box pokemon go For Apple iPhone 15 Plus | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/the-best-ispoofer-alternative-to-try-on-vivo-g2-drfone-by-drfone-virtual-android/"><u>The Best iSpoofer Alternative to Try On Vivo G2 | Dr.fone</u></a></li>
+<li><a href="https://blue-screen-error.techidaily.com/understanding-and-fixing-page-fault-in-nonpaged-area-on-windows-10-machines/"><u>Understanding and Fixing 'Page Fault in Nonpaged Area' On Windows 10 Machines</u></a></li>
 </ul></div>
 

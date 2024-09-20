@@ -1,7 +1,7 @@
 ---
 title: "Overcoming Common Challenges: Solving Persistent Chivalry II Crash Errors"
-date: 2024-09-10T03:33:38.089Z
-updated: 2024-09-14T23:54:35.474Z
+date: 2024-09-12T20:35:28.527Z
+updated: 2024-09-19T18:01:52.701Z
 tags:
   - win11
   - win10
@@ -74,13 +74,6 @@ Here is how to grant administrative privileges to Apex Legends:
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135414/19272" target="_top" id="2135414">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135414" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135414/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Fix 3: Verify game files
 
  You should also check the integrity of the game files to see if any of them are corrupt or missing.
@@ -96,26 +89,26 @@ Here is how to verify game files:
 ![](https://images.drivereasy.com/wp-content/uploads/2019/03/image-561.png)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2121335/18498" target="_top" id="2121335">
-  <img src="//a.impactradius-go.com/display-ad/18498-2121335" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049390/7443" target="_top" id="2049390">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049390" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121335/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049390/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 3) Wait until the repair process finishes.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/03/image-343-1024x728.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130875/7443" target="_top" id="2130875">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130875" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130875/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  4) Once done, run Apex Legends and check if the engine error is fixed. If yes, then great! If the issue persists, please move on to**Fix 4** , below.
 
 ---
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005196/22899" target="_top" id="2005196">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005196" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005196/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Fix 4: Edit Registry
 
@@ -145,6 +138,13 @@ Windows Registry Editor Version 5.00
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/08/image-477.png)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136615/26400" target="_top" id="2136615">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136615" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136615/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  5) Click**Yes** once you’re prompted about the message.
 
  6) Run Apex Legends again to see if the Engine error has been fixed.
@@ -171,16 +171,19 @@ Windows Registry Editor Version 5.00
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-sidestep-social-media-sponsored-videos/"><u>[Updated] In 2024, Sidestep Social Media Sponsored Videos</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-securing-your-scene-minimize-camera-jostle/"><u>2024 Approved Securing Your Scene Minimize Camera Jostle</u></a></li>
-<li><a href="https://blog-min.techidaily.com/5-ways-to-move-contacts-from-vivo-y78plus-to-iphone-131415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Ways to Move Contacts From Vivo Y78+ to iPhone (13/14/15) | Dr.fone</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/chatgpt-unleashed-discover-six-exciting-ways-to-utilize-its-programming-interpretive-abilities/"><u>ChatGPT Unleashed: Discover Six Exciting Ways to Utilize Its Programming Interpretive Abilities</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/how-to-enter-the-ispoofer-discord-server-on-apple-iphone-15-pro-drfone-by-drfone-virtual-ios/"><u>How to enter the iSpoofer discord server On Apple iPhone 15 Pro | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-can-i-catch-the-regional-pokemon-without-traveling-on-apple-iphone-12-drfone-by-drfone-virtual-ios/"><u>In 2024, How Can I Catch the Regional Pokémon without Traveling On Apple iPhone 12 | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-can-i-create-my-pokemon-overworld-maps-on-apple-iphone-se-drfone-by-drfone-virtual-ios/"><u>In 2024, How Can I Create My Pokemon Overworld Maps On Apple iPhone SE? | Dr.fone</u></a></li>
-<li><a href="https://win-answers.techidaily.com/maximize-your-fps-on-tainted-grail-conquest-with-expert-tips-and-tricks/"><u>Maximize Your FPS on Tainted Grail: Conquest with Expert Tips and Tricks</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/step-by-step-guide-resolving-tozo-t6-compatibility-problems-with-windows-11/"><u>Step-by-Step Guide: Resolving Tozo T6 Compatibility Problems with Windows 11</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/top-15-augmented-reality-games-like-pokemon-go-to-play-on-apple-iphone-6-drfone-by-drfone-virtual-ios/"><u>Top 15 Augmented Reality Games Like Pokémon GO To Play On Apple iPhone 6 | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/what-pokemon-evolve-with-a-dawn-stone-for-apple-iphone-se-2022-drfone-by-drfone-virtual-ios/"><u>What Pokémon Evolve with A Dawn Stone For Apple iPhone SE (2022)? | Dr.fone</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-best-screen-capture-apps-for-android-devices-reviewed/"><u>[New] 2024 Approved Best Screen Capture Apps for Android Devices Reviewed</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-the-pixiz-guide-to-blending-photography-and-motion/"><u>[New] 2024 Approved The Pixiz Guide to Blending Photography and Motion</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-elevate-your-productions-with-key-obs-studio-tips/"><u>[New] Elevate Your Productions with Key OBS Studio Tips</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-2024-approved-growth-excellence-in-valheim-optimal-seeds-unveiled/"><u>[Updated] 2024 Approved Growth Excellence in Valheim Optimal Seeds Unveiled</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-in-2024-20-easygoing-country-rhythms-to-boogie-down-and-unwind-on-tiktok/"><u>[Updated] In 2024, 20 Easygoing Country Rhythms to Boogie Down & Unwind on TikTok</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-exploring-the-new-frontier-of-android-gaming-with-kinemaster/"><u>[Updated] In 2024, Exploring the New Frontier of Android Gaming with KineMaster</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-best-choices-twitter-video-conversion-software/"><u>2024 Approved Best Choices Twitter Video Conversion Software</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/2024-approved-slowly-suppressing-audio-loudness/"><u>2024 Approved Slowly Suppressing Audio Loudness</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-apple-iphone-15-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, 15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Apple iPhone 15 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-techniques-to-transfer-data-from-poco-f5-pro-5g-to-iphone-15141312-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Techniques to Transfer Data from Poco F5 Pro 5G to iPhone 15/14/13/12 | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-all-you-need-to-know-about-mega-greninja-for-apple-iphone-6-drfone-by-drfone-virtual-ios/"><u>In 2024, All You Need To Know About Mega Greninja For Apple iPhone 6 | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-ipogo-will-be-the-new-ispoofer-on-apple-iphone-13-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, iPogo will be the new iSpoofer On Apple iPhone 13 Pro Max? | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-apple-iphone-13-pro-max-drfone-by-drfone-virtual-ios/"><u>The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Apple iPhone 13 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/ways-to-trade-pokemon-go-from-far-away-on-apple-iphone-13-pro-drfone-by-drfone-virtual-ios/"><u>Ways to trade pokemon go from far away On Apple iPhone 13 Pro? | Dr.fone</u></a></li>
 </ul></div>
 
