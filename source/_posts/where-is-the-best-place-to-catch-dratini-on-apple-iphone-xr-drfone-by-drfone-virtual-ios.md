@@ -1,7 +1,7 @@
 ---
 title: Where Is the Best Place to Catch Dratini On Apple iPhone XR | Dr.fone
-date: 2024-09-25T03:43:44.147Z
-updated: 2024-09-25T17:53:50.491Z
+date: 2024-09-23T23:46:27.270Z
+updated: 2024-10-01T13:25:53.987Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -48,6 +48,13 @@ You may also g West to Squirtle Nest where you can get a lot of Dratini.
 Dratini has a 5% spawning chance every day, so if you have the time, you can spend it on these sites as you enjoy the watery view and wait for it to appear.
 
 Dratini nests can also be found in other parts of the world, such as Tokyo, Japan; Sydney and New South Wales, Australia; Paris, France and others.
+
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137972/21526" target="_top" id="2137972">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137972" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137972/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3: Are the Dratini nest and spawn spot in the same place?
 
@@ -109,10 +116,16 @@ This is how your location will be viewed on another iPhone device.
 ![virtual location 07](https://images.wondershare.com/drfone/guide/virtual-location-07.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111995/7443" target="_top" id="2111995">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111995" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111995/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983553">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983553.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983553">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983553.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983553%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983553/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## In conclusion
@@ -156,13 +169,6 @@ Cons
 
 ![GPS Joystic to fake GPS location](https://images.wondershare.com/drfone/gps-joystick.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123509/26400" target="_top" id="2123509">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123509" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123509/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 The Fake GPS location – GPS Joystick is developed by the App Ninjas, and this app is one of the best Pokémon joystick applications to fake your movement and location. If you are looking for a Pokémon go hack apk 2020, the GPS Joystick offers more settings to your augmented game. One can tailor this app easily to match their demands quickly. Take a look at some of its features:
 
 - You can select a different option for movement, for instance, walking or cycling
@@ -181,6 +187,13 @@ Pros
 Cons
 
 - You cannot save locations
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1030380/11832" target="_top" id="1030380">
+  <img src="//a.impactradius-go.com/display-ad/11832-1030380" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030380/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 3\. Fake GPS Joystick
 
@@ -231,6 +244,13 @@ Cons
 
 ![Fake any route you wish to with this app.](https://images.wondershare.com/drfone/fake-gps-routes-and-joysticks.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105877/7443" target="_top" id="2105877">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105877" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105877/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Another useful Pokémon Go GPS spoof app to make your augmented reality game have a better experience. Evvezone developed the GPS spoof joystick app, and it is available for both mobile systems, either android or iOS versions. The app has multiple features helpful in making your experience with Pokémon Go thrilling while seated at home.
 
 - You can simulate different movements, including flying
@@ -255,13 +275,6 @@ Cons
 ## 6\. iPogo Joystick
 
 ![Use iPogos to fake gps location.](https://images.wondershare.com/drfone/ipogo-joystick.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528681/16446" target="_top" id="1528681">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528681" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528681/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 The iPogo Pokémon Go joystick apk is almost at par with the Dr.Fone AnyGo joystick. This app has nearly all the features present on the AnyGO app. The app is available for iOS users, and to use it; you can download it from the official iPogo website. Download and install the app on your system, and you are ready to go. Here are some of its features:
 
@@ -292,10 +305,10 @@ Pokemon Platinum is an engaging role-playing video game introduced by Nintendo a
 ![Platinum legendaries 1](https://images.wondershare.com/drfone/Platinum-legendaries-1.png)
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528685/16446" target="_top" id="1528685">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528685" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148641/16836" target="_top" id="2148641">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148641" border="0" alt="https://techidaily.com" width="254" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528685/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148641/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 In the game, players control a female or male character. It starts with three Pokemon provided by Professor Rowan. Giratina, the mascot Pokemon, plays the most important role in the game’s plot. In addition, there are numerous Platinum legendaries in this Pokemon gaming version.
@@ -313,6 +326,13 @@ There are about 18 platinum legendaries Pokemon that you can obtain per game car
 **2\. Uxie:** Found in found in Acuity Cavern in the middle of Lake Acuity, Uxie is one of the three legendary Pokemon scattered around Sinnoh after you have battled and qwelled Giratina. The Level 50 Pokemon is reachable by walking or riding up without any fear of attack. This is one of the popular platinum legendaries.
 
 ![Platinum legendaries 3](https://images.wondershare.com/drfone/Platinum-legendaries-3.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151868/7443" target="_top" id="2151868">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151868" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151868/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **3\. Azelf:** Located in Valor Cavern, in the middle of Lake Valor, Azelf is the Blue Pokemon in the trio. The Level 50 Pokemon does not attack you as you walk or ride up to it. Spray Super Repels as you move towards the Pokemon and surf onto the rocky island housing a cave to catch it.
 
@@ -342,13 +362,6 @@ There are about 18 platinum legendaries Pokemon that you can obtain per game car
 
 ![Platinum legendaries 6](https://images.wondershare.com/drfone/Platinum-legendaries-6.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094422/7443" target="_top" id="2094422">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094422" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094422/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **14\. Regice:** With Regigigas on your team, you can access to a special room located in Mt. Coronet. On the exit to Route 216, you will see a cave names Iceberg Ruins. Enter in the cave with Regigigas and reach out to Iceberg Ruins, where Regice will battle you. Regice is located at level 30.
 
 **15\. Registeel:** Located in the Iron Ruins cave on Iron Island, Registeel is accessible only if you have Regigigas on your team. Enter the cave with a Metal Coat, and as you go up to the statue in the cave, Registeel – the level 30 Pokemon – will attack.
@@ -360,10 +373,10 @@ There are about 18 platinum legendaries Pokemon that you can obtain per game car
 ![Platinum legendaries 7](https://images.wondershare.com/drfone/Platinum-legendaries-7.png)
 
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137973/21526" target="_top" id="2137973">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137973" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135373/19272" target="_top" id="2135373">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135373" border="0" alt="https://techidaily.com" width="392" height="72"/>
 </a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137973/21526" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135373/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **18\. Arceus:** Arceus, the level 80 Pokemon, is also an event-only Pokemon who is accessible with the Azure Flute obtained from Nintendo Event. At the Spear Pillar, you will be asked if you want to play the flute. If yes, the flute is played and a huge staircase appears. Climb up the staircase and you will find the Pokemon resting there. Go up and battle him.
@@ -371,6 +384,13 @@ There are about 18 platinum legendaries Pokemon that you can obtain per game car
 ## Part 2: How do you catch the legendary Pokemon in platinum?
 
 There are a few cheats to capture platinum legendaries in Pokemon. In addition to the official methods discusses above, you can use action replay codes or try location spoofing.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137411/7443" target="_top" id="2137411">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137411" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2.1 Action Replay Codes
 
@@ -396,13 +416,6 @@ For this illustration, we will use using Dr.fone to see how to iPhone GPS spoofi
 
 ![Platinum legendaries 10](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123727/7443" target="_top" id="2123727">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123727" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123727/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 3:** Next, click on ‘Get Started’ and select the desired fake location on the map you see on the Dr.Fone app. At the top-right corner of the window, there are three icons. Click on the third icon - Teleport. Next, tap on the desired location or enter the name of the location in the search box you see on the left side.
 
 ![Platinum legendaries 11](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
@@ -414,19 +427,6 @@ For this illustration, we will use using Dr.fone to see how to iPhone GPS spoofi
 **Step 5:** For GPS location spoofing on your Apple iPhone XR map, open your current location. You will see that your virtual address is your current location now. It’s because Dr.Fone has successfully modified the location setting of your device, not just the game.
 
 ![Platinum legendaries 13](https://images.wondershare.com/drfone/guide/virtual-location-07.png)
-
-<!-- affiliate ads begin -->
-<span id="1983575">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983575.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983575">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983575.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983575%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983575/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Now, enjoy playing Pokemon Platinum and capture more Legendary Pokemon to level up in the game.
 
@@ -458,21 +458,16 @@ Hopefully, these comprehensive guides help you learn about all legendaries in Pl
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://remote-screen-capture.techidaily.com/new-a-new-era-for-cameras-exploring-the-multicam-revolution-for-2024/"><u>[New] A New Era for Cameras Exploring the MultiCam Revolution for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-essential-gear-checklist-for-youtube-success/"><u>[New] In 2024, Essential Gear Checklist for YouTube Success</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-in-2024-generate-funny-image-for-giphy/"><u>[New] In 2024, Generate Funny Image for Giphy</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-rapid-results-elevate-images-on-windows-11-for-2024/"><u>[New] Rapid Results Elevate Images on Windows 11 for 2024</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-conducting-collaborative-discussions-in-a-hassle-free-manner-via-skype-across-operating-systems/"><u>[Updated] Conducting Collaborative Discussions in a Hassle-Free Manner via Skype Across Operating Systems</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-apple-iphone-15-pro-max-drfone-by-drfone-virtual-ios/"><u>4 solution to get rid of pokemon fail to detect location On Apple iPhone 15 Pro Max | Dr.fone</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/bots-under-threat-combatting-information-spillage/"><u>Bots Under Threat: Combatting Information Spillage</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-apple-iphone-11-pro-max-drfone-by-drfone-virtual-ios/"><u>How to get the dragon scale and evolution-enabled pokemon On Apple iPhone 11 Pro Max? | Dr.fone</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/how-to-teleport-your-gps-location-on-oppo-find-n3-flip-drfone-by-drfone-virtual-android/"><u>How To Teleport Your GPS Location On Oppo Find N3 Flip? | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-a-working-guide-for-pachirisu-pokemon-go-map-on-apple-iphone-6-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, A Working Guide For Pachirisu Pokemon Go Map On Apple iPhone 6 Plus | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-ultimate-guide-to-get-the-meltan-box-pokemon-go-for-apple-iphone-14-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, Ultimate guide to get the meltan box pokemon go For Apple iPhone 14 Pro Max | Dr.fone</u></a></li>
-<li><a href="https://video-content-creator.techidaily.com/new-unlock-final-cut-pros-full-potential-90-day-free-trial/"><u>New Unlock Final Cut Pros Full Potential 90-Day Free Trial</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/pokemon-go-cooldown-chart-on-apple-iphone-se-2020-drfone-by-drfone-virtual-ios/"><u>Pokémon Go Cooldown Chart On Apple iPhone SE (2020) | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/pokemon-go-no-gps-signal-heres-every-possible-solution-on-apple-iphone-14-pro-max-drfone-by-drfone-virtual-ios/"><u>Pokemon Go No GPS Signal? Heres Every Possible Solution On Apple iPhone 14 Pro Max | Dr.fone</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/top-reviews-on-memory-processors-and-more-at-tome-hardware-hub/"><u>Top Reviews on Memory, Processors, and More at Tom'e Hardware Hub</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/ultimate-guide-to-get-the-meltan-box-pokemon-go-for-apple-iphone-7-drfone-by-drfone-virtual-ios/"><u>Ultimate guide to get the meltan box pokemon go For Apple iPhone 7 | Dr.fone</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-audio-amplified-todays-hits-backdropping-yt-shorts/"><u>[New] 2024 Approved Audio Amplified Today's Hits Backdropping YT Shorts</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-tailored-treasure-troves-the-ultimate-list-of-online-box-sellers-for-2024/"><u>[New] Tailored Treasure Troves The Ultimate List of Online Box Sellers for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-leading-green-filmmaking-software/"><u>2024 Approved Leading Green Filmmaking Software</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-the-quick-start-method-for-combining-obs-and-zoom/"><u>2024 Approved The Quick-Start Method for Combining OBS & Zoom</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-best-subtitle-manipulators-the-top-10-list-online/"><u>In 2024, Best Subtitle Manipulators - The Top 10 List (Online)</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-catchemall-celebrate-national-pokemon-day-with-virtual-location-on-apple-iphone-15-drfone-by-drfone-virtual-ios/"><u>In 2024, CatchEmAll Celebrate National Pokémon Day with Virtual Location On Apple iPhone 15 | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-cast-asus-rog-phone-7-ultimate-screen-to-pc-using-wifi-drfone-by-drfone-android/"><u>In 2024, How to Cast Asus ROG Phone 7 Ultimate Screen to PC Using WiFi | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-which-pokemon-can-evolve-with-a-moon-stone-for-apple-iphone-15-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, Which Pokémon can Evolve with a Moon Stone For Apple iPhone 15 Pro Max? | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/life360-circle-everything-you-need-to-know-on-realme-12-pro-5g-drfone-by-drfone-virtual-android/"><u>Life360 Circle Everything You Need to Know On Realme 12 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/ultimate-guide-to-get-the-meltan-box-pokemon-go-for-apple-iphone-13-mini-drfone-by-drfone-virtual-ios/"><u>Ultimate guide to get the meltan box pokemon go For Apple iPhone 13 mini | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-apple-iphone-15-pro-max-drfone-by-drfone-virtual-ios/"><u>Will Pokémon Go Ban the Account if You Use PGSharp On Apple iPhone 15 Pro Max | Dr.fone</u></a></li>
 </ul></div>
 
