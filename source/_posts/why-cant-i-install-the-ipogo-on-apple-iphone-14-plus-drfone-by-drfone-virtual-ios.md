@@ -1,7 +1,7 @@
 ---
 title: Why cant I install the ipogo On Apple iPhone 14 Plus | Dr.fone
-date: 2024-09-29T21:36:48.564Z
-updated: 2024-10-06T18:29:25.535Z
+date: 2024-10-08T16:01:31.988Z
+updated: 2024-10-12T16:04:10.245Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -33,13 +33,6 @@ iPogo version is also an important factor of consideration. Time to time regular
 
 If a user is considering direct downloading method, they might also face this trouble because Apple now targets certificate. Now you need to create your certificate with the help of a computer or a paid service like Signulous and others.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082542/7443" target="_top" id="2082542">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082542" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082542/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Bonus: Simple steps to install iPogo
 
 To install iPogo, we suggest you avoid the direct download method and instead follow the steps to follow with “Matrix installer.”
@@ -62,13 +55,6 @@ To install iPogo, we suggest you avoid the direct download method and instead fo
 
 ![ipogo install package](https://images.wondershare.com/drfone/2020/202010/ipogo-install-package.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/352555/5172" target="_top" id="352555">
-  <img src="//a.impactradius-go.com/display-ad/5172-352555" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352555/5172" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 8:** Now the installer asks for the Apple ID username, and Password mentions the same. Make sure these are the ones used to fetch the developer certificate from the Apple Server. (We suggest you create a new Apple ID)
 
 ![ipogo install enter apple id](https://images.wondershare.com/drfone/2020/202010/ipogo-install-enter-apple-id.jpg)
@@ -80,6 +66,13 @@ To install iPogo, we suggest you avoid the direct download method and instead fo
 **Step 11:** Now hit on the developer Apple ID and trust it.
 
 ![ipogo installing click trust](https://images.wondershare.com/drfone/2020/202010/ipogo-installing-click-trust.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043662/7443" target="_top" id="2043662">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043662" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043662/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 2: Risk of installing ipogo and running
 
@@ -149,6 +142,13 @@ Moreover, **Pokémon GO PvP** is designed to use an array of Pokémon in a parti
 
 ![finding strongest pokemon for pvp league](https://images.wondershare.com/drfone/article/2024/01/best-strongest-pokemon-in-go-pvp-leagues-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115921/19272" target="_top" id="2115921">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115921" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115921/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 1. What Are the Limitations of CP for Every Pokémon GO PvP League
 
 For a diverse and challenging gaming experience, **Pokémon GO PvP** comes up with CP limitations. So far, the Great League is easier to start because players with a limit of 1500 CP Pokémon can participate. Then comes the Ultra League, where you'll find more legendary Pokémon due to its 2500 CP limitation. Unlike other leagues, there is no Pokémon CP limitation in the Master League.
@@ -217,13 +217,6 @@ If exposed to neutral weather, it faints out after staying strong in 120.2 damag
 | **Weaknesses** | Fire, Flying, Ice, Psychic |
 | **Resistance** | Grass, Electric, Fairy, Fighting, Water |
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918684/19272" target="_top" id="1918684">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918684" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918684/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 5\. Pawmo
 
 ![pawmo pokemon go great league](https://images.wondershare.com/drfone/article/2024/01/best-strongest-pokemon-in-go-pvp-leagues-6.jpg)
@@ -245,6 +238,13 @@ In league battles, players get promoted to higher ranks after succession. This r
 
 ![raichu pokemon go ultra league](https://images.wondershare.com/drfone/article/2024/01/best-strongest-pokemon-in-go-pvp-leagues-7.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151884/7443" target="_top" id="2151884">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151884" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151884/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 This Pokémon has recorded 2467 CP and is considered the strongest in the Ultra League. Raichu comes up with its best moves, such as Wild Charge and Thunder Shock. It originally appeared in the Kanto region and can improve its moves in rainy weather. It has scores of 193 in attack, 151 in defense, and 155 in stamina, making it the best choice for Ultra League.
 
 Regarding Raichu's family, it is found connected to Pikachu, Pichu, and Alolan Raichu. Apart from that, it has Thunder Shock, Spark, Charm, and Volt Switch as fast moves. Plus, Thunder Punch, Wild Charge, Skull Bash, Brick Break, and Trailblaze are categorized as charged moves.
@@ -253,6 +253,13 @@ Regarding Raichu's family, it is found connected to Pikachu, Pichu, and Alolan R
 | --- | --- |
 | **Weaknesses** | Ground |
 | **Resistance** | Electric, Flying, Steel |
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135395/19272" target="_top" id="2135395">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135395" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135395/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2\. Xatu
 
@@ -266,13 +273,6 @@ Xatu uses Air Slash and Faint Attack in fast moves while using Future Sight, Aer
 | --- | --- |
 | **Weaknesses** | Dark, Electric, Ghost, Ice, Rock |
 | **Resistance** | Fighting, Ground, Grass, Psychic |
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118312/7443" target="_top" id="2118312">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118312" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118312/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 3\. Orbeetle
 
@@ -334,13 +334,6 @@ If we talk about other scores, it comes up with 349 attacks, 199 defense, and 15
 
 ![mega charizard pokemon go master league](https://images.wondershare.com/drfone/article/2024/01/best-strongest-pokemon-in-go-pvp-leagues-13.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137412/7443" target="_top" id="2137412">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137412" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137412/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 This Pokémon Go has a maximum of 5037 CP on level 50, which offers Blast Burn and Fire Spin among its best moves. Before fainting, it can deal with 688.4 damage and cause damage of 21.74 per second. When battling in neutral weather, it needs Elite Charge TM to get Blast Burn.
 
 It scores a maximum of 319 in attack, 212 in defense, and 186 in stamina. For the best combinations in attacking, users prefer going with Fire Spin and Blast Burn or Wing Attack and Blast Burn. This helps them attain the maximum damage out of the opponent Pokemon during showdowns.
@@ -363,9 +356,23 @@ Besides, there is a 20km buddy distance recorded so far with 337 attack, 196 def
 | **Weaknesses** | Bug, Dark, Dragon, Fairy, Ghost, Ice |
 | **Resistance** | Electric, Fighting, Fire, Grass, Psychic, Water |
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/999558/11832" target="_top" id="999558">
+  <img src="//a.impactradius-go.com/display-ad/11832-999558" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/999558/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 4\. Lugia
 
 ![lugia ultra pokemon go master league](https://images.wondershare.com/drfone/article/2024/01/best-strongest-pokemon-in-go-pvp-leagues-15.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1030380/11832" target="_top" id="1030380">
+  <img src="//a.impactradius-go.com/display-ad/11832-1030380" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030380/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 It is another strongest and most well-known Pokémon due to the fast and charged moves that are valuable for the master league. As far as it is concerned, it gained a maximum of 4186 CP at level 50 in Pokemon GO. It was basically found in the Johto region and is boosted by windy weather.
 
@@ -388,13 +395,6 @@ Talking about other score rates, 310 attack, 251 defense, and 216 stamina scores
 | --- | --- |
 | **Weaknesses** | Ice, Dragon, Fairy Rock |
 | **Resistance** | Bug, Ground, Grass, Fighting, Fire, Water |
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151856/7443" target="_top" id="2151856">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151856" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151856/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 5. Unleash Your Potential in Pokémon GO PVP Leagues With the Best Location Spoofer
 
@@ -442,13 +442,6 @@ Upon selecting, decide whether you want a "Round Trip" or "Loop Trip," and enter
 
 ![set route parameters to start moving](https://images.wondershare.com/drfone/guide/virtual-location-09.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934138/19272" target="_top" id="1934138">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934138" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934138/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 - Step 6. Initiate Multi-Sop Route and Define Parameters
 
 If you want to move between multi-routes, activate the “Multi-Stop Route" feature from the top-right side and set multiple stops on the map. You should first define the number of trips or speeds and press "Start Moving" for further processing. As the process starts, hit the "Pause" where you want to hold the simulation.
@@ -463,6 +456,13 @@ To wrap up, Pokémon GO PvP leagues excitedly produce rewards and rankings. To g
 
 With the introduction of Pokémon Red and Blue and the following cartoon series, Charmander, Bulbasaur, and Squirtle to name a few have become cultural icons. However, there’s no Pokémon that can match the enthusiasm that fans of the series get on seeing Mewtwo. In this post, we’re going to talk about Mega Mewtwo X & Y. So, read on to find out how to evolve into a shiny version of Mewtwo and tips to get this Pokémon.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2148774/18498" target="_top" id="2148774">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148774" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148774/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 1: What Is Mega Mewtwo In Pokémon?
 
 Mewtwo is a Psychic-type Legendary Pokémon that’s introduced in Gen 1. Though it is not known for evolving into or from any other Pokémon, Mewtwo is capable of Mega Evolving into different forms known as –
@@ -470,13 +470,6 @@ Mewtwo is a Psychic-type Legendary Pokémon that’s introduced in Gen 1. Though
 Mega Mewtwo X from Mewtwonite X  
 Mega Mewtwo Y from Mewtwonite Y  
 Mega Mewtwo X is bulkier and bigger than its normal state. On the other hand, Mega Mewtwo Y is lighter and smaller than its normal state.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137208/26400" target="_top" id="2137208">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137208" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137208/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 2: How to Evolve Into Shiny Mega Mewtwo?
 
@@ -520,6 +513,13 @@ To perform Mega Evolution, you need to beat gym leader, Korrina. And this creatu
 
 It’s worth mentioning here that performing Mega Evolution of Mewtwo in Pokémon Go is yet not possible. Soon, Mewtwo will be in the list of Pokémon Go Mega Evolutions.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484950/16446" target="_top" id="1484950">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484950" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484950/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## The Bottom Line
 
 That’s all on Mewtwo Mega Evolution. Yes, Mega Mewtwo is the strongest Pokémon. To perform its Mega Evolution, it must hold its own special Mega Stone - Mewtwonite X or Mewtwonite Y. Trainers have to wear a bracelet called Mega Ring and it can be acquired at the Tower of Mastery in Shalour City, but you need to defeat the Gym Leader for that. With both things accessible, you can select the Mega Evolution option with an attack. Keep in mind that only one Pokémon per trainer is capable of Mega Evolving during each battle. Once a Pokémon is in its Mega form, it remains in that form until the battle completes.
@@ -538,18 +538,20 @@ That’s all on Mewtwo Mega Evolution. Yes, Mega Mewtwo is the strongest Pokémo
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-tele-loop-techniques-easy-endless-watching-on-television/"><u>[New] 2024 Approved Tele-Loop Techniques Easy, Endless Watching on Television</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/new-get-premium-video-openers-here/"><u>[New] Get Premium Video Openers Here</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/updated-synchronized-aesthetics-audio-meets-picture/"><u>[Updated] Synchronized Aesthetics Audio Meets Picture</u></a></li>
-<li><a href="https://article-tips.techidaily.com/2024-approved-utilize-automatic-hdr-feature-a-compreran-guide-to-windows-11/"><u>2024 Approved Utilize Automatic HDR Feature A Compreran Guide to Windows 11</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/download-wacom-intuos-prise-3-compatible-drivers-for-windows-guarantee-full-functionality/"><u>Download Wacom Intuos Prise 3 Compatible Drivers for Windows – Guarantee Full Functionality</u></a></li>
-<li><a href="https://win-web3.techidaily.com/effortlessly-clear-out-your-iphone-camera-roll-a-comprehensive-tutorial/"><u>Effortlessly Clear Out Your iPhone Camera Roll - A Comprehensive Tutorial</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-to-use-pokemon-go-joystick-on-apple-iphone-15-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, How to use Pokemon Go Joystick on Apple iPhone 15 Plus? | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-the-most-useful-tips-for-pokemon-go-ultra-league-on-apple-iphone-13-drfone-by-drfone-virtual-ios/"><u>In 2024, The Most Useful Tips for Pokemon Go Ultra League On Apple iPhone 13 | Dr.fone</u></a></li>
-<li><a href="https://fake-location.techidaily.com/life360-learn-how-everything-works-on-asus-rog-phone-8-pro-drfone-by-drfone-virtual-android/"><u>Life360 Learn How Everything Works On Asus ROG Phone 8 Pro | Dr.fone</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/metaverses-versus-omniverse-unveiled/"><u>Metaverses Versus Omniverse Unveiled</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/saving-instagram-content-easy-no-frill-methods-exposed/"><u>Saving Instagram Content Easy, No-Frill Methods Exposed</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-apple-iphone-14-pro-drfone-by-drfone-virtual-ios/"><u>The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Apple iPhone 14 Pro | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/what-legendaries-are-in-pokemon-platinum-on-apple-iphone-14-pro-drfone-by-drfone-virtual-ios/"><u>What Legendaries Are In Pokemon Platinum On Apple iPhone 14 Pro? | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-best-conversion-apps-enhance-tweets-with-video/"><u>[Updated] Best Conversion Apps Enhance Tweets with Video</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-capturing-clarity-selecting-10-superior-lenses-for-2024/"><u>[Updated] Capturing Clarity Selecting 10 Superior Lenses for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-seamless-easy-to-use-web-tools-for-gif-to-video-transformation/"><u>[Updated] Seamless, Easy-to-Use Web Tools for GIF to Video Transformation</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/achieving-precision-with-obs-implementing-timer-functionality-for-2024/"><u>Achieving Precision with OBS Implementing Timer Functionality for 2024</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/best-iphone-models-for-enthusiasts-of-mobile-gaming-a-comprehensive-guide/"><u>Best iPhone Models for Enthusiasts of Mobile Gaming: A Comprehensive Guide</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/best-pokemons-for-pvp-matches-in-pokemon-go-for-apple-iphone-se-drfone-by-drfone-virtual-ios/"><u>Best Pokemons for PVP Matches in Pokemon Go For Apple iPhone SE | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/detailed-guide-of-ispoofer-for-pogo-installation-on-apple-iphone-xs-drfone-by-drfone-virtual-ios/"><u>Detailed guide of ispoofer for pogo installation On Apple iPhone XS | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/how-can-i-catch-the-regional-pokemon-without-traveling-on-apple-iphone-8-plus-drfone-by-drfone-virtual-ios/"><u>How Can I Catch the Regional Pokémon without Traveling On Apple iPhone 8 Plus | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/how-to-bypass-frp-from-honor-80-pro-straight-screen-edition-by-drfone-android/"><u>How to Bypass FRP from Honor 80 Pro Straight Screen Edition?</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-detailed-guide-of-ispoofer-for-pogo-installation-on-apple-iphone-12-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, Detailed guide of ispoofer for pogo installation On Apple iPhone 12 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-apple-iphone-6-drfone-by-drfone-virtual-ios/"><u>In 2024, Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Apple iPhone 6 | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-what-legendaries-are-in-pokemon-platinum-on-apple-iphone-se-2020-drfone-by-drfone-virtual-ios/"><u>In 2024, What Legendaries Are In Pokemon Platinum On Apple iPhone SE (2020)? | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-which-pokemon-can-evolve-with-a-moon-stone-for-apple-iphone-11-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, Which Pokémon can Evolve with a Moon Stone For Apple iPhone 11 Pro? | Dr.fone</u></a></li>
+<li><a href="https://win-blog.techidaily.com/optimize-gameplay-on-avatar-frontiers-of-pandora-with-advanced-low-fps-troubleshooting-techniques/"><u>Optimize Gameplay on Avatar: Frontiers of Pandora with Advanced Low FPS Troubleshooting Techniques</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-10-best-spy-watches-for-your-asus-rog-phone-8-pro-drfone-by-drfone-virtual-android/"><u>Top 10 Best Spy Watches For your Asus ROG Phone 8 Pro | Dr.fone</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Unova Stone Pokémon Go Evolution List and How Catch Them For Apple iPhone XS Max | Dr.fone
-date: 2024-09-25T17:23:30.728Z
-updated: 2024-09-30T21:00:04.343Z
+date: 2024-10-10T16:07:50.714Z
+updated: 2024-10-12T16:03:42.529Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -18,6 +18,13 @@ thumbnail: https://thmb.techidaily.com/97d650cd0f6e07d2facd0c86f96f609a10afc326c
 Pokémon Go players anticipate new evolutions with much excitement. This is because evolutions take the gaming experience to another level. After being kept waiting, Pokémon Go players finally have a reason to put a smile on their faces. Pokémon Go has unleashed an important item for the evolution of generation 5 Pokémon in the Unova region. This item is called Unova Stone. In this article, we explain to you through every aspect and concept that pertains to Unova stone Pokémon go evolution.
 
 ## Part 1. Unova Stone Evolution
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/1995803/22899" target="_top" id="1995803">
+  <img src="//a.impactradius-go.com/display-ad/22899-1995803" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/1995803/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### What is Unova Stone
 
@@ -77,6 +84,19 @@ Unova Stone is a great evolution asset in Pokémon Go generation 5. You are alre
 
 ![virtual location 01](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
 
+<!-- affiliate ads begin -->
+<span id="1492813">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1492813.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1492813">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1492813.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1492813%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1492813/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 3.** On the next window, select the third icon (teleport) at the top-right to enter the teleport mode. Now type the name of the place you want to teleport to and press "Go."
 
 ![virtual location 04](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
@@ -85,6 +105,13 @@ Unova Stone is a great evolution asset in Pokémon Go generation 5. You are alre
 
 ![virtual location 06](https://images.wondershare.com/drfone/guide/virtual-location-06.png)
 
+<!-- affiliate ads begin -->
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576474/17382" target="_top" id="1576474">
+  <img src="//a.impactradius-go.com/display-ad/17382-1576474" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576474/17382" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2\. Use VPN
 
 You can leverage VPN to change your location and fool Pokémon to complete the research breakthrough. However, you should be cautious with the VPN provider. The good thing about VPN is that they are secure and do not require jailbreaking. The downside is that good VPNs are expensive and are restricted to server locations.
@@ -92,6 +119,13 @@ You can leverage VPN to change your location and fool Pokémon to complete the r
 ### 3\. iSpoofer
 
 This is a desktop-based spoofing tool which can help you fake your location. It does not require jailbreaking and thus can easily spoof for Pokémon Go. The downside is that it requires Windows PC and that the premium version is expensive.
+
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1815679/21290" target="_top" id="1815679">
+  <img src="//a.impactradius-go.com/display-ad/21290-1815679" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815679/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Pokémon Go Cooldown Chart On Apple iPhone XS Max
 
@@ -131,16 +165,16 @@ The cooldown time is proportional to the distance covered by the player. So, whe
 | 1000 km | 1 hour 30 minutes |
 | \>1500 km | 2 hour |
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2132161/7443" target="_top" id="2132161">
-  <img src="//a.impactradius-go.com/display-ad/7443-2132161" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132161/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2\. How long must I wait to avoid a softban?
 
 The waiting period for a soft ban is around 12 hours. After this time, if you can try and catch a Pokémon, it means the soft ban is over.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975836/19272" target="_top" id="1975836">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975836" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975836/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 3\. Actions that Do trigger cooldown?
 
@@ -209,23 +243,9 @@ Looking for a Pokémon Go Spoofer that's still working? Or thinking about [how t
 
 ![drfone-home](https://images.wondershare.com/drfone/guide/drfone-home.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959778/19272" target="_top" id="1959778">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959778" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959778/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Connect your phone to the system and click on the "Get Started" button to start the process.
 
 ![virtual-location](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094476/7443" target="_top" id="2094476">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094476" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094476/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 2:** Select a location to teleport
 
@@ -243,18 +263,18 @@ When you reach the target location and move your pin, click the "Move Here" butt
 
 ![virtual-location](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975821/19272" target="_top" id="1975821">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975821" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975821/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Voila! You have teleported your location to the desired place.
 
 ![virtual-location](https://images.wondershare.com/drfone/guide/virtual-location-07.png)
 
 When you want to stop this teleporting, simply click the "Stop Simulation" button and your real location will take effect.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2027190/19272" target="_top" id="2027190">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027190" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027190/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Conclusion
 
@@ -287,10 +307,10 @@ Many games have thronged our screens but not many matches Pokemon. Once you down
 Likewise, players are assured of being on the right trail when they use navigation apps with gpx files. And whey they get off track, they can redirect themselves to the path and continue gaming.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123733/7443" target="_top" id="2123733">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123733" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135405/19272" target="_top" id="2135405">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135405" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123733/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135405/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2：Where to find the iTools gpx file
@@ -313,13 +333,6 @@ With ThinkSky, you can add gpx file to iTools and fake your gps location. This a
 
 ![click copy to clipboard](https://images.wondershare.com/drfone/2020/2020/copy-to-clipboard.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136625/26400" target="_top" id="2136625">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136625" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136625/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 - Then, confirm group name and click on the ‘Save’ icon. You’ll see it located besides the search bar.
 
 ![Click the confirm button](https://images.wondershare.com/drfone/2020/2020/confirm-group-name.jpg)
@@ -327,19 +340,6 @@ With ThinkSky, you can add gpx file to iTools and fake your gps location. This a
 - Lastly, input the coordinates names and group name and then export your favorite location list.
 
 ![click=](https://images.wondershare.com/drfone/2020/2020/import-location.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1498635">
-					<video width="320" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1498635.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/17326-1498635">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1498635.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:200px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fancheer.sjv.io%2Fc%2F5597632%2F1498635%2F17326'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1498635/17326" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 3：Is there any safer tool to spoof Pokemon with iTools file?
 
@@ -366,10 +366,16 @@ You can also add your favorite iSpoofer gpx routes. To add any spot into your fa
 ![Enter address and click Go](https://images.wondershare.com/drfone/guide/search-favorites.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2132160/7443" target="_top" id="2132160">
-  <img src="//a.impactradius-go.com/display-ad/7443-2132160" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132160/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983582">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983582.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983582">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983582.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983582%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983582/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **The Bottom Line**
@@ -390,18 +396,24 @@ Being a first timer, you may find it very complicated to fake your gps location.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/updated-insider-tips-selecting-the-best-ig-video-editors-for-success-for-2024/"><u>[Updated] Insider Tips Selecting the Best IG Video Editors for Success for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-students-guide-to-engaging-with-top-10-history-vids/"><u>[Updated] Students' Guide to Engaging with Top 10 History Vids</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/updated-unlocking-srt-files-accessing-on-windowsmac/"><u>[Updated] Unlocking SRT Files Accessing on Windows/Mac</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/catchemall-celebrate-national-pokemon-day-with-virtual-location-on-apple-iphone-13-pro-drfone-by-drfone-virtual-ios/"><u>CatchEmAll Celebrate National Pokémon Day with Virtual Location On Apple iPhone 13 Pro | Dr.fone</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/enhancing-dialogue-with-chatgpt-and-macsynchrony/"><u>Enhancing Dialogue with ChatGPT & MacSynchrony</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/here-are-some-of-the-best-pokemon-discord-servers-to-join-on-apple-iphone-se-2022-drfone-by-drfone-virtual-ios/"><u>Here are Some of the Best Pokemon Discord Servers to Join On Apple iPhone SE (2022) | Dr.fone</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-change-location-on-tiktok-to-see-more-content-on-your-nokia-c12-plus-drfone-by-drfone-virtual-android/"><u>How to Change Location on TikTok to See More Content On your Nokia C12 Plus | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-and-where-to-find-a-shiny-stone-pokemon-for-apple-iphone-x-drfone-by-drfone-virtual-ios/"><u>In 2024, How and Where to Find a Shiny Stone Pokémon For Apple iPhone X? | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-can-i-get-more-stardust-in-pokemon-go-on-apple-iphone-15-drfone-by-drfone-virtual-ios/"><u>In 2024, How can I get more stardust in pokemon go On Apple iPhone 15? | Dr.fone</u></a></li>
-<li><a href="https://extra-information.techidaily.com/professional-review-prime-drone-gimbals/"><u>Professional Review Prime Drone Gimbals</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/the-intricacies-of-enhanced-digital-worlds/"><u>The Intricacies of Enhanced Digital Worlds</u></a></li>
-<li><a href="https://windows11.techidaily.com/uncovering-the-invisible-workers-in-win11/"><u>Uncovering the Invisible Workers in Win11</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/why-does-the-pokemon-go-battle-league-not-available-on-apple-iphone-11-pro-max-drfone-by-drfone-virtual-ios/"><u>Why does the pokemon go battle league not available On Apple iPhone 11 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-beat-bazaar-curation-of-superior-dj-video-samples-for-download/"><u>[New] Beat Bazaar Curation of Superior DJ Video Samples for Download</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-frame-freezing-banishing-blurry-bites/"><u>[Updated] Frame Freezing Banishing Blurry Bites</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-apple-iphone-13-mini-drfone-by-drfone-virtual-ios/"><u>15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Apple iPhone 13 mini | Dr.fone</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-master-the-dark-and-light-iphone-silhouette-tips/"><u>2024 Approved Master the Dark & Light IPhone Silhouette Tips</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/a-working-guide-for-pachirisu-pokemon-go-map-on-apple-iphone-15-pro-drfone-by-drfone-virtual-ios/"><u>A Working Guide For Pachirisu Pokemon Go Map On Apple iPhone 15 Pro | Dr.fone</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/comprehensive-computer-component-analysis-by-toms-hardware-gurus/"><u>Comprehensive Computer Component Analysis by Tom's Hardware Gurus</u></a></li>
+<li><a href="https://discover-hacks.techidaily.com/convertisseur-de-videos-online-professionnel-convertissez-en-formats-video-populaires-comme-le-mp4-mov-avi-pour-une-diffusion-facile-sur-internet/"><u>Convertisseur De Vidéos Online Professionnel : Convertissez en Formats Vidéo Populaires Comme Le MP4, MOV, AVI Pour Une Diffusion Facile Sur Internet</u></a></li>
+<li><a href="https://fox-http.techidaily.com/decreasing-volume-gradually-in-garageband/"><u>Decreasing Volume Gradually in Garageband</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/how-does-the-stardust-trade-cost-in-pokemon-go-on-apple-iphone-12-pro-max-drfone-by-drfone-virtual-ios/"><u>How does the stardust trade cost In pokemon go On Apple iPhone 12 Pro Max? | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-apple-iphone-6-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, 15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Apple iPhone 6 Plus | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-best-pokemons-for-pvp-matches-in-pokemon-go-for-apple-iphone-14-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, Best Pokemons for PVP Matches in Pokemon Go For Apple iPhone 14 Pro | Dr.fone</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/in-2024-deciphering-derailed-tiktok-videos-functionality/"><u>In 2024, Deciphering Derailed TikTok Videos' Functionality</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-heres-everything-you-should-know-about-pokemon-stops-in-detail-on-apple-iphone-6s-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, Heres Everything You Should Know About Pokemon Stops in Detail On Apple iPhone 6s Plus | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-pokemon-go-no-gps-signal-heres-every-possible-solution-on-apple-iphone-se-2020-drfone-by-drfone-virtual-ios/"><u>In 2024, Pokemon Go No GPS Signal? Heres Every Possible Solution On Apple iPhone SE (2020) | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/is-mega-mewtwo-the-strongest-pokemon-on-apple-iphone-12-mini-drfone-by-drfone-virtual-ios/"><u>Is Mega Mewtwo The Strongest Pokémon On Apple iPhone 12 mini? | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/reasons-why-pokemon-gps-does-not-work-on-apple-iphone-13-pro-drfone-by-drfone-virtual-ios/"><u>Reasons why Pokémon GPS does not Work On Apple iPhone 13 Pro? | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-pros-and-cons-of-the-elite-samsung-galaxy-tab-s7plus-experience/"><u>Unveiling the Pros and Cons of the Elite Samsung Galaxy Tab S7+ Experience</u></a></li>
+<li><a href="https://some-skills.techidaily.com/unveiling-youtubes-finest-story-sages-and-weavers-in-23-for-2024/"><u>Unveiling YouTube's Finest Story Sages and Weavers in '23 for 2024</u></a></li>
+<li><a href="https://driver-install.techidaily.com/windows-7-driver-set-lenovo-y470-laptop/"><u>Windows 7 Driver Set - Lenovo Y470 Laptop</u></a></li>
 </ul></div>
 

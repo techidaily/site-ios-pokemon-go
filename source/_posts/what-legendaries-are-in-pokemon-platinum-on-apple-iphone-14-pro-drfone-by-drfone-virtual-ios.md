@@ -1,7 +1,7 @@
 ---
 title: What Legendaries Are In Pokemon Platinum On Apple iPhone 14 Pro? | Dr.fone
-date: 2024-09-24T17:28:56.217Z
-updated: 2024-10-01T15:16:49.139Z
+date: 2024-10-08T16:06:35.164Z
+updated: 2024-10-12T16:06:26.754Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -75,13 +75,6 @@ There are about 18 platinum legendaries Pokemon that you can obtain per game car
 
 **18\. Arceus:** Arceus, the level 80 Pokemon, is also an event-only Pokemon who is accessible with the Azure Flute obtained from Nintendo Event. At the Spear Pillar, you will be asked if you want to play the flute. If yes, the flute is played and a huge staircase appears. Climb up the staircase and you will find the Pokemon resting there. Go up and battle him.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144308/7443" target="_top" id="2144308">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144308" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144308/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2: How do you catch the legendary Pokemon in platinum?
 
 There are a few cheats to capture platinum legendaries in Pokemon. In addition to the official methods discusses above, you can use action replay codes or try location spoofing.
@@ -111,10 +104,16 @@ For this illustration, we will use using Dr.fone to see how to iPhone GPS spoofi
 ![Platinum legendaries 10](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
 
 <!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1166360/14483" target="_top" id="1166360">
-  <img src="//a.impactradius-go.com/display-ad/14483-1166360" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1166360/14483" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1993647">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993647.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993647">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993647%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993647/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Step 3:** Next, click on ‘Get Started’ and select the desired fake location on the map you see on the Dr.Fone app. At the top-right corner of the window, there are three icons. Click on the third icon - Teleport. Next, tap on the desired location or enter the name of the location in the search box you see on the left side.
@@ -141,9 +140,23 @@ Frankly, Mewtwo can be located only in the Cerulean Cave that further locates in
 
 According to some users, you can get Mewtwo with Pokemon Fire Red or Leaf Green. With these in hand, you can obtain Mewtwo in cerulean cave once you have defeated the Elite 4.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948895/19272" target="_top" id="1948895">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948895" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948895/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 Hopefully, these comprehensive guides help you learn about all legendaries in Platinum. Advisably, using the location spoofing with a reliable app like [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) can be a great way to capture more legendary Pokemon in a much easier way.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972693/19272" target="_top" id="1972693">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972693" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972693/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Where Is the Best Place to Catch Dratini On Apple iPhone 14 Pro
 
@@ -189,13 +202,6 @@ If the Dratini nest migrates, it can still come back in the future. You should a
 
 Dratini nests will migrate on alternate Thursdays at midnight. The nest migrations are random, so make sure that you visit and hit them many times over the two weeks in order to get the most Dratini that you can.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151893/7443" target="_top" id="2151893">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151893" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151893/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 4: How to increase the possibility of earning Pokémon Go Dratini?
 
 As mentioned earlier, Dratini can be found in certain places around the world. If you live outside these regions, you cannot be able to get Dratini. The best way to go about getting Dratini in such cases is to virtually relocate your device. This means that you can take your device to Tokyo nest sites even if you live in Africa.
@@ -221,16 +227,16 @@ Next, click on “Get Started”; you will now be able to start the spoofing pro
 
 ![virtual location 01](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959707/19272" target="_top" id="1959707">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959707" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959707/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Looking at the map, you can now see the actual location of your device. If the coordinates are not the correct ones, go to the bottom of your computer screen and click on the “Current Virtual location” icon. This will instantly point to the current virtual location of your device.
 
 ![virtual location 03](https://images.wondershare.com/drfone/guide/virtual-location-03.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037345/7443" target="_top" id="2037345">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037345" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037345/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Now go to the top side of your computer screen and click on the third icon on the bar. This instantly puts you in “teleport” mode. Now enter the coordinates of the Dratini nest that you have located. Hit the “Go” button and your device will instantly be teleported to the coordinates you entered.
 
@@ -254,6 +260,13 @@ This is how your location will be viewed on another iPhone device.
 
 ![virtual location 07](https://images.wondershare.com/drfone/guide/virtual-location-07.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918679/19272" target="_top" id="1918679">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918679" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918679/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## In conclusion
 
 Dratini is one of the most friendly but rare Pokémon to get. It can evolve from a small serpentine worm, into a might, good-hearted dragon. This is one of the Pokémon that people love to farm for trading and taking part in raids and such events.
@@ -261,10 +274,10 @@ Dratini is one of the most friendly but rare Pokémon to get. It can evolve from
 When you need to, you can teleport your device to an area where Dratini is popular using [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) (iOS). Use the Dratini nest maps to find Dratini, and then visit the area or teleport there.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049387/7443" target="_top" id="2049387">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049387" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082527/7443" target="_top" id="2082527">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082527" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049387/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082527/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to get the dragon scale and evolution-enabled pokemon On Apple iPhone 14 Pro?
@@ -284,18 +297,24 @@ Following are the additional evolution items observed in Pokémon Go:
 
 ![pokemon go](https://images.wondershare.com/drfone/2020/pokemon-go.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1993652">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 1：What Pokémon can I evolve with a dragon scale on Pokémon Go?
 
 The pokemon go dragon scale is one of the new evolution objects that can be employed in association with Pokemon Candy to evolve some of the generation 1 Pokemon to new generation 2 evolutions. The dragon scale is extremely strong and rigid. We can only make use of our Dragon Scale on a specific Pokemon. Dragon scale pokemon go evolutions contain the alteration of Seadra into Kingdra by combining the dragon scale along with 100 Horsea candies - making Kingdra a sturdy pocket monster ideal for raids and taking charge over the gyms.
 
 ![seadra evolving to kingdra](https://images.wondershare.com/drfone/2020/seadra-evolving-to-kingdra.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036467/19272" target="_top" id="2036467">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036467" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036467/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Once receiving a Dragon Scale, a player can only use it to evolve Seadra. Any other Pokemon will not evolve with it or even need it to evolve.
 
@@ -313,31 +332,11 @@ You can click the ‘Get Started’ button to initiate the action as soon as you
 
 ![virtual location 01](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135399/19272" target="_top" id="2135399">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135399" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135399/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 2: Mirroring Motion amid steps:**
 
 Unfold the top right area of the initial option before reaching Dr. Fone's GUI, which permits you to imitate maneuver amid the two spots. Pick the positioning pin and click on the ‘transfer here’ button in the search bar.
 
 ![virtual location 08](https://images.wondershare.com/drfone/guide/virtual-location-08.png)
-
-<!-- affiliate ads begin -->
-<span id="1770776">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770776.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770776">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770776.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770776%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770776/20702" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 To begin the replication, you will be required to make a movement and traverse the 'March' button to reach it multiple times. By default, the action is set to one but can be outweighed by the user, and the plan will change correspondingly.
 
@@ -356,6 +355,13 @@ Dr. Fone's application also lets you fake your motion joining more than two posi
 To let the system duplicate flow by choosing the accurate choices, press the 'March' button. You will have to do the Pokémon Go walking trick at some point. Dr. Fone's virtual motion replicator application makes your life a lot easier and lets you do the job without having to worry about travel charges.
 
 ![virtual location 12](https://images.wondershare.com/drfone/guide/virtual-location-12.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918703/19272" target="_top" id="1918703">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918703" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918703/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3: How to get the dragon scale on Pokémon Go?
 
@@ -381,20 +387,22 @@ Specific Pokémon in Pokémon GO now call for rare evolution items such as a ste
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-close-encounters-experiencing-roblox-at-greater-detail/"><u>[New] Close Encounters Experiencing Roblox At Greater Detail</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/n-2024-boost-engagement-through-best-thumbnail-practices/"><u>[New] In 2024, Boost Engagement Through Best Thumbnail Practices</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-camslice-critique-for-2024/"><u>[Updated] CamSlice Critique for 2024</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-best-app-selection-perfecting-your-windows-display-captures/"><u>[Updated] In 2024, Best App Selection Perfecting Your Windows Display Captures</u></a></li>
-<li><a href="https://article-tips.techidaily.com/2024-approved-best-metaverse-tech-the-ultimate-goggles-and-hmds-list/"><u>2024 Approved Best Metaverse Tech The Ultimate Goggles and HMDs List</u></a></li>
-<li><a href="https://fox-place.techidaily.com/comprehensive-guide-to-various-virtualization-implementation-models/"><u>Comprehensive Guide to Various Virtualization Implementation Models</u></a></li>
-<li><a href="https://network-issues.techidaily.com/horizontal-monitor-solution-found/"><u>Horizontal Monitor Solution Found</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/how-and-where-to-find-a-shiny-stone-pokemon-for-apple-iphone-11-drfone-by-drfone-virtual-ios/"><u>How and Where to Find a Shiny Stone Pokémon For Apple iPhone 11? | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-pause-life360-location-sharing-for-tecno-phantom-v-fold-drfone-by-drfone-virtual-android/"><u>How To Pause Life360 Location Sharing For Tecno Phantom V Fold | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-apple-iphone-14-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, 15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Apple iPhone 14 Pro | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-preparation-to-beat-giovani-in-pokemon-go-for-apple-iphone-12-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, Preparation to Beat Giovani in Pokemon Go For Apple iPhone 12 Pro Max | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-top-15-augmented-reality-games-like-pokemon-go-to-play-on-apple-iphone-6s-drfone-by-drfone-virtual-ios/"><u>In 2024, Top 15 Augmented Reality Games Like Pokémon GO To Play On Apple iPhone 6s | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-why-is-ipogo-not-working-on-apple-iphone-6-fixed-drfone-by-drfone-virtual-ios/"><u>In 2024, Why is iPogo not working On Apple iPhone 6? Fixed | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/why-is-ipogo-not-working-on-apple-iphone-se-fixed-drfone-by-drfone-virtual-ios/"><u>Why is iPogo not working On Apple iPhone SE? Fixed | Dr.fone</u></a></li>
-<li><a href="https://driver-download.techidaily.com/1722972387434-windows-compatible-sapphire-driver-downloads-improve-your-gaming-experience-today/"><u>Windows-Compatible Sapphire Driver Downloads: Improve Your Gaming Experience Today!</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/inding-peace-in-patience-slowing-down-your-online-video-experience-on-youtube-60-chars-a-bit-long-but-full-of-helpful-info-for-2024/"><u>[New] Finding Peace in Patience Slowing Down Your Online Video Experience on YouTube (60 Chars, a Bit Long but Full of Helpful Info) for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-in-2024-the-ultimate-manual-to-earn-through-vimeos-revenue-channels/"><u>[New] In 2024, The Ultimate Manual to Earn Through Vimeo's Revenue Channels</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-quip-collection-event-specific-jest-compilation/"><u>[New] Quip Collection Event-Specific Jest Compilation</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-convenient-viewing-setting-up-youtube-on-large-tv-panels/"><u>[Updated] 2024 Approved Convenient Viewing Setting Up YouTube on Large TV Panels</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-cyclings-finest-gaming-experiences/"><u>[Updated] Cycling's Finest Gaming Experiences</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-in-2024-discover-free-and-paid-luts-for-profound-canon-camera-effects/"><u>[Updated] In 2024, Discover Free & Paid LUTs for Profound Canon Camera Effects</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/ai-enabled-revolution-in-hr-task-management/"><u>AI-Enabled Revolution in HR Task Management</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/chagpt-side-job-potential-a-money-making-perspective/"><u>ChaGPT Side Job Potential: A Money-Making Perspective</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/diagnosing-and-fixing-the-minecraft-not-responding-error-for-smooth-gaming-experience/"><u>Diagnosing and Fixing the 'Minecraft Not Responding' Error for Smooth Gaming Experience</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/economical-yet-abundant-dive-into-the-extensive-collection-available-with-roku-express/"><u>Economical Yet Abundant: Dive Into the Extensive Collection Available with Roku Express</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/exploring-the-inherent-add-ons-of-chatgpt-and-their-functionalities/"><u>Exploring the Inherent Add-Ons of ChatGPT and Their Functionalities</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-track-a-lost-honor-x9b-for-free-drfone-by-drfone-virtual-android/"><u>How to Track a Lost Honor X9b for Free? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-pokemon-go-error-12-failed-to-detect-location-on-realme-11x-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Pokemon Go Error 12 Failed to Detect Location On Realme 11X 5G? | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/overcoming-common-challenges-solving-persistent-chivalry-ii-crash-errors/"><u>Overcoming Common Challenges: Solving Persistent Chivalry II Crash Errors</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/troubleshooting-microsoft-teams-microphone-problems-on-windows-1110-devices/"><u>Troubleshooting Microsoft Teams Microphone Problems on Windows 11/10 Devices</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/troubleshooting-steps-for-faulty-onikuma-mic-setup-fixed/"><u>Troubleshooting Steps for Faulty Onikuma Mic Setup [FIXED]</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/winning-back-smooth-gameplay-fps-enhancements-for-dota-2-on-modern-windows-systems/"><u>Winning Back Smooth Gameplay: FPS Enhancements for Dota 2 on Modern Windows Systems</u></a></li>
 </ul></div>
 

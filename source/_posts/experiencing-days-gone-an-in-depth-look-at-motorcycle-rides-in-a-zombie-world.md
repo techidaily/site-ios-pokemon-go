@@ -1,7 +1,7 @@
 ---
 title: "Experiencing Days Gone: An In-Depth Look at Motorcycle Rides in a Zombie World"
-date: 2024-10-01T19:32:21.490Z
-updated: 2024-10-06T16:20:14.709Z
+date: 2024-10-05T16:01:11.842Z
+updated: 2024-10-12T16:00:22.952Z
 categories:
   - BestProducts
 description: "This Article Describes Experiencing Days Gone: An In-Depth Look at Motorcycle Rides in a Zombie World"
@@ -42,13 +42,6 @@ Lifewire / Claire Cohen
 
 ![Motorola MG7700](https://www.lifewire.com/thmb/3X3Cjz1mO5USWmPRXT1W5zSdqOE=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/hero-4082541-3-2-5c8fadb846e0fb00014a9735.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087408/7443" target="_top" id="2087408">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087408" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087408/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire / Claire Cohen
 
 [View On Walmart $249](https://www.walmart.com/ip/652216495) [View On Best Buy $36](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2F6298663.p)
@@ -73,6 +66,13 @@ Lifewire / Claire Cohen
 
  We recently reviewed the MG7700 to examine just how well it would perform in an average home environment by evaluating the design, ease of setup, network speeds, and software features.
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2005196/22899" target="_top" id="2005196">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005196" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005196/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Design: Simple and functional
 
  The Motorola MG7700 is fairly compact at 9.1 x 2.6 x 2.6 inches with a gray finish and a black stand. On the front of the device, you’ll find several indicator lights that tell you if it’s powered up, whether any traffic is flowing through your network, and if people are connected to your wireless network. The light indicators are easy to see and understand — something you don’t typically find in a modem from your cable company.
@@ -89,6 +89,13 @@ Lifewire / Claire Cohen
 
  The Best Cable Modems on the Market
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134228/18498" target="_top" id="2134228">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134228" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134228/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Setup Process: Location, location, location
 
  Since the Motorola MG7700 is a combined cable modem and router, you’ll need to plug it into[your ISP’s coaxial cable](https://www.lifewire.com/introduction-to-network-cables-817868) in order to pipe Internet into your home. This can limit your placement locations a bit since coax cables are often installed by your provider in less-than-ideal locations, especially if you live in an apartment building.
@@ -98,6 +105,13 @@ Lifewire / Claire Cohen
  If you do get the choice of where it’s installed, you usually want the coax cable to come in from an unobtrusive corner, not sprouting out from the middle of the living room in an unsightly fashion. Unfortunately, that’s bad for routers which work best in a central location of your house or apartment so the signal covers everywhere you need. If you can’t get find a good spot away from other wireless devices, metal, walls, and other barriers that can impede signal, you may want to invest in a coax cable extension.
 
 ![Motorola 7700](https://www.lifewire.com/thmb/RfuGGYo_UZvzWOQw8Rb7KZnMkhs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4082541-3-1-5c8faf2dc9e77c00014a9db2.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938693/19272" target="_top" id="1938693">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938693" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938693/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Claire Cohen
 
@@ -119,13 +133,6 @@ Lifewire / Claire Cohen
 
  The “1900” represents the maximum theoretical bandwidth the router is capable of. In this case, the MG7700 could hit 1,900 Mbps, but again, this is only if your cable provider supports it, not to mention other factors like wireless interference due to congested bands and throttling from your provider.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886015/19272" target="_top" id="1886015">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886015" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886015/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Network Performance: Fast speeds with a caveat
 
  Once we got the modem up and running, it delivered outstanding speeds, reliably maxing out our 100 Mbps Spectrum plan when we were hard-wired via the LAN ports.
@@ -139,10 +146,10 @@ Lifewire / Claire Cohen
 ![Motorola MG7700](https://www.lifewire.com/thmb/pHbG256tJv_ubRtv-HdKUka66IA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4082541-3-3-5c8fb059c9e77c0001a926bf.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151888/7443" target="_top" id="2151888">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151888" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037338/7443" target="_top" id="2037338">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037338" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151888/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037338/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Claire Cohen
@@ -155,6 +162,13 @@ Lifewire / Claire Cohen
 
  The MG7700’s built-in software is customizable, too. Once your router is set up, you can go to a specified IP address (the instructions will tell you which one) in your Web browser to change settings, including the name of the default network, enabling password protection, toggling the channels your router will communicate on, and more. There’s also an Advanced page that allows you to set up a[firewall](https://www.lifewire.com/definition-of-firewall-817568) or enable parental controls. Overall, the settings are well laid out, easy to understand, and simple to change.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036481/19272" target="_top" id="2036481">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036481" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036481/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Price: Good value for the speed
 
  At $189.99 (MSRP), the MG7700 isn’t quite as a cheap as standalone modems, which can cost as little as $30, but incorporating both a modem and router into one device makes the price more palatable.
@@ -162,19 +176,6 @@ Lifewire / Claire Cohen
  Overall, if you live in a large apartment or a modestly-sized home, you won’t be disappointed by the performance of the MG7700.
 
  Taking into account the fact that your service providers rental fees can run to $10 to $12 a month, the MG7700 could pay for itself in a little over the year. And the price isn’t unusual for the market, other bestselling modem and router units such as the $199.99 TP-Link Archer CR1900 will cost you about the same for a similar set of capabilities.
-
-<!-- affiliate ads begin -->
-<span id="1982570">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982570.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982570">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982570.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982570%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982570/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Motorola MG7700 vs. TP-Link Archer CR1900
 
@@ -189,13 +190,6 @@ Lifewire / Claire Cohen
  **Fast and easy to use, this modem/router combo is a must-buy.**
 
  The Motorola MG 7700 boasts four gigabit-ready LAN ports, delivered blazing fast 100Mbps speeds over dual-band Wi-Fi in our testing, and has outstanding user controls that are easy for anyone to use. It does best in homes of 2,000 square feet and can handle a dozen devices or more. That said, if you’re someone with a larger home or higher bandwidth requirements for a large number of devices, you may be better served by a tri-band router.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094421/7443" target="_top" id="2094421">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094421" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094421/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
 
@@ -238,24 +232,18 @@ Lifewire / Claire Cohen
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-helps.techidaily.com/new-in-2024-pixelated-past-x-era-selfies-with-iphone-x/"><u>[New] In 2024, Pixelated Past X-Era Selfies with iPhone X</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-in-2024-unveiling-the-secrets-of-facebook-videos/"><u>[New] In 2024, Unveiling the Secrets of Facebook Videos</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-enrich-your-browsing-routine-picture-in-picture-techniques-for-edge/"><u>[Updated] 2024 Approved Enrich Your Browsing Routine Picture-in-Picture Techniques for Edge</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-no-limit-story-saving-at-the-tap-of-a-button/"><u>[Updated] In 2024, No-Limit Story Saving at the Tap of a Button</u></a></li>
-<li><a href="https://techidaily.com/complete-guide-to-hard-reset-your-oppo-a2-drfone-by-drfone-reset-android-reset-android/"><u>Complete Guide to Hard Reset Your Oppo A2 | Dr.fone</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/evolution-or-revolution-ais-effect-on-video-game-industry/"><u>Evolution or Revolution? AI's Effect on Video Game Industry</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/how-can-i-catch-the-regional-pokemon-without-traveling-on-apple-iphone-12-drfone-by-drfone-virtual-ios/"><u>How Can I Catch the Regional Pokémon without Traveling On Apple iPhone 12 | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/how-to-enter-the-ispoofer-discord-server-on-apple-iphone-15-drfone-by-drfone-virtual-ios/"><u>How to enter the iSpoofer discord server On Apple iPhone 15 | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/how-to-fix-pokemon-go-route-not-working-on-apple-iphone-14-plus-drfone-by-drfone-virtual-ios/"><u>How to Fix Pokemon Go Route Not Working On Apple iPhone 14 Plus? | Dr.fone</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-motorola-moto-g04-phone-without-google-account-by-drfone-android/"><u>How to Unlock Motorola Moto G04 Phone without Google Account?</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/how-to-use-pokemon-emerald-master-ball-cheat-on-apple-iphone-15-drfone-by-drfone-virtual-ios/"><u>How to Use Pokémon Emerald Master Ball Cheat On Apple iPhone 15 | Dr.fone</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-4-feasible-ways-to-fake-location-on-facebook-for-your-xiaomi-redmi-note-12-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 4 Feasible Ways to Fake Location on Facebook For your Xiaomi Redmi Note 12 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-apple-iphone-13-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, 9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Apple iPhone 13 Pro | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-catchemall-celebrate-national-pokemon-day-with-virtual-location-on-apple-iphone-15-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, CatchEmAll Celebrate National Pokémon Day with Virtual Location On Apple iPhone 15 Pro | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-apple-iphone-xs-max-drfone-by-drfone-virtual-ios/"><u>In 2024, Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Apple iPhone XS Max | Dr.fone</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/in-2024-spinning-stars-olympic-ice-celebrations/"><u>In 2024, Spinning Stars Olympic Ice Celebrations</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/new-in-2024-how-to-make-an-adorable-video-for-your-babys-first-year/"><u>New In 2024, How to Make an Adorable Video for Your Babys First Year</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/pokemon-go-error-12-failed-to-detect-location-on-apple-iphone-6s-plus-drfone-by-drfone-virtual-ios/"><u>Pokemon Go Error 12 Failed to Detect Location On Apple iPhone 6s Plus? | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/ultimate-guide-to-get-the-meltan-box-pokemon-go-for-apple-iphone-6s-drfone-by-drfone-virtual-ios/"><u>Ultimate guide to get the meltan box pokemon go For Apple iPhone 6s | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-raise-the-bar-top-8-speed-up-video-apps/"><u>[New] 2024 Approved Raise the Bar Top 8 Speed Up Video Apps</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-affordable-wide-angle-vr-cameras-for-filmmaking/"><u>[Updated] In 2024, Affordable Wide-Angle VR Cameras for Filmmaking</u></a></li>
+<li><a href="https://techidaily.com/all-things-you-need-to-know-about-wipe-datafactory-reset-for-samsung-galaxy-a25-5g-drfone-by-drfone-reset-android-reset-android/"><u>All Things You Need to Know about Wipe Data/Factory Reset For Samsung Galaxy A25 5G | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/here-are-different-ways-to-find-pokemon-go-trainer-codes-to-add-to-your-account-on-apple-iphone-se-2022-drfone-by-drfone-virtual-ios/"><u>Here are Different Ways to Find Pokemon Go Trainer Codes to Add to Your Account On Apple iPhone SE (2022) | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-harness-the-potential-of-obs-studio-by-mastering-lut-application-techniques/"><u>In 2024, Harness the Potential of OBS Studio by Mastering LUT Application Techniques</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-and-where-to-find-a-shiny-stone-pokemon-for-apple-iphone-x-drfone-by-drfone-virtual-ios/"><u>In 2024, How and Where to Find a Shiny Stone Pokémon For Apple iPhone X? | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-can-i-get-more-stardust-in-pokemon-go-on-apple-iphone-15-drfone-by-drfone-virtual-ios/"><u>In 2024, How can I get more stardust in pokemon go On Apple iPhone 15? | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-to-enter-the-ispoofer-discord-server-on-apple-iphone-12-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, How to enter the iSpoofer discord server On Apple iPhone 12 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-the-ultimate-guide-how-to-bypass-swipe-screen-to-unlock-on-vivo-x100-device-by-drfone-android/"><u>In 2024, The Ultimate Guide How to Bypass Swipe Screen to Unlock on Vivo X100 Device</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/maintaining-conversation-confidentiality-with-chatgpt-tips-and-tricks/"><u>Maintaining Conversation Confidentiality with ChatGPT: Tips and Tricks</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/practical-guide-to-disregarding-false-security-alarms-in-chrome/"><u>Practical Guide to Disregarding False Security Alarms in Chrome</u></a></li>
+<li><a href="https://discover-answers.techidaily.com/seamless-image-migration-moving-pictures-from-google-pixel-asteroids-to-your-personal-desktop-pc/"><u>Seamless Image Migration: Moving Pictures From Google Pixel Asteroids to Your Personal Desktop PC</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/why-does-the-pokemon-go-battle-league-not-available-on-apple-iphone-11-pro-max-drfone-by-drfone-virtual-ios/"><u>Why does the pokemon go battle league not available On Apple iPhone 11 Pro Max | Dr.fone</u></a></li>
 </ul></div>
 

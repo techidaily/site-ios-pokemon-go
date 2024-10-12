@@ -1,7 +1,7 @@
 ---
 title: What Legendaries Are In Pokemon Platinum On Apple iPhone 12? | Dr.fone
-date: 2024-09-30T10:28:18.209Z
-updated: 2024-10-01T06:25:31.941Z
+date: 2024-10-08T16:02:03.831Z
+updated: 2024-10-12T16:02:57.640Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -88,10 +88,10 @@ Make sure you get these codes only from reliable websites or sources. Otherwise,
 ![Platinum legendaries 8](https://images.wondershare.com/drfone/Platinum-legendaries-8.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111964/7443" target="_top" id="2111964">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111964" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151864/7443" target="_top" id="2151864">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151864" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111964/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151864/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2.2 Location Spoofing with Dr. Fone Virtual Location
@@ -144,6 +144,20 @@ If you have been playing Pokemon PvP battle leagues, then you might already know
 
 ![pokemon go pvp tier list banner](https://images.wondershare.com/drfone/2020/pokemon-go-pvp-tier-list-banner.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012429/19272" target="_top" id="2012429">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012429" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012429/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087408/7443" target="_top" id="2087408">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087408" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087408/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 1: How are Pokemon Go PvP Tier Lists Evaluated?
 
 Before you go through our carefully calculated great, ultra, and master league Pokemon Go tier list, you should know some basics. Ideally, the following parameters are considered while placing any Pokemon in a tier list.
@@ -168,13 +182,6 @@ In Great League matches, the maximum CP of any Pokemon can be 1500. Considering 
 
 <table><tbody><tr><td>Tier 1 (5/5 rating)</td><td>Altaria, Skarmory, Azumarill, and Glarian Stunfisk</td></tr></tbody><tbody><tr><td>Tier 2 (4.5/5 rating)</td><td>Umbreon, Swampert, Lanturn, Stunfisk, Dexoxys, Venusaur, Haunter, Jirachi, Lapras, Mew, and Whiscash</td></tr><tr><td>Tier 3 (4/5 rating)</td><td>Ivysaur, Uxie, Alolan Ninetales, Scrafty, Mawile, Wigglytuff, Clefable, Marshtomp, and Skuntank</td></tr><tr><td>Tier 4 (3.5/5 rating)</td><td>Qwilfish, Dustox, Glalie, Raichu, Dusclops, Serperior, Minun, Chandelure, Venomoth, Bayleef, and Golbat</td></tr><tr><td>Tier 5 (3/5 rating)</td><td>Pidgeot, Slowking, Garchomp, Golduck, Entei, Crobat, Jolteon, Duosion, Buterfree, and Sandslash</td></tr></tbody></table>
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2052062/7443" target="_top" id="2052062">
-  <img src="//a.impactradius-go.com/display-ad/7443-2052062" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052062/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Pokemon Go Ultra League Tier List
 
 You might already know that in the ultra league, we are allowed to pick Pokemons of up to 2500 CP. Therefore, you can pick Tier 1 and 2 Pokemons and avoid the low-level Tier 4 and 5 Pokemons.
@@ -186,6 +193,13 @@ You might already know that in the ultra league, we are allowed to pick Pokemons
 Lastly, in the Master League, we don’t have any CP limits for Pokemons. Keeping this in mind, I have included some of the most powerful Pokemons in Tier 1 and 2 here.
 
 <table><tbody><tr><td>Tier 1 (5/5 rating)</td><td>Togekiss, Groudon, Kyogre, and Dialga</td></tr></tbody><tbody><tr><td>Tier 2 (4.5/5 rating)</td><td>Lugia, Mewtwo, Garchomp, Zekrom, Metagross, and Melmetal</td></tr><tr><td>Tier 3 (4/5 rating)</td><td>Zapdos, Moltres, Machamp, Darkrai, Kyurem, Articuno, Jirachi, and Rayquaza</td></tr><tr><td>Tier 4 (3.5/5 rating)</td><td>Gallade, Golurk, Usie, Cresselia, Entei, Lapras, and Pinsir</td></tr><tr><td>Tier 5 (3/5 rating)</td><td>Scizor, Crobat, Electivire, Emboar, Sawk, Victini, Exeggutor, Flygon, and Torterra</td></tr></tbody></table>
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137225/26400" target="_top" id="2137225">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137225" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137225/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3: How to Catch Powerful Pokemons Remotely?
 
@@ -236,29 +250,22 @@ With this desktop application's assistance, you can easily spoof your location o
 
 - Not support Pokemon Go on Android devices.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139123/17108" target="_top" id="2139123">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139123" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139123/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### How to spoof Pokemon Go iOS or change iOS GPS to catch more Pokemon?
 
 **Step 1:** Download Wondershare Dr.Fone on your computer, and click "Virtual Location" on the homepage.
 
 ![dowload dr.fone](https://images.wondershare.com/drfone/guide/drfone-home.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049379/7443" target="_top" id="2049379">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049379" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049379/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 2:** Connect your device to the computer and click "Get Started".
 
 ![get started](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137205/26400" target="_top" id="2137205">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137205" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137205/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 3:** Click the first icon, "Teleport Mode", in the top right corner and enter the location where you want to teleport to.
 
@@ -315,13 +322,6 @@ Tutuapp is another popular **Pokemon Go spoofer iOS**. It is also a third-party 
 
 ![tutu app](https://images.wondershare.com/drfone/article/2023/05/pokemon-go-spoofer-ios-1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880976/19272" target="_top" id="1880976">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880976" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880976/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **More info:** <https://www.tutuapp.com/>
 
 ## 4\. iPogo
@@ -346,14 +346,14 @@ In this way, you can use iPogo to do spoofing for Pokemon Go on iPhone too. Sinc
 
 ![iPogo](https://images.wondershare.com/drfone/article/2019/09/pokemon-go-spoofers-iphone-5.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105863/7443" target="_top" id="2105863">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105863" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105863/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **More info:** you can download ipgo here <https://ipogo.app/>
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012434/19272" target="_top" id="2012434">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012434" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012434/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 5\. Relocate
 
@@ -376,6 +376,13 @@ Don't get confused by the name of this location spoofer for iOS as it won't help
 - Might get detected by Pokemon Go
 
 ![Relocate](https://images.wondershare.com/drfone/article/2019/09/pokemon-go-spoofers-iphone-7.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1885932/19272" target="_top" id="1885932">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885932" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885932/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 6\. iTools by ThinkSky
 
@@ -420,13 +427,6 @@ If you already have a jailbroken device and you would like to use an app-specifi
 
 ![Pokemon Go++](https://images.wondershare.com/drfone/article/2019/09/pokemon-go-spoofers-iphone-3.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135410/19272" target="_top" id="2135410">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135410" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135410/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **More info:** <https://www.droidopinions.com/poke-go-hack/>
 
 ## 8\. iPokeGo for Pokemon Go
@@ -449,13 +449,6 @@ This is another app specifically designed for Pokemon Go and will let you access
 - Most of the useful features are paid
 
 ![iPokeGo for Pokemon Go](https://images.wondershare.com/drfone/article/2019/09/pokemon-go-spoofers-iphone-4.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134230/18498" target="_top" id="2134230">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134230" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134230/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 9\. iOS Roaming Guide
 
@@ -528,6 +521,13 @@ Unlock boundless exploration with Spoofer Go, your ultimate Pokémon Go companio
 
 **More info:** <https://www.spoofer-go.com/>
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047411/19272" target="_top" id="2047411">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047411" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047411/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## FAQs You May Want to Know about Pokémon GO Spoofing iOS
 
 ### 1\. What is Pokemon GO Spoofing on iOS?
@@ -562,19 +562,22 @@ Now that you know about 11 different ways to do **Pokemon Go spoofing on iOS**, 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-support.techidaily.com/new-seamless-synergy-wearable-helps-open-mac-gadgets/"><u>[New] Seamless Synergy Wearable Helps Open Mac Gadgets</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-flarex-media-player-pro-versatile-music-app/"><u>[Updated] FlareX Media Player Pro Versatile Music App</u></a></li>
-<li><a href="https://win11.techidaily.com/enriching-windows-11-with-dolby-atmos-experience/"><u>Enriching Windows 11 with Dolby Atmos Experience</u></a></li>
-<li><a href="https://printer-issues.techidaily.com/fixing-epsons-error-x97/"><u>Fixing Epson's Error X97</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/guide-to-making-your-camcorder-video-quicktime-compatible-by-converting-to-mov-format/"><u>Guide to Making Your Camcorder Video QuickTime Compatible by Converting to MOV Format</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/how-can-i-create-my-pokemon-overworld-maps-on-apple-iphone-14-pro-drfone-by-drfone-virtual-ios/"><u>How Can I Create My Pokemon Overworld Maps On Apple iPhone 14 Pro? | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-apple-iphone-14-plus-drfone-by-drfone-virtual-ios/"><u>How PGSharp Save You from Ban While Spoofing Pokemon Go On Apple iPhone 14 Plus? | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-catch-or-beat-sleeping-snorlax-on-pokemon-go-for-apple-iphone-15-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, Catch or Beat Sleeping Snorlax on Pokemon Go For Apple iPhone 15 Pro Max | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-catchemall-celebrate-national-pokemon-day-with-virtual-location-on-apple-iphone-13-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, CatchEmAll Celebrate National Pokémon Day with Virtual Location On Apple iPhone 13 Pro Max | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-why-is-ipogo-not-working-on-apple-iphone-x-fixed-drfone-by-drfone-virtual-ios/"><u>In 2024, Why is iPogo not working On Apple iPhone X? Fixed | Dr.fone</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/-the-role-youtube-shorts-music-plays-for-2024/"><u>Learn the Role YouTube Shorts Music Plays for 2024</u></a></li>
-<li><a href="https://audio-shaping.techidaily.com/new-in-2024-the-free-guide-to-silencing-movie-trailers-in-windows-10-videos/"><u>New In 2024, The Free Guide to Silencing Movie Trailers in Windows 10 Videos</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/pokemon-go-no-gps-signal-heres-every-possible-solution-on-apple-iphone-7-plus-drfone-by-drfone-virtual-ios/"><u>Pokemon Go No GPS Signal? Heres Every Possible Solution On Apple iPhone 7 Plus | Dr.fone</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/quick-fixes-for-why-is-my-honor-magic-6-lite-black-and-white-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Quick Fixes for Why Is My Honor Magic 6 Lite Black and White | Dr.fone</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-fcp-no-cost-access-a-guide/"><u>[New] FCP No-Cost Access A Guide</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-revolutionary-videography-uncovering-the-top-cameras-of-2024/"><u>[New] Revolutionary Videography Uncovering the Top Cameras of 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-enhancing-user-experience-a-quick-how-to-for-youtube-cc-and-subtitles/"><u>[Updated] In 2024, Enhancing User Experience A Quick How-To for YouTube CC & Subtitles</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-turn-off-the-screen-lock-on-my-yuva-3-by-drfone-android-unlock-android-unlock/"><u>How to turn off the screen lock on my Yuva 3</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-a-working-guide-for-pachirisu-pokemon-go-map-on-apple-iphone-14-drfone-by-drfone-virtual-ios/"><u>In 2024, A Working Guide For Pachirisu Pokemon Go Map On Apple iPhone 14 | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-best-pokemons-for-pvp-matches-in-pokemon-go-for-apple-iphone-7-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, Best Pokemons for PVP Matches in Pokemon Go For Apple iPhone 7 Plus | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-complete-tutorial-to-use-gps-joystick-to-fake-gps-location-on-xiaomi-redmi-a2plus-drfone-by-drfone-virtual-android/"><u>In 2024, Complete Tutorial to Use GPS Joystick to Fake GPS Location On Xiaomi Redmi A2+ | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-exploring-tech-worlds-dissecting-ar-mr-and-vr/"><u>In 2024, Exploring Tech Worlds Dissecting AR, MR, & VR</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-here-are-some-of-the-best-pokemon-discord-servers-to-join-on-apple-iphone-15-drfone-by-drfone-virtual-ios/"><u>In 2024, Here are Some of the Best Pokemon Discord Servers to Join On Apple iPhone 15 | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-to-enter-the-ispoofer-discord-server-on-apple-iphone-6-drfone-by-drfone-virtual-ios/"><u>In 2024, How to enter the iSpoofer discord server On Apple iPhone 6 | Dr.fone</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/in-2024-top-picks-streaming-tunes-directly-from-youtuberingtones/"><u>In 2024, Top Picks Streaming Tunes Directly From YoutubeRingtones</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/the-magnificent-art-of-pokemon-go-streaming-on-apple-iphone-8-plus-drfone-by-drfone-virtual-ios/"><u>The Magnificent Art of Pokemon Go Streaming On Apple iPhone 8 Plus? | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-apple-iphone-12-pro-max-drfone-by-drfone-virtual-ios/"><u>The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Apple iPhone 12 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://fox-that.techidaily.com/top-5-methods-to-resurrect-your-broken-iphone-home-button/"><u>Top 5 Methods to Resurrect Your Broken iPhone Home Button</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/unleash-your-creativity-generating-ai-visuals-using-chatgpt/"><u>Unleash Your Creativity: Generating AI Visuals Using ChatGPT</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-apple-iphone-x-drfone-by-drfone-virtual-ios/"><u>Unova Stone Pokémon Go Evolution List and How Catch Them For Apple iPhone X | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/ways-to-trade-pokemon-go-from-far-away-on-apple-iphone-15-drfone-by-drfone-virtual-ios/"><u>Ways to trade pokemon go from far away On Apple iPhone 15? | Dr.fone</u></a></li>
 </ul></div>
 

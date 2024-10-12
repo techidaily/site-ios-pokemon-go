@@ -1,7 +1,7 @@
 ---
 title: Where Is the Best Place to Catch Dratini On Apple iPhone XR | Dr.fone
-date: 2024-09-30T21:24:36.353Z
-updated: 2024-10-06T16:08:25.949Z
+date: 2024-10-07T16:06:24.868Z
+updated: 2024-10-12T16:05:49.950Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -32,6 +32,13 @@ The first un-evolved version is the serpentine Dratini that looks like a snake a
 This is an evolution of Dratini, which has a long scaly serpent-like body. It still retails the blue body with a white underside. The white bump on the forehead now becomes a white horn. The budding wings on the side of the head have now grown into full wings. It also carries three crystal orbs, with one on the neck and the other two on the tail.
 
 Dragonair has the ability to stretch its wings so it can fly. It has a huge amount of energy in the body and can discharge the energy through the crystals. The energy that it releases has the ability to change the weather wherever it is. Dragonair can be found in seas and lakes.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137394/7443" target="_top" id="2137394">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137394" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Dragonite
 
@@ -76,13 +83,6 @@ On the official Dr.Fone page, download and install Dr.Fone on your computer or y
 
 ![drfone home](https://images.wondershare.com/drfone/guide/drfone-home.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997635/19272" target="_top" id="1997635">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997635" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997635/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 After entering the virtual location module, connect your iOS device to your computer using an original USB cable.
 
 Next, click on “Get Started”; you will now be able to start the spoofing process.
@@ -98,13 +98,6 @@ Now go to the top side of your computer screen and click on the third icon on th
 The image below shows an example of coordinates entered for Rome, Italy.
 
 ![virtual location 04](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144298/7443" target="_top" id="2144298">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144298" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144298/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Once you have successfully teleported your device, you will be able to navigate to the area where the Dratini nest has been found. You can use the joystick feature for this. You should also click on “Move here” so your location is permanently moved to that place.
 
@@ -135,6 +128,13 @@ Today, Pokémon Go has evolved into the utmost augmented reality smartphone game
 A Pokémon Go joystick lets you visit more places or teleport to any place worldwide while seated at home. Many Pokémon players use a GPS joystick Pokémon Go to alter their locations and visit different areas from their comfort to explore their collectibles. I have listed some of the best options for Pokémon Go joystick android, and for iOS systems, you can try from the list. Take a look!
 
 ![find the lists of the best Joysticks for Pokemon](https://images.wondershare.com/drfone/pokemon-lists.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938745/19272" target="_top" id="1938745">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938745" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938745/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 1\. Dr.Fone – Virtual Location
 
@@ -186,6 +186,19 @@ Cons
 
 ![Fake your location with fake gps](https://images.wondershare.com/drfone/fake-gps-joystick.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1982508">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982508.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982508">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982508.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982508%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982508/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 The Fake GPS Joystick is another suitable GPS joystick to play Pokémon Go from your comfort. This app has many different features you will find helpful when using the Joystick feature. Besides the GPS spoofing capability, you can alter the update intervals to offer real-time expectations. Have a look at the Pokémon go spoofing 2020 app features.
 
 - Expect a better spoof experience
@@ -207,6 +220,13 @@ Cons
 ## 4\. Fly GPS (Android)
 
 ![Use either the fixed location mode or move location mode](https://images.wondershare.com/drfone/fly-gps-joystick.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043661/7443" target="_top" id="2043661">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043661" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043661/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Android users also wish to enjoy Pokémon go at their comfort. The Fly GPS joystick Pokémon Go app is a reliable option for GPS spoofing. You can easily fake your location to another location along with several tweaks to make others, and the Niantic believe your movements and location.
 
@@ -278,13 +298,6 @@ Cons
 
 Playing Pokémon GO from the comfort of your home is what one wants, especially during this pandemic period. Different Pokémon Go joystick apk helps spoof locations and create a better gaming experience. The listed apps above can be used for either android or iOS systems, depending on your needs. Always use these apps carefully to avoid falling into legal actions or ban from Niantic. Use the apps wisely to make your gaming better from your home.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123726/7443" target="_top" id="2123726">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123726" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123726/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## What Legendaries Are In Pokemon Platinum On Apple iPhone XR?
 
 Pokemon Platinum is an engaging role-playing video game introduced by Nintendo and Game Freak. Released in 2008 in Japan, Platinum is an enhanced version of Pokemon Pearl and Diamond.
@@ -298,13 +311,6 @@ In this post, we will learn about all legendaries in Platinum version. You will 
 ## Part 1: What Legendaries are in Pokemon Platinum?
 
 ![Platinum legendaries 2](https://images.wondershare.com/drfone/Platinum-legendaries-2.png)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 There are about 18 platinum legendaries Pokemon that you can obtain per game cartridge. These include even Pokemon as well. You can catch them while playing the video game. Here is the list of legendary Pokemon in Pokemon Platinum Version:
 
@@ -332,6 +338,13 @@ There are about 18 platinum legendaries Pokemon that you can obtain per game car
 
 ![Platinum legendaries 5](https://images.wondershare.com/drfone/Platinum-legendaries-5.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2002018/7443" target="_top" id="2002018">
+  <img src="//a.impactradius-go.com/display-ad/7443-2002018" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002018/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **10\. Articuno:** Like Cresselia, Articuno also roams the grass of Sinnoh. In order for the birds’ release, you visit and speak to Professor Oak who can be found in his house in Eterna City. You need to obtain National Pokedex in order to speak to Professor Oak. The professor tells you that you can find Articuno nearby within Sinnoh. The Level 60 legendary Pokemon can be found roaming the Sinnoh’s grass. So, make sure you are prudent when hunting Articuno.
 
 **11\. Zapdos:** Once you have got the National Pokédex, you speak to Professor Oak. The professor tells you about Zapdos who roams the grasses of Sinnoh. Like with Articuno, you to be prudent in your hunting to catch this Level 60 legendary Pokemon.
@@ -354,16 +367,16 @@ There are about 18 platinum legendaries Pokemon that you can obtain per game car
 
 **18\. Arceus:** Arceus, the level 80 Pokemon, is also an event-only Pokemon who is accessible with the Azure Flute obtained from Nintendo Event. At the Spear Pillar, you will be asked if you want to play the flute. If yes, the flute is played and a huge staircase appears. Climb up the staircase and you will find the Pokemon resting there. Go up and battle him.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896546/19272" target="_top" id="1896546">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896546" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896546/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2: How do you catch the legendary Pokemon in platinum?
 
 There are a few cheats to capture platinum legendaries in Pokemon. In addition to the official methods discusses above, you can use action replay codes or try location spoofing.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037346/7443" target="_top" id="2037346">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037346" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037346/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2.1 Action Replay Codes
 
@@ -374,10 +387,10 @@ Make sure you get these codes only from reliable websites or sources. Otherwise,
 ![Platinum legendaries 8](https://images.wondershare.com/drfone/Platinum-legendaries-8.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043618/7443" target="_top" id="2043618">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043618" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139112/17108" target="_top" id="2139112">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139112" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043618/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139112/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2.2 Location Spoofing with Dr. Fone Virtual Location
@@ -409,26 +422,13 @@ For this illustration, we will use using Dr.fone to see how to iPhone GPS spoofi
 ![Platinum legendaries 13](https://images.wondershare.com/drfone/guide/virtual-location-07.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037346/7443" target="_top" id="2037346">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037346" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2087395/7443" target="_top" id="2087395">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087395" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037346/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087395/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Now, enjoy playing Pokemon Platinum and capture more Legendary Pokemon to level up in the game.
-
-<!-- affiliate ads begin -->
-<span id="1993651">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993651.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993651">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993651.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993651%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993651/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 3: How to get Mewtwo in Pokemon Platinum?
 
@@ -458,17 +458,22 @@ Hopefully, these comprehensive guides help you learn about all legendaries in Pl
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-2024-approved-viewers-delight-discovering-top-6-engaging-content-formats/"><u>[New] 2024 Approved Viewer's Delight Discovering Top 6 Engaging Content Formats</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-in-2024-video-soundtracks-hub-discovering-audio-scores/"><u>[New] In 2024, Video Soundtracks Hub Discovering Audio Scores</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-mic-selection-made-easy-optimal-picks-for-vloggers-educators-and-more-for-2024/"><u>[Updated] Mic Selection Made Easy Optimal Picks for Vloggers, Educators & More for 2024</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-share-the-laughter-mastering-kinemaster/"><u>2024 Approved Share the Laughter Mastering KineMaster</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/addressing-win1011-blue-screen-crash-issue/"><u>Addressing Win10/11 Blue Screen Crash Issue</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/how-can-i-create-my-pokemon-overworld-maps-on-apple-iphone-15-pro-drfone-by-drfone-virtual-ios/"><u>How Can I Create My Pokemon Overworld Maps On Apple iPhone 15 Pro? | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-all-you-need-to-know-about-mega-greninja-for-apple-iphone-11-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, All You Need To Know About Mega Greninja For Apple iPhone 11 Pro Max | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-full-guide-to-catch-100-iv-pokemon-using-a-map-on-apple-iphone-8-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, Full Guide to Catch 100 IV Pokémon Using a Map On Apple iPhone 8 Plus | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-apple-iphone-13-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, Will Pokémon Go Ban the Account if You Use PGSharp On Apple iPhone 13 Pro Max | Dr.fone</u></a></li>
-<li><a href="https://video-creation-software.techidaily.com/new-in-2024-diagnosing-and-fixing-final-cut-pro-x-crash-errors/"><u>New In 2024, Diagnosing and Fixing Final Cut Pro X Crash Errors</u></a></li>
-<li><a href="https://solve-outstanding.techidaily.com/non-itsune-methods-for-moving-your-itunes-u-library-from-iphone-to-computer/"><u>Non-Itsune Methods for Moving Your iTunes U Library From iPhone to Computer</u></a></li>
-<li><a href="https://discover-fantastic.techidaily.com/top-11-recommended-anti-ransomware-solutions-by-cybersecurity-specialists/"><u>Top 11 Recommended Anti-Ransomware Solutions by Cybersecurity Specialists</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/new-chucklecrafts-create-meme-delight/"><u>[New] ChuckleCrafts Create Meme Delight</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-uncluttered-images-using-photopea-for-flawless-edits/"><u>[New] Uncluttered Images Using Photopea for Flawless Edits</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-brand-yourself-differently-strategies-for-finding-uncommon-names-for-2024/"><u>[Updated] Brand Yourself Differently Strategies for Finding Uncommon Names for 2024</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-apple-iphone-se-drfone-by-drfone-virtual-ios/"><u>15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Apple iPhone SE | Dr.fone</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/elevate-your-gaming-experience-with-nzxt-premium-configurations-core-i7-plus-rtx-4070-ti-for-only-169-monthly/"><u>Elevate Your Gaming Experience with NZXT - Premium Configurations: Core I7 + RTX 4070 Ti for Only $169 Monthly!</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-create-a-3d-photo-on-facebook/"><u>How to Create a 3D Photo on Facebook</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/how-to-fix-pokemon-go-route-not-working-on-apple-iphone-8-plus-drfone-by-drfone-virtual-ios/"><u>How to Fix Pokemon Go Route Not Working On Apple iPhone 8 Plus? | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/how-to-get-and-use-pokemon-go-promo-codes-on-apple-iphone-6-plus-drfone-by-drfone-virtual-ios/"><u>How to Get and Use Pokemon Go Promo Codes On Apple iPhone 6 Plus | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-pokemon-go-no-gps-signal-heres-every-possible-solution-on-apple-iphone-8-drfone-by-drfone-virtual-ios/"><u>In 2024, Pokemon Go No GPS Signal? Heres Every Possible Solution On Apple iPhone 8 | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-what-pokemon-evolve-with-a-dawn-stone-for-apple-iphone-13-drfone-by-drfone-virtual-ios/"><u>In 2024, What Pokémon Evolve with A Dawn Stone For Apple iPhone 13? | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-why-cant-i-install-the-ipogo-on-apple-iphone-12-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, Why cant I install the ipogo On Apple iPhone 12 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/preparation-to-beat-giovani-in-pokemon-go-for-apple-iphone-11-drfone-by-drfone-virtual-ios/"><u>Preparation to Beat Giovani in Pokemon Go For Apple iPhone 11 | Dr.fone</u></a></li>
+<li><a href="https://windows11.techidaily.com/resolving-edges-continuous-desktop-appearance/"><u>Resolving Edges' Continuous Desktop Appearance</u></a></li>
+<li><a href="https://fox-info.techidaily.com/snapseed-simplified-photo-editing-made-accessible-for-2024/"><u>Snapseed Simplified Photo Editing Made Accessible for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ewind-revolution-novel-strategies-for-youtube-viewers-for-2024/"><u>The Rewind Revolution Novel Strategies for YouTube Viewers for 2024</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/top-rated-magsafe-wallets-in-2n24-comprehensive-reviews-by-tech-experts-gizmotrends/"><u>Top-Rated MagSafe Wallets in 2N24: Comprehensive Reviews by Tech Experts | GizmoTrends</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/ways-to-trade-pokemon-go-from-far-away-on-apple-iphone-12-mini-drfone-by-drfone-virtual-ios/"><u>Ways to trade pokemon go from far away On Apple iPhone 12 mini? | Dr.fone</u></a></li>
 </ul></div>
 

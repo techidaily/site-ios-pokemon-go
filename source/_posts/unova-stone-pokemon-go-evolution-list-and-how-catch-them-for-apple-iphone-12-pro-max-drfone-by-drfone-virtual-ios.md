@@ -1,7 +1,7 @@
 ---
 title: Unova Stone Pokémon Go Evolution List and How Catch Them For Apple iPhone 12 Pro Max | Dr.fone
-date: 2024-09-24T11:10:06.426Z
-updated: 2024-10-01T09:38:54.110Z
+date: 2024-10-07T16:02:38.114Z
+updated: 2024-10-12T16:04:24.812Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -61,13 +61,6 @@ Pansear is a fire-type Generation 5 Pokémon found in the Unova region.it is vul
 
 Panpour is a water type Pokémon also initially found in the Unova region. This Pokémon is vulnerable to electric and grass moves. It requires a Unova stone and 50 candy to evolve to Simipour.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129741/7443" target="_top" id="2129741">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129741" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129741/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2. Tricks to getting Pokémon Unova Stone
 
 Unova Stone is a great evolution asset in Pokémon Go generation 5. You are already aware that you need to make a filed research breakthrough to obtain Unova Stones. But what are some of the hacks and tricks that can make you easily claim the Unova Stones?
@@ -83,13 +76,6 @@ Unova Stone is a great evolution asset in Pokémon Go generation 5. You are alre
 **Step 2.** Next, link your Apple iPhone 12 Pro Max with computer and then click the "Get Started" button.
 
 ![virtual location 01](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
-
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826">
-  <img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 3.** On the next window, select the third icon (teleport) at the top-right to enter the teleport mode. Now type the name of the place you want to teleport to and press "Go."
 
@@ -113,6 +99,13 @@ Pokémon Go is a location-based AR game and is very popular in the world of gami
 
 ![drfone](https://images.wondershare.com/drfone/article/2020/09/PGSharp-ban-spoofing-app-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 For example, if you want to catch the special characters or characters of another city, you have to that place. This is the only drawback for players. However, with location spoofing apps, you can catch characters from any location without actually moving there.
 
 But, spoofing Pokémon Go is not easy, as Niantic keeps a close watch to spoofers. To spoof the Pogo, you will need trusted and safe spoofing apps like PGSharp for android and Dr.Fone virtual location for iOS.
@@ -126,6 +119,13 @@ Let’s find out how PGSharp and Dr.Fone virtual location app save you from gett
 Getting banned for cheating Pokémon is nothing new. Niantic always modifies the policies to catch the spoofers and to maintain the originality of the game. Niantic has made a proper discipline policy with three strikes to punish the spoofers.
 
 ![drfone](https://images.wondershare.com/drfone/article/2020/09/PGSharp-ban-spoofing-app-3.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972693/19272" target="_top" id="1972693">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972693" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972693/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Firstly, punishment:** On the first fake strike, you will get a warning message, but you still can play the game. But, while plying, you will not be able to anything remotely for about seven days.
 
@@ -145,13 +145,6 @@ No, you can spoof Pokémon Go with the best spoofing tools like PGSHarp and Dr.F
 
 This tool is safe and secure to use, plus it offers a real map interface, and it is difficult for Niantic to catch it.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100530/7443" target="_top" id="2100530">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100530" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100530/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2: How to Avoid Being Banned From Spoofing
 
 There are tricks that help you save from the Pokémon Go ban.
@@ -164,16 +157,10 @@ There are tricks that help you save from the Pokémon Go ban.
 Therefore, in order to catch special and maximum Pokémon, you do not need to cheat the game, only PGSharp is enough. With this, you can play the game just by sitting at your home. All you need to do is install PGSharp on your device and launch it.
 
 <!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="864" height="1296" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135400/19272" target="_top" id="2135400">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135400" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135400/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3: What makes PGSharp best app to spoof Pokémon Go
@@ -181,13 +168,6 @@ Therefore, in order to catch special and maximum Pokémon, you do not need to ch
 The features and functions of PGSharp make it a safe spoofing app for Pokémon Go. With PGSharp, you do not need to root or jailbreak your device. It is a safe and secure app for android users specially designed to spoof Pokémon Go.
 
 ![drfone](https://images.wondershare.com/drfone/article/2020/09/PGSharp-ban-spoofing-app-5.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484944/16446" target="_top" id="1484944">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484944" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484944/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Now since you have PGSharp installed, you need to enable developer options on Android. For this, go to Settings > About Phone>build number.
 
@@ -200,6 +180,13 @@ Remember to close all the background apps and launch PGSHARP. Now, you are ready
 ![drfone](https://images.wondershare.com/drfone/article/2020/09/PGSharp-ban-spoofing-app-7.jpg)
 
 **Note:** You will need a free beta key to install the PGSharp on your device.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006933/19272" target="_top" id="2006933">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006933" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006933/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 4: How to Spoof GPS on iPhone Without ban?
 
@@ -274,6 +261,13 @@ Turning on the location services on your Apple iPhone 12 Pro Max is not enough a
 
 ![pokemon go location services](https://images.wondershare.com/drfone/2020/pokemon/pokemon-go-location-services.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/798161/11305" target="_top" id="798161">
+  <img src="//a.impactradius-go.com/display-ad/11305-798161" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798161/11305" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Fix 3: Set Precise Location for Pokemon Go
 
 In case the Pokemon Go GPS is not accurate on your Apple iPhone 12 Pro Max, then you can enable the “Precise Location” option for the app. This will make sure that Pokemon Go can access the exact location of your phone.
@@ -283,10 +277,10 @@ To fix these Pokemon Go GPS issues, you can go to your phone’s Settings > Priv
 ![iphone precise location](https://images.wondershare.com/drfone/2020/pokemon/iphone-precise-location.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148644/16836" target="_top" id="2148644">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148644" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105869/7443" target="_top" id="2105869">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105869" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148644/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105869/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Fix 4: Step Into an Open Area
@@ -305,13 +299,6 @@ You can also press the Power or the Side + Volume Up/Down keys (for newer models
 
 Just like iPhone models, fixing the Pokemon Go GPS problem on Android phones is pretty easy and can be done in the following way:
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Fix 1: Check the Location Services on your phone
 
 Needless to say, the first thing that you should do is to check the location settings on your phone to fix the GPS Pokemon Go problem.
@@ -326,6 +313,13 @@ If you have not granted the location services permission to Pokemon Go, then you
 
 ![pokemon go location access](https://images.wondershare.com/drfone/2020/pokemon/pokemon-go-location-access.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123511/26400" target="_top" id="2123511">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123511" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123511/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Fix 3: Reinstall the Pokemon Go App
 
 As listed above, one of the reasons for this Pokemon Go GPS bug could be a corrupt or outdated app. The easiest way to fix this is by uninstalling Pokemon Go on your phone. Afterward, restart your phone and go to Play Store to install Pokemon Go on your Android again.
@@ -337,13 +331,6 @@ As listed above, one of the reasons for this Pokemon Go GPS bug could be a corru
 If the Pokemon Go GPS is not accurate on your device, then you need to change its accuracy index on your phone. You can just go to your phone’s Settings > Location > Location Mode and set it to “High Accuracy” so that Pokemon Go can accurately display your present location.
 
 ![android location mode accuracy](https://images.wondershare.com/drfone/2020/pokemon/android-location-mode-accuracy.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137205/26400" target="_top" id="2137205">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137205" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137205/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Fix 5: Contact Pokemon Go Support
 
@@ -362,6 +349,13 @@ If you are still getting Pokemon Go no GPS signal on your device, then you can u
 - There is no need to jailbreak your Apple iPhone 12 Pro Max to spoof its location with Dr.Fone – Virtual Location (iOS) and it won’t compromise your account as well.
 
 ![virtual location 05](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2148775/18498" target="_top" id="2148775">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148775" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148775/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 I’m sure that after reading this post, you would be able to fix any Pokemon Go GPS problem on your iOS or Android device. Though, if the Pokemon Go GPS bug is still troubling you, then consider using Dr.Fone – Virtual Location (iOS). It is a user-friendly and 100% secure desktop application that would let you change your Apple iPhone 12 Pro Max location anywhere you want in seconds.
 
@@ -383,22 +377,20 @@ If you're experiencing GPS issues while playing Pokemon GO, consider using Dr. F
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-lessons.techidaily.com/new-20plus-fresh-collages-elevate-your-environment/"><u>[New] 20+ Fresh Collages Elevate Your Environment</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/new-navigating-through-your-new-m1-max-clip-world/"><u>[New] Navigating Through Your New M1 Max Clip World</u></a></li>
-<li><a href="https://change-location.techidaily.com/4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-samsung-galaxy-xcover-7-drfone-by-drfone-virtual-android/"><u>4 solution to get rid of pokemon fail to detect location On Samsung Galaxy XCover 7 | Dr.fone</u></a></li>
-<li><a href="https://howto.techidaily.com/app-wont-open-on-your-poco-c65-here-are-all-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>App Wont Open on Your Poco C65? Here Are All Fixes | Dr.fone</u></a></li>
-<li><a href="https://article-helps.techidaily.com/bring-your-videos-into-the-future-converting-sdr-to-hdr-with-ease/"><u>Bring Your Videos Into the Future Converting SDR to HDR with Ease</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/how-does-the-stardust-trade-cost-in-pokemon-go-on-apple-iphone-14-pro-drfone-by-drfone-virtual-ios/"><u>How does the stardust trade cost In pokemon go On Apple iPhone 14 Pro? | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/how-to-enter-the-ispoofer-discord-server-on-apple-iphone-13-pro-drfone-by-drfone-virtual-ios/"><u>How to enter the iSpoofer discord server On Apple iPhone 13 Pro | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-additional-tips-about-sinnoh-stone-for-apple-iphone-12-mini-drfone-by-drfone-virtual-ios/"><u>In 2024, Additional Tips About Sinnoh Stone For Apple iPhone 12 mini | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-detailed-guide-of-ispoofer-for-pogo-installation-on-apple-iphone-13-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, Detailed guide of ispoofer for pogo installation On Apple iPhone 13 Pro Max | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-heres-everything-you-should-know-about-pokemon-stops-in-detail-on-apple-iphone-8-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, Heres Everything You Should Know About Pokemon Stops in Detail On Apple iPhone 8 Plus | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-and-where-to-find-a-shiny-stone-pokemon-for-apple-iphone-12-drfone-by-drfone-virtual-ios/"><u>In 2024, How and Where to Find a Shiny Stone Pokémon For Apple iPhone 12? | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-to-use-pokemon-emerald-master-ball-cheat-on-apple-iphone-12-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Use Pokémon Emerald Master Ball Cheat On Apple iPhone 12 | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-apple-iphone-6s-drfone-by-drfone-virtual-ios/"><u>In 2024, What is the best Pokemon for pokemon pvp ranking On Apple iPhone 6s? | Dr.fone</u></a></li>
-<li><a href="https://win-forum.techidaily.com/mastering-digital-engagement-with-top-platforms-facebook-twitter-instagram-and-youtube/"><u>Mastering Digital Engagement with Top Platforms: Facebook, Twitter, Instagram & YouTube</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/secrets-to-affordable-gopro-acquisitions/"><u>Secrets to Affordable GoPro Acquisitions</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/troubleshooting-guide-fixing-bluetooth-issues-in-windows-11-computers/"><u>Troubleshooting Guide: Fixing Bluetooth Issues in Windows 11 Computers</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/ultimate-guide-solving-high-cpu-use-on-discord/"><u>Ultimate Guide: Solving High CPU Use on Discord</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-how-to-record-powerpoint-presentation-with-webcam/"><u>[Updated] How to Record PowerPoint Presentation with Webcam</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/3-ways-to-track-oppo-reno-11f-5g-without-them-knowing-drfone-by-drfone-virtual-android/"><u>3 Ways to Track Oppo Reno 11F 5G without Them Knowing | Dr.fone</u></a></li>
+<li><a href="https://win-dash.techidaily.com/easy-installation-guide-for-epson-scansoft-v500-driver-software/"><u>Easy Installation Guide for Epson ScanSoft V500 Driver Software</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/free-football-filmmaking-basics-from-screen-to-studio/"><u>Free-Football Filmmaking Basics From Screen to Studio</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/guffaw-on-your-phone-hysterical-site-listings-for-2024/"><u>Guffaw on Your Phone Hysterical Site Listings for 2024</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/here-are-some-of-the-best-pokemon-discord-servers-to-join-on-apple-iphone-11-pro-drfone-by-drfone-virtual-ios/"><u>Here are Some of the Best Pokemon Discord Servers to Join On Apple iPhone 11 Pro | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-apple-iphone-14-pro-drfone-by-drfone-virtual-ios/"><u>Here are Some Pro Tips for Pokemon Go PvP Battles On Apple iPhone 14 Pro | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-apple-iphone-11-pro-drfone-by-drfone-virtual-ios/"><u>How PGSharp Save You from Ban While Spoofing Pokemon Go On Apple iPhone 11 Pro? | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-turn-off-google-location-to-stop-tracking-you-on-vivo-y78-5g-drfone-by-drfone-virtual-android/"><u>How to Turn Off Google Location to Stop Tracking You on Vivo Y78 5G | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-11-best-pokemon-go-spoofers-for-gps-spoofing-on-apple-iphone-se-drfone-by-drfone-virtual-ios/"><u>In 2024, 11 Best Pokemon Go Spoofers for GPS Spoofing on Apple iPhone SE | Dr.fone</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/in-2024-boosting-visibility-on-tiktok-with-smart-hashtags/"><u>In 2024, Boosting Visibility on TikTok with Smart Hashtags</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-detect-and-remove-spyware-on-itel-a05s-drfone-by-drfone-virtual-android/"><u>In 2024, How to Detect and Remove Spyware on Itel A05s? | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/lock-your-zte-axon-40-lite-phone-in-style-the-top-5-gesture-lock-screen-apps-by-drfone-android/"><u>Lock Your ZTE Axon 40 Lite Phone in Style The Top 5 Gesture Lock Screen Apps</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/most-asked-questions-about-pokemon-go-battle-league-rewards-on-apple-iphone-se-2020-drfone-by-drfone-virtual-ios/"><u>Most Asked Questions about Pokemon Go Battle League Rewards On Apple iPhone SE (2020) | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/planning-to-use-a-pokemon-go-joystick-on-apple-iphone-se-2020-drfone-by-drfone-virtual-ios/"><u>Planning to Use a Pokemon Go Joystick on Apple iPhone SE (2020)? | Dr.fone</u></a></li>
 </ul></div>
 
