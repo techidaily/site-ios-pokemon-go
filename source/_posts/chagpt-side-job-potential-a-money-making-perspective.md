@@ -1,7 +1,7 @@
 ---
 title: "ChaGPT Side Job Potential: A Money-Making Perspective"
-date: 2024-10-06T16:01:29.646Z
-updated: 2024-10-12T16:00:51.628Z
+date: 2024-10-10T18:38:42.306Z
+updated: 2024-10-17T23:38:29.995Z
 tags:
   - chatgpt
   - open-ai
@@ -32,10 +32,10 @@ thumbnail: https://thmb.techidaily.com/200bad50912773155a76642b85b00bc52b52d7ab3
  The points you earn are tradable for a few acts, such as checking alibis, checking records, investigating scenes, and tailing suspects. If you're stuck at any time, you can spend points to get a clue on how you should proceed. Once you're sure about the whodunnit, use the one-time "Solve the murder" action to see if you got it right.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 2.[Gron](https://www.gron.games/game) (Web): Retro RPG Game to Find Clues and Chat With Suspects
@@ -43,16 +43,10 @@ thumbnail: https://thmb.techidaily.com/200bad50912773155a76642b85b00bc52b52d7ab3
 ![Gron is a retro 8-bit RPG-style online game where you unravel a murder mystery by finding evidence and clues, as well as interrogating suspects with ChatGPT](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/ai-chatgpt-murder-mystery-online-games-play-detective-gron-town.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1982596">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982596.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982596">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982596.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982596%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982596/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://bluettius.sjv.io/c/5597632/2139115/17108" target="_top" id="2139115">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139115" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139115/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Author Screenshot by Mihir Patkar - No attribution required
@@ -63,16 +57,16 @@ thumbnail: https://thmb.techidaily.com/200bad50912773155a76642b85b00bc52b52d7ab3
 
  When you interact with a character, Gron automatically starts a chat window. Knowing the right prompts and asking the right questions is important. For example, we asked a character if he is the only son and got an affirmative response, but when asked if he had any siblings, he quickly replied that he misunderstood the first question and he had a sister. As you ask more questions, use the in-game diary to record responses so that you can cross-reference different testimonies to deduce who the murderer is.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151870/7443" target="_top" id="2151870">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151870" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151870/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 3.[Mystery-o-Matic](https://mystery-o-matic.com/) (Web): New Murder Mystery Generated Daily Randomly
 
 ![Mystery-o-matic uses AI like ChatGPT to generate a new murder mystery every day where you have to guess the killer, the weapon, and the location based on a set of clues](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/ai-chatgpt-murder-mystery-online-games-play-detective-mystery-o-matic.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868495/19272" target="_top" id="1868495">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868495" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868495/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Author Screenshot by Mihir Patkar - No attribution required
 
@@ -95,10 +89,10 @@ thumbnail: https://thmb.techidaily.com/200bad50912773155a76642b85b00bc52b52d7ab3
  You play as Detective Logico and are given a series of clues and evidence, which you can use with the cross-referencing charting to match suspects, locations, and weapons. It's best to start off with the mini-Murdle tutorial and then get to the daily puzzles. When you're ready to make your accusation, you'll need to say who the murderer was, how they did it, and where the ghastly act took place.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151892/7443" target="_top" id="2151892">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151892" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aidotcom.pxf.io/c/5597632/2134503/19576" target="_top" id="2134503">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134503" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151892/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134503/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Create Your Own ChatGPT Murder Mystery
@@ -122,19 +116,24 @@ thumbnail: https://thmb.techidaily.com/200bad50912773155a76642b85b00bc52b52d7ab3
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-transformative-voice-techniques-enhance-your-oratory-with-these-tools/"><u>[New] In 2024, Transformative Voice Techniques – Enhance Your Oratory with These Tools</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-pugilism-vs-players-battle-for-supremacy/"><u>[New] Pugilism vs Players Battle for Supremacy</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-to-use-itop-recorder-a-compelling-case-for-2024/"><u>[New] To Use ITop Recorder A Compelling Case for 2024</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-2024-approved-seamless-idevice-screen-saving-tricks/"><u>[Updated] 2024 Approved Seamless iDevice Screen Saving Tricks</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-advanced-audio-editing-apps-ranked-by-users-for-2024/"><u>[Updated] Advanced Audio Editing Apps Ranked by Users for 2024</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/11-best-pokemon-go-spoofers-for-gps-spoofing-on-apple-iphone-se-2020-drfone-by-drfone-virtual-ios/"><u>11 Best Pokemon Go Spoofers for GPS Spoofing on Apple iPhone SE (2020) | Dr.fone</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/cost-effective-desktop-capture-the-ultimate-top-10-list-for-2024/"><u>Cost-Effective Desktop Capture The Ultimate Top 10 List for 2024</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/how-do-you-get-sun-stone-evolutions-in-pokemon-for-apple-iphone-xs-drfone-by-drfone-virtual-ios/"><u>How Do You Get Sun Stone Evolutions in Pokémon For Apple iPhone XS? | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/how-to-enter-the-ispoofer-discord-server-on-apple-iphone-13-pro-max-drfone-by-drfone-virtual-ios/"><u>How to enter the iSpoofer discord server On Apple iPhone 13 Pro Max | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-can-i-get-more-stardust-in-pokemon-go-on-apple-iphone-12-drfone-by-drfone-virtual-ios/"><u>In 2024, How can I get more stardust in pokemon go On Apple iPhone 12? | Dr.fone</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-any-samsung-galaxy-m14-4g-phone-password-using-emergency-call-by-drfone-android/"><u>In 2024, How To Unlock Any Samsung Galaxy M14 4G Phone Password Using Emergency Call</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/ipogo-will-be-the-new-ispoofer-on-apple-iphone-6-drfone-by-drfone-virtual-ios/"><u>iPogo will be the new iSpoofer On Apple iPhone 6? | Dr.fone</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/seamless-video-to-photo-conversion-for-windows-users/"><u>Seamless Video-to-Photo Conversion for Windows Users</u></a></li>
-<li><a href="https://fake-location.techidaily.com/which-is-the-best-fake-gps-joystick-app-on-motorola-edge-2023-drfone-by-drfone-virtual-android/"><u>Which is the Best Fake GPS Joystick App On Motorola Edge 2023? | Dr.fone</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-intuitive-methods-documenting-your-google-voice-chats/"><u>[New] In 2024, Intuitive Methods Documenting Your Google Voice Chats</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-ultimate-android-sky-docs-ranking/"><u>[Updated] Ultimate Android Sky Docs Ranking</u></a></li>
+<li><a href="https://android-location.techidaily.com/10-free-location-spoofers-to-fake-gps-location-on-your-motorola-edge-40-drfone-by-drfone-virtual/"><u>10 Free Location Spoofers to Fake GPS Location on your Motorola Edge 40 | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-animated-adventures-easy-steps-for-snapchats-cute-filters/"><u>2024 Approved Animated Adventures Easy Steps for Snapchat's Cute Filters</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/3/"><u>無料の動画・音声再生アプリの最終選考: 性能と機能比較レビュー - メディアソフト一覧 | 第3ページ</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/1723004517266-assassins-creed-valhalla-not-launching-solved/"><u>Assassin's Creed Valhalla Not Launching [Solved]</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/fixing-launch-failures-in-pacific-drive-software-quick-tips/"><u>Fixing Launch Failures in Pacific Drive Software: Quick Tips</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/how-to-fix-final-fantasy-xv-crashes-in-your-pc-game/"><u>How to Fix 'Final Fantasy XV' Crashes in Your PC Game</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-use-life360-on-windows-pc-for-samsung-galaxy-a54-5g-drfone-by-drfone-virtual-android/"><u>How to Use Life360 on Windows PC For Samsung Galaxy A54 5G? | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-a-detailed-vpna-fake-gps-location-free-review-on-motorola-moto-g84-5g-drfone-by-drfone-virtual-android/"><u>In 2024, A Detailed VPNa Fake GPS Location Free Review On Motorola Moto G84 5G | Dr.fone</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-resolving-frame-rate-puzzle-which-fps-brings-sharper-videos/"><u>In 2024, Resolving Frame Rate Puzzle Which FPS Brings Sharper Videos</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/overcome-pc-compatibility-challenges-last-epoch-launch-fixes-coming/"><u>Overcome PC Compatibility Challenges: Last Epoch Launch Fixes Coming</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/overcoming-common-challenges-solving-persistent-chivalry-ii-crash-errors/"><u>Overcoming Common Challenges: Solving Persistent Chivalry II Crash Errors</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/overcoming-obstacles-successfully-launching-your-ascent-now/"><u>Overcoming Obstacles: Successfully Launching Your 'Ascent' Now</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ssential-toolkit-3d-video-entrances-ranked-for-2024/"><u>The Essential Toolkit 3D Video Entrances Ranked for 2024</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/1723005752869-troubleshooting-call-of-duty-wwii-issue-error-4128-solved/"><u>Troubleshooting Call of Duty: WWII Issue - Error 4128 Solved!</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/troubleshooting-steps-for-faulty-onikuma-mic-setup-fixed/"><u>Troubleshooting Steps for Faulty Onikuma Mic Setup [FIXED]</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/voice-driven-operation-platform-zero-price-for-2024/"><u>Voice-Driven Operation Platform Zero Price for 2024</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/winning-back-smooth-gameplay-fps-enhancements-for-dota-2-on-modern-windows-systems/"><u>Winning Back Smooth Gameplay: FPS Enhancements for Dota 2 on Modern Windows Systems</u></a></li>
 </ul></div>
 

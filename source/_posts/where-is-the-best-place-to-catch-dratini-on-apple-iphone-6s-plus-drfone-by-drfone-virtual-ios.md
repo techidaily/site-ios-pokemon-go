@@ -1,7 +1,7 @@
 ---
 title: Where Is the Best Place to Catch Dratini On Apple iPhone 6s Plus | Dr.fone
-date: 2024-10-05T16:04:03.990Z
-updated: 2024-10-12T16:05:24.035Z
+date: 2024-10-13T23:16:49.535Z
+updated: 2024-10-18T12:30:01.268Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -57,6 +57,13 @@ If the Dratini nest migrates, it can still come back in the future. You should a
 
 Dratini nests will migrate on alternate Thursdays at midnight. The nest migrations are random, so make sure that you visit and hit them many times over the two weeks in order to get the most Dratini that you can.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037358/7443" target="_top" id="2037358">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037358" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037358/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 4: How to increase the possibility of earning Pokémon Go Dratini?
 
 As mentioned earlier, Dratini can be found in certain places around the world. If you live outside these regions, you cannot be able to get Dratini. The best way to go about getting Dratini in such cases is to virtually relocate your device. This means that you can take your device to Tokyo nest sites even if you live in Africa.
@@ -83,28 +90,40 @@ Next, click on “Get Started”; you will now be able to start the spoofing pro
 ![virtual location 01](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938721/19272" target="_top" id="1938721">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938721" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938721/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1424528">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424528.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424528">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424528.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424528%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424528/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Looking at the map, you can now see the actual location of your device. If the coordinates are not the correct ones, go to the bottom of your computer screen and click on the “Current Virtual location” icon. This will instantly point to the current virtual location of your device.
 
 ![virtual location 03](https://images.wondershare.com/drfone/guide/virtual-location-03.png)
 
+<!-- affiliate ads begin -->
+<span id="2135472">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2135472.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2135472">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135472%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135472/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Now go to the top side of your computer screen and click on the third icon on the bar. This instantly puts you in “teleport” mode. Now enter the coordinates of the Dratini nest that you have located. Hit the “Go” button and your device will instantly be teleported to the coordinates you entered.
 
 The image below shows an example of coordinates entered for Rome, Italy.
 
 ![virtual location 04](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934254/19272" target="_top" id="1934254">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934254" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934254/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Once you have successfully teleported your device, you will be able to navigate to the area where the Dratini nest has been found. You can use the joystick feature for this. You should also click on “Move here” so your location is permanently moved to that place.
 
@@ -121,13 +140,6 @@ This is how your location will be viewed on the map.
 This is how your location will be viewed on another iPhone device.
 
 ![virtual location 07](https://images.wondershare.com/drfone/guide/virtual-location-07.png)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118311/7443" target="_top" id="2118311">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118311" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118311/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## In conclusion
 
@@ -163,16 +175,16 @@ Pokémon Sun Stone evolutions will require you to collect the Sun Stone and a ce
 
 You can always check out how to evolve your Pokémon in your Pokédex.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118312/7443" target="_top" id="2118312">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118312" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118312/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 3. Which Pokémon Evolve With Sun Stones?
 
 ![sunken and sunflora in pokémon go](https://images.wondershare.com/drfone/article/2024/03/sun-stone-evolutions-4.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151883/7443" target="_top" id="2151883">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151883" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151883/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Every Pokémon you come across in the game is different, and they’ll all have varying evolution requirements. Considering how elusive the Sun Stone can be, it’s great that only a few Pokémon require it. Check out the following Pokémon Sun Stone evolution list.
 
@@ -185,13 +197,6 @@ Every Pokémon you come across in the game is different, and they’ll all have 
 | Cottonee | Sun Stone and 50 Cottonee candy | Whimsicott |
 | Petilil | Sun Stone and 50 Petilil candy | Lilligant |
 | Helioptile | Sun Stone and 50 Helioptilecandy | Heliolisk |
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528681/16446" target="_top" id="1528681">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528681" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528681/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 4. How to Acquire Sun Stones on Pokémon Go
 
@@ -212,6 +217,19 @@ Pokémon Go will frequently have multiple special events happening every month. 
 - Road to Sinnoh – February 19 to February 23.
 
 You’ll be notified of any ongoing special events as soon as you start your game, so check your phone at least once daily. While partaking in a special event doesn’t guarantee you’ll get a Sun Stone, there’s always a possibility!
+
+<!-- affiliate ads begin -->
+<span id="1975636">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975636.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975636">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975636.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975636%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975636/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Field Research
 
@@ -237,6 +255,13 @@ While you’ll usually get a more common evolution item after your 7-day streak,
 
 Usually, it’s in your best interest to go to more popular areas with more PokéStops, as you’ll be able to make more spins faster.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135399/19272" target="_top" id="2135399">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135399" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135399/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 5. How to Gather Sun Stones Efficiently
 
 ![Text” sun stone in pokemon go](https://images.wondershare.com/drfone/article/2024/03/sun-stone-evolutions-6.jpg)
@@ -261,6 +286,13 @@ To get started with Wondershare Dr.Fone and complete your field research tasks, 
 
 ![get started with wondershare dr.fone](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1001453/11832" target="_top" id="1001453">
+  <img src="//a.impactradius-go.com/display-ad/11832-1001453" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001453/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 4. On the map that shows up, click on **No Device**in the upper right-hand corner;
 5. You’ll see a list of all connected devices, select your phone;
 
@@ -274,13 +306,6 @@ To get started with Wondershare Dr.Fone and complete your field research tasks, 
 
 From there, you can easily set up your route, change your location, and simulate movement. With Wondershare Dr.Fone, you’ll have intuitive keyboard controls, 360-degree directions, and automated movement. So, as soon as you set things up in the app, you can start playing the game, completing your field research tasks, and, hopefully, acquiring your Sun Stones.
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/857865/11832" target="_top" id="857865">
-  <img src="//a.impactradius-go.com/display-ad/11832-857865" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857865/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Pay Attention to Community Days and Special Events
 
 Finally, to start getting Sun Stones and other rarer items more efficiently, you’ll always want to pay close attention to community days and special events. Pokémon Go is a very active game with frequent high-rewarding events that could happen at any time. Since these events are time-limited, you’ll always want to know precisely when they start and end.
@@ -291,13 +316,6 @@ Fortunately, finding this out is pretty easy. Just keep track of Pokémon Go on 
 
 Acquiring Sun Stones for Pokémon evolutions can be quite a hassle. This rare evolution item can be a tricky find. Still, simply playing the game and joining all events, completing your research tasks, and more can significantly increase your chances of coming across a Sun Stone – especially if you have the help of apps like Wondershare Dr.Fone.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068426/7443" target="_top" id="2068426">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068426" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068426/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Planning to Use a Pokemon Go Joystick on Apple iPhone 6s Plus?
 
 Pokemon Go is probably one of the most popular location-based augmented reality games that encourage us to step out. Sadly, players can’t explore their surroundings or travel to play the game all the time. That’s why they often take the assistance of a Pokemon Go joystick. While Pokemon joysticks are extremely popular, they have some downfalls as well if you don’t pick the right tool. Therefore, in this post, I will list the risks and benefits of using a Pokemon Go joystick hack to help you make up your mind.
@@ -305,10 +323,10 @@ Pokemon Go is probably one of the most popular location-based augmented reality 
 ![Pokemon Go Joystick Banner](https://images.wondershare.com/drfone/2020/2020/benefits-risks-pokemon-go-joystick-1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885943/19272" target="_top" id="1885943">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885943" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043856/7443" target="_top" id="2043856">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043856" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885943/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043856/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Part 1: Pokemon Go Joystick 101: Things to Know**
@@ -401,17 +419,22 @@ I hope that after following this guide, you would be able to know more about the
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-lessons.techidaily.com/2024-approved-bold-broadcasters-on-a-budget-youtube-live-not-1000plus-supporters/"><u>2024 Approved Bold Broadcasters on a Budget YouTube LIVE, Not 1000+ Supporters</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/6-innovative-ways-to-enhance-your-household-routines-using-chatgpt/"><u>6 Innovative Ways to Enhance Your Household Routines Using ChatGPT</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/a-practical-approach-to-hymnal-phone-tones/"><u>A Practical Approach to Hymnal Phone Tones</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/earphone-showdown-galaxy-buds-2-pro-pixel-buds-pro-and-airpods-pro-compared-find-your-perfect-fit/"><u>Earphone Showdown: Galaxy Buds 2 Pro, Pixel Buds Pro & AirPods Pro Compared - Find Your Perfect Fit!</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-apple-iphone-15-pro-drfone-by-drfone-virtual-ios/"><u>Here are Some Pro Tips for Pokemon Go PvP Battles On Apple iPhone 15 Pro | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-a-detailed-pokemon-go-pvp-tier-list-to-make-you-a-pro-trainer-for-apple-iphone-11-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, A Detailed Pokemon Go PvP Tier List to Make you a Pro Trainer For Apple iPhone 11 Pro Max | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-apple-iphone-xr-drfone-by-drfone-virtual-ios/"><u>In 2024, Here are Some Pro Tips for Pokemon Go PvP Battles On Apple iPhone XR | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-can-i-catch-the-regional-pokemon-without-traveling-on-apple-iphone-7-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, How Can I Catch the Regional Pokémon without Traveling On Apple iPhone 7 Plus | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-apple-iphone-se-2020-drfone-by-drfone-virtual-ios/"><u>In 2024, Will Pokémon Go Ban the Account if You Use PGSharp On Apple iPhone SE (2020) | Dr.fone</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/mastering-the-art-of-incorporating-film-into-lessons/"><u>Mastering the Art of Incorporating Film Into Lessons</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/navigate-video-trimming-with-ease-on-windows-11-photos-for-2024/"><u>Navigate Video Trimming with Ease on Windows 11 Photos for 2024</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/the-comprehensive-handbook-for-artificial-intelligence-terminology-discover-the-meaning-behind-29-vital-words-and-expressions/"><u>The Comprehensive Handbook for Artificial Intelligence Terminology: Discover the Meaning Behind 29 Vital Words and Expressions</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-a-comprehensive-tutorial-on-vimeo-in-insta-for-2024/"><u>[New] A Comprehensive Tutorial on Vimeo in Insta for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-apeak-recording-examined-quality-and-features-decoded-for-2024/"><u>[New] Apeak Recording Examined Quality and Features Decoded for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-elevate-your-recordings-doing-without-a-microphone-for-2024/"><u>[Updated] Elevate Your Recordings Doing Without a Microphone for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-how-often-should-you-upload-youtube-videos-to-get-more-views/"><u>[Updated] How Often Should You Upload YouTube Videos to Get More Views</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-the-ultimate-video-editing-experience-for-vimeo-enthusiasts/"><u>[Updated] The Ultimate Video Editing Experience for Vimeo Enthusiasts</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-perpetual-screen-moments-tool/"><u>2024 Approved Perpetual Screen Moments Tool</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/blueprint-for-buzz-elevating-your-profile-on-fb-for-2024/"><u>Blueprint for Buzz Elevating Your Profile on FB for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/generation-rapide-et-gratuite-de-gifs-a-partir-de-fichiers-mkv-en-ligne-avec-laide-de-movavi/"><u>Génération Rapide Et Gratuite De GIFs À Partir De Fichiers MKV en Ligne Avec L'aide De Movavi</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/here-are-some-of-the-best-pokemon-discord-servers-to-join-on-apple-iphone-7-plus-drfone-by-drfone-virtual-ios/"><u>Here are Some of the Best Pokemon Discord Servers to Join On Apple iPhone 7 Plus | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/how-to-fix-pokemon-go-route-not-working-on-apple-iphone-xs-max-drfone-by-drfone-virtual-ios/"><u>How to Fix Pokemon Go Route Not Working On Apple iPhone XS Max? | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-catch-or-beat-sleeping-snorlax-on-pokemon-go-for-apple-iphone-15-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, Catch or Beat Sleeping Snorlax on Pokemon Go For Apple iPhone 15 Plus | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-pokemon-go-error-12-failed-to-detect-location-on-apple-iphone-14-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, Pokemon Go Error 12 Failed to Detect Location On Apple iPhone 14 Pro Max? | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-the-best-ispoofer-alternative-to-try-on-apple-iphone-14-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, The Best iSpoofer Alternative to Try On Apple iPhone 14 Plus | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-why-does-the-pokemon-go-battle-league-not-available-on-apple-iphone-13-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, Why does the pokemon go battle league not available On Apple iPhone 13 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://howto.techidaily.com/play-store-not-working-on-xiaomi-redmi-k70-pro-8-solutions-inside-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Play Store Not Working On Xiaomi Redmi K70 Pro? 8 Solutions Inside | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/preparation-to-beat-giovani-in-pokemon-go-for-apple-iphone-12-mini-drfone-by-drfone-virtual-ios/"><u>Preparation to Beat Giovani in Pokemon Go For Apple iPhone 12 mini | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/ultimate-guide-to-catch-the-regional-located-pokemon-for-apple-iphone-6s-drfone-by-drfone-virtual-ios/"><u>Ultimate Guide to Catch the Regional-Located Pokemon For Apple iPhone 6s | Dr.fone</u></a></li>
 </ul></div>
 

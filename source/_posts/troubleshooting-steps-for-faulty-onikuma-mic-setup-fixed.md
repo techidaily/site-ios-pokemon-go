@@ -1,7 +1,7 @@
 ---
 title: Troubleshooting Steps for Faulty Onikuma Mic Setup [FIXED]
-date: 2024-10-07T16:01:00.387Z
-updated: 2024-10-12T16:01:47.194Z
+date: 2024-10-11T17:36:20.853Z
+updated: 2024-10-18T00:58:49.200Z
 tags:
   - win11
   - win10
@@ -33,10 +33,10 @@ If you’re experiencing Onikuma headset mic not working, you’re not alone. Th
 * **Check the mute switches** on your microphone and make sure it’s disabled.
 
 <!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/2139557/4704" target="_top" id="2139557">
-  <img src="//a.impactradius-go.com/display-ad/4704-2139557" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1886003/19272" target="_top" id="1886003">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886003" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139557/4704" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886003/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Fix 1 – Run the audio troubleshooter
@@ -50,26 +50,13 @@ If you’re experiencing Onikuma headset mic not working, you’re not alone. Th
 ![](https://images.drivereasy.com/wp-content/uploads/2021/01/run-troubleshooter-2-1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037356/7443" target="_top" id="2037356">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037356" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130531/26400" target="_top" id="2130531">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130531" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037356/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130531/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Wait for the process to complete and follow the on-screen instructions to repair the detected issues. If your microphone still doesn’t work, proceed to the next method.
-
-<!-- affiliate ads begin -->
-<span id="2135471">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2135471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2135471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135471%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135471/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Fix 2 – Check the privacy settings
 
@@ -83,11 +70,31 @@ If you’re experiencing Onikuma headset mic not working, you’re not alone. Th
 ![](https://images.drivereasy.com/wp-content/uploads/2021/01/4-2-1.jpg)
 4. **Toggle on the button** below Allow apps to access your microphone.  
 
+<!-- affiliate ads begin -->
+<span id="1983471">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983471.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983471">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983471%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983471/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![](https://images.drivereasy.com/wp-content/uploads/2021/01/4-3-1.jpg)
 5. Scroll to locate Allow desktop apps to access your microphone, and set the option to**On** .  
 ![](https://images.drivereasy.com/wp-content/uploads/2021/01/4-4-2.jpg)
 
  Now you should be able to use the Onikuma headset mic with whatever applications. But if the problem persists, try the next fix below.
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148647/16836" target="_top" id="2148647">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148647" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148647/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Fix 3 – Set your Onikuma mic as the default device
 
@@ -98,10 +105,10 @@ If you’re experiencing Onikuma headset mic not working, you’re not alone. Th
 2. Select**Small icons** next to View by and click**Sound** .  
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137395/7443" target="_top" id="2137395">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137395" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118314/7443" target="_top" id="2118314">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118314" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137395/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118314/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/01/2-2-1.jpg)
@@ -119,13 +126,6 @@ If you’re experiencing Onikuma headset mic not working, you’re not alone. Th
  In some cases, Onikuma headset mic not working only occurs in specific applications. If so, you should**check the application settings** and manually**set the Onikuma headset as your preferred audio device** .
 
  If this method doesn’t help either, move on to the next fix to check your audio driver.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151894/7443" target="_top" id="2151894">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151894" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151894/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Fix 4 – Update your audio driver
 
@@ -155,10 +155,10 @@ If you’re experiencing Onikuma headset mic not working, you’re not alone. Th
 ![](https://images.drivereasy.com/wp-content/uploads/2021/01/3-2-1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094418/7443" target="_top" id="2094418">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094418" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2137395/7443" target="_top" id="2137395">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137395" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094418/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137395/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **The Pro version of Driver Easy** comes with full technical support.  
@@ -188,18 +188,18 @@ If you’re experiencing Onikuma headset mic not working, you’re not alone. Th
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-2024-approved-unparalleled-20-anime-series-themes/"><u>[New] 2024 Approved Unparalleled 20 Anime Series Themes</u></a></li>
-<li><a href="https://facebook.techidaily.com/alert-to-the-9-signs-of-unauthorized-account-access/"><u>Alert to the 9 Signs of Unauthorized Account Access</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/closer-look-techniques-for-minecraft-exploration/"><u>Closer Look Techniques for Minecraft Exploration</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/full-guide-to-catch-100-iv-pokemon-using-a-map-on-apple-iphone-13-mini-drfone-by-drfone-virtual-ios/"><u>Full Guide to Catch 100 IV Pokémon Using a Map On Apple iPhone 13 mini | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-text-messages-from-xiaomi-redmi-12-to-new-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Text Messages from Xiaomi Redmi 12 to New Phone | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-ipogo-will-be-the-new-ispoofer-on-apple-iphone-14-drfone-by-drfone-virtual-ios/"><u>In 2024, iPogo will be the new iSpoofer On Apple iPhone 14? | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-is-mega-mewtwo-the-strongest-pokemon-on-apple-iphone-15-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, Is Mega Mewtwo The Strongest Pokémon On Apple iPhone 15 Plus? | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-apple-iphone-11-drfone-by-drfone-virtual-ios/"><u>In 2024, Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Apple iPhone 11 | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-pokemon-go-no-gps-signal-heres-every-possible-solution-on-apple-iphone-13-mini-drfone-by-drfone-virtual-ios/"><u>In 2024, Pokemon Go No GPS Signal? Heres Every Possible Solution On Apple iPhone 13 mini | Dr.fone</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/in-2024-prime-zero-cost-switch-mimicry-apps/"><u>In 2024, Prime Zero-Cost Switch Mimicry Apps</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-reasons-why-pokemon-gps-does-not-work-on-apple-iphone-8-drfone-by-drfone-virtual-ios/"><u>In 2024, Reasons why Pokémon GPS does not Work On Apple iPhone 8? | Dr.fone</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/understanding-ios-16-support-the-reason-behind-iphone-6s-and-earlier-models-incompatibility/"><u>Understanding iOS 16 Support: The Reason Behind IPhone 6S and Earlier Models' Incompatibility</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/updated-fcpx-power-user-mastering-freeze-frames-slow-motion-and-beyond/"><u>Updated FCPX Power User Mastering Freeze Frames, Slow Motion, and Beyond</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-essential-phone-knowledge-for-expanded-gear-vr-experiences/"><u>[New] 2024 Approved Essential Phone Knowledge for Expanded Gear VR Experiences</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-exhilarating-freeness-of-screen-pairing-games-for-2024/"><u>[New] Exhilarating Freeness of Screen Pairing Games for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-gold-standard-groups-peak-podcasts-from-googloud/"><u>[New] Gold Standard Groups Peak Podcasts From GooGloud</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ow-to-extract-youtube-media-directly-for-2024/"><u>[New] How to Extract YouTube Media Directly for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-digital-time-machine-tracking-back-through-facebooks-history-device-based/"><u>[New] In 2024, Digital Time Machine Tracking Back Through Facebook's History (Device-Based)</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-instagram-story-wizardry-secrets-revealed/"><u>[Updated] 2024 Approved Instagram Story Wizardry Secrets Revealed</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-the-binary-divide-metaverse-vs-multiverse-explained/"><u>[Updated] The Binary Divide Metaverse Vs Multiverse Explained</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719144254299-digital-dollar-in-pasture-zuckerbergs-peculiar-choice/"><u>Digital Dollar in Pasture: Zuckerberg's Peculiar Choice.</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/experiencing-days-gone-an-in-depth-look-at-motorcycle-rides-in-a-zombie-world/"><u>Experiencing Days Gone: An In-Depth Look at Motorcycle Rides in a Zombie World</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/exploring-the-inherent-add-ons-of-chatgpt-and-their-functionalities/"><u>Exploring the Inherent Add-Ons of ChatGPT and Their Functionalities</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/exploring-the-lenovo-ideapad-320-sleek-design-meets-iconic-lenovo-typing-experience-reviewed/"><u>Exploring the Lenovo Ideapad 320: Sleek Design Meets Iconic Lenovo Typing Experience Reviewed</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/limited-budget-check-out-our-comprehensive-analysis-of-the-remobell-video-doorbell/"><u>Limited Budget? Check Out Our Comprehensive Analysis of the RemoBell Video Doorbell</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/yakuza-like-a-dragon-the-ultimate-rpg-experience-you-cant-miss/"><u>Yakuza: Like a Dragon - The Ultimate RPG Experience You Can't Miss!</u></a></li>
 </ul></div>
 

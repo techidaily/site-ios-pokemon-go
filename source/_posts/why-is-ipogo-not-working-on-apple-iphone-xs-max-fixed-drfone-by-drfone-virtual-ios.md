@@ -1,7 +1,7 @@
 ---
 title: Why is iPogo not working On Apple iPhone XS Max? Fixed | Dr.fone
-date: 2024-10-05T16:00:42.778Z
-updated: 2024-10-12T16:01:08.350Z
+date: 2024-10-11T14:34:07.779Z
+updated: 2024-10-17T21:59:38.587Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -63,18 +63,18 @@ It is often said that short cuts can cut you short or in this case, hacked! Disr
 
 If using the iPogo mod to enhance your gaming experience on Pokémon Go seem less appealing with all the added hassle then there is a better alternative for you to use. You can employ a much simpler and easier to install GPS mocking application like Wondershare’s [Dr.Fone Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/). It offers amazing user-friendly features like speed modulation, joystick control and map routing with none of the drawbacks that you had to previously overcome. It is a highly efficient virtual location tool that can be used to conveniently spoof your location without running the risk of detection on a GPS based game like Pokémon Go.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137395/7443" target="_top" id="2137395">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137395" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137395/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Primary Features of Dr. Fone
 
 - Adjust the speed of travel with three speed modes, like walking, cycling or even driving.
 - Manually move your GPS on the map freely using a virtual joystick in a 360 degree direction.
 - Simulate your avatar’s movements to travel on a determined route of your choice.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075476/7443" target="_top" id="2075476">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075476" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075476/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Step by Step Tutorial
 
@@ -85,19 +85,6 @@ You can follow these easy steps to teleport to anywhere in the world with the he
 Begin with downloading Dr.Fone – Virtual Location (iOS) on your PC. Then, install and launch it. To proceed, make sure to choose “Virtual Location” tab given on the main screen.
 
 ![drfone home](https://images.wondershare.com/drfone/guide/drfone-home.png)
-
-<!-- affiliate ads begin -->
-<span id="1492813">
-					<video width="1024" height="576" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1492813.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1492813">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1492813.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1492813%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1492813/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 2: Plug iPhone**
 
@@ -110,6 +97,13 @@ Now, grab your Apple iPhone XS Max and get it connected with the PC using the li
 You will notice a map on the screen now. As it comes, you got to click on ‘Centre On’ to accurately pin point the GPS to your location.
 
 ![virtual location 03](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2112007/7443" target="_top" id="2112007">
+  <img src="//a.impactradius-go.com/display-ad/7443-2112007" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112007/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Step 4: Enable Teleport Mode**
 
@@ -129,6 +123,13 @@ Now, the location is changed. You can now open any location based app on your Ap
 
 Pokémon Go Plus mods like iPogo involves a certain degree of care in order to have a healthy game experience. Be sure to take pre-emptive measures suggested in this article and you would notice your device running smoothly in no time.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135394/19272" target="_top" id="2135394">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135394" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135394/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Unova Stone Pokémon Go Evolution List and How Catch Them For Apple iPhone XS Max
 
 Pokémon Go players anticipate new evolutions with much excitement. This is because evolutions take the gaming experience to another level. After being kept waiting, Pokémon Go players finally have a reason to put a smile on their faces. Pokémon Go has unleashed an important item for the evolution of generation 5 Pokémon in the Unova region. This item is called Unova Stone. In this article, we explain to you through every aspect and concept that pertains to Unova stone Pokémon go evolution.
@@ -139,18 +140,25 @@ Pokémon Go players anticipate new evolutions with much excitement. This is beca
 
 ![Unova Stone](https://images.wondershare.com/drfone/2020/unova-stone.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098703/14409" target="_top" id="2098703">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098703" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098703/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Unova Stone is one of the latest evolutions added in Unova's region to the game of Pokémon. It is a black and white item that is used to evolve certain Pokémon, specifically from Unova. This is akin Sinnoh Stone that was used to evolve Pokémon from Sinnoh Regio. However, Unova Stone is only capable of evolving Generation 5 Pokémon from the Unova region. It means you cannot use Unova Stones to evolve Pokémon from previous generations. Even though there are plenty of emerging Pokémon and Shiny Pokémon worth collecting, there are scores of trainers who understand the real value of adding Unova Stones to their inventory. By accumulating them, they can seamlessly achieve evolution with some Pokémon in the Unova region.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123739/7443" target="_top" id="2123739">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123739" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123739/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### How Can you Obtain Unova Stone in Pokémon Go?
 
 Obtaining Unova Stone in Pokémon is now possible through research breakthroughs. But what exactly is research breakthroughs? Research breakthroughs are when a trainer completes seven research tasks with every research panning a day each. Here, the trainer only needs to complete the seven research pieces but not for seven straight days. This means it is possible to skip a day then resume your research until you complete seven of them without fail.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134218/18498" target="_top" id="2134218">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134218" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134218/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Which Pokémon Require Unova Stone to Evolve in Pokémon Go?
 
@@ -184,13 +192,6 @@ Pansear is a fire-type Generation 5 Pokémon found in the Unova region.it is vul
 
 Panpour is a water type Pokémon also initially found in the Unova region. This Pokémon is vulnerable to electric and grass moves. It requires a Unova stone and 50 candy to evolve to Simipour.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934254/19272" target="_top" id="1934254">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934254" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934254/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2. Tricks to getting Pokémon Unova Stone
 
 Unova Stone is a great evolution asset in Pokémon Go generation 5. You are already aware that you need to make a filed research breakthrough to obtain Unova Stones. But what are some of the hacks and tricks that can make you easily claim the Unova Stones?
@@ -210,6 +211,13 @@ Unova Stone is a great evolution asset in Pokémon Go generation 5. You are alre
 **Step 3.** On the next window, select the third icon (teleport) at the top-right to enter the teleport mode. Now type the name of the place you want to teleport to and press "Go."
 
 ![virtual location 04](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
+
+<!-- affiliate ads begin -->
+<a href="https://bluettieu.pxf.io/c/5597632/2141676/17091" target="_top" id="2141676">
+  <img src="//a.impactradius-go.com/display-ad/17091-2141676" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141676/17091" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Step 4.** Finally, click "Move Here" on the dialog box that appears to move to the place you chose.
 
@@ -265,16 +273,16 @@ To install iPogo, we suggest you avoid the direct download method and instead fo
 
 ![ipogo install package](https://images.wondershare.com/drfone/2020/202010/ipogo-install-package.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1006793/11832" target="_top" id="1006793">
-  <img src="//a.impactradius-go.com/display-ad/11832-1006793" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1006793/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 8:** Now the installer asks for the Apple ID username, and Password mentions the same. Make sure these are the ones used to fetch the developer certificate from the Apple Server. (We suggest you create a new Apple ID)
 
 ![ipogo install enter apple id](https://images.wondershare.com/drfone/2020/202010/ipogo-install-enter-apple-id.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144298/7443" target="_top" id="2144298">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144298" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144298/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Step 9:** Be patient for a while and let the impact or to perform all the work.
 
@@ -283,13 +291,6 @@ To install iPogo, we suggest you avoid the direct download method and instead fo
 **Step 11:** Now hit on the developer Apple ID and trust it.
 
 ![ipogo installing click trust](https://images.wondershare.com/drfone/2020/202010/ipogo-installing-click-trust.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014851/22899" target="_top" id="2014851">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014851" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014851/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 2: Risk of installing ipogo and running
 
@@ -321,18 +322,18 @@ Start with downloading Dr.Fone Virtual Location on your PC using the official we
 
 ![drfone home](https://images.wondershare.com/drfone/guide/drfone-home.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135364/19272" target="_top" id="2135364">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135364" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135364/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 2: Get the Apple iPhone XS Max device Connected**
 
 You now need to get your iPgone plugged with PC via a USB cord. Once you do this, simply click on “Get Started.”
 
 ![virtual location 01](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918714/19272" target="_top" id="1918714">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918714" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918714/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 3: Check Location Accuracy**
 
@@ -345,13 +346,6 @@ A new window will appear indicating the actual location on the map. If the locat
 By clicking on the Corresponding icon in the upper right activates “Teleport Mode”. Now mention the place you want to teleport in the upper left field. Click “Go” (consider a Rome in Italy as an example)
 
 ![virtual location 04](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100542/7443" target="_top" id="2100542">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100542" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100542/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 5: Start Spoof**
 
@@ -379,17 +373,22 @@ Here, we have agreed to do to the conclusion that if iPogo won’t install there
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-in-2024-facebook-video-presentation-boost-adding-bb-and-lc-frameworks/"><u>[New] In 2024, Facebook Video Presentation Boost Adding BB and LC Frameworks</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-youtube-thumbnails-redefined-with-imagery/"><u>[Updated] YouTube Thumbnails Redefined with Imagery</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-apple-iphone-se-2020-drfone-by-drfone-virtual-ios/"><u>9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Apple iPhone SE (2020) | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-apple-iphone-14-pro-drfone-by-drfone-virtual-ios/"><u>How to get the dragon scale and evolution-enabled pokemon On Apple iPhone 14 Pro? | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-additional-tips-about-sinnoh-stone-for-apple-iphone-13-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, Additional Tips About Sinnoh Stone For Apple iPhone 13 Pro | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-to-get-and-use-pokemon-go-promo-codes-on-apple-iphone-11-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Get and Use Pokemon Go Promo Codes On Apple iPhone 11 Pro | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-use-pokemon-go-joystick-on-tecno-pop-7-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to use Pokemon Go Joystick on Tecno Pop 7 Pro? | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-the-magnificent-art-of-pokemon-go-streaming-on-apple-iphone-xr-drfone-by-drfone-virtual-ios/"><u>In 2024, The Magnificent Art of Pokemon Go Streaming On Apple iPhone XR? | Dr.fone</u></a></li>
-<li><a href="https://win11.techidaily.com/mending-undetected-additional-monitor-w11/"><u>Mending Undetected Additional Monitor W11</u></a></li>
-<li><a href="https://techtrends.techidaily.com/standard-sizes-comprehensive-guide-to-dvd-and-blu-ray-disc-covers-measurements/"><u>Standard Sizes: Comprehensive Guide to DVD & Blu-Ray Disc Covers Measurements</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/visual-vocabulary-at-your-fingertips-exploring-the-best-34-tools-to-convert-videos-into-language/"><u>Visual Vocabulary at Your Fingertips Exploring the Best 34 Tools to Convert Videos Into Language</u></a></li>
-<li><a href="https://win-answers.techidaily.com/winning-the-battle-against-serious-sam-s-pc-lag-and-freezing-problems/"><u>Winning the Battle Against Serious Sam Ⅳ's PC Lag & Freezing Problems</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-attention-stirrer-supreme-for-2024/"><u>[New] Attention Stirrer Supreme for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-melodious-memories-capturing-songs-in-your-snaps/"><u>[New] Melodious Memories Capturing Songs in Your Snaps</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-professional-capture-tools-for-pcmac-devices/"><u>[New] Professional Capture Tools for PC/Mac Devices</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/own-clutter-how-to-efficiently-handle-unwanted-youtube-content-pcmobile-for-2024/"><u>Cut Down Clutter How to Efficiently Handle Unwanted YouTube Content (PC/Mobile) for 2024</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/how-do-you-get-sun-stone-evolutions-in-pokemon-for-apple-iphone-14-drfone-by-drfone-virtual-ios/"><u>How Do You Get Sun Stone Evolutions in Pokémon For Apple iPhone 14? | Dr.fone</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/how-to-keep-your-epson-xp-640-printer-updated-on-a-windows-machine/"><u>How to Keep Your Epson XP-640 Printer Updated on a Windows Machine</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-heres-everything-you-should-know-about-pokemon-stops-in-detail-on-apple-iphone-12-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, Heres Everything You Should Know About Pokemon Stops in Detail On Apple iPhone 12 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-does-the-stardust-trade-cost-in-pokemon-go-on-apple-iphone-8-drfone-by-drfone-virtual-ios/"><u>In 2024, How does the stardust trade cost In pokemon go On Apple iPhone 8? | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-to-fix-pokemon-go-route-not-working-on-apple-iphone-15-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Fix Pokemon Go Route Not Working On Apple iPhone 15? | Dr.fone</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-simplified-strategies-for-novice-level-nft-crafting/"><u>In 2024, Simplified Strategies for Novice-Level NFT Crafting</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-apple-iphone-12-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, Unova Stone Pokémon Go Evolution List and How Catch Them For Apple iPhone 12 Pro | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-what-legendaries-are-in-pokemon-platinum-on-apple-iphone-12-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, What Legendaries Are In Pokemon Platinum On Apple iPhone 12 Pro? | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-why-your-whatsapp-live-location-is-not-updating-and-how-to-fix-on-your-vivo-y36i-drfone-by-drfone-virtual-android/"><u>In 2024, Why Your WhatsApp Live Location is Not Updating and How to Fix on your Vivo Y36i | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/reasons-why-pokemon-gps-does-not-work-on-apple-iphone-8-plus-drfone-by-drfone-virtual-ios/"><u>Reasons why Pokémon GPS does not Work On Apple iPhone 8 Plus? | Dr.fone</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/revive-the-roar-fixing-sound-problems-in-your-home-theatre-receiver/"><u>Revive the Roar: Fixing Sound Problems in Your Home Theatre Receiver</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/twitter-strips-emojis-linuss-secrets-exposed-trojan-threats-unveiled-and-chatbot-pitfalls/"><u>Twitter Strips Emojis, Linus's Secrets Exposed, Trojan Threats Unveiled, & ChatBot Pitfalls.</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/ultimate-guide-to-get-the-meltan-box-pokemon-go-for-apple-iphone-se-drfone-by-drfone-virtual-ios/"><u>Ultimate guide to get the meltan box pokemon go For Apple iPhone SE | Dr.fone</u></a></li>
 </ul></div>
 

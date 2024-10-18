@@ -1,7 +1,7 @@
 ---
 title: How to Fix 'Final Fantasy XV' Crashes in Your PC Game
-date: 2024-10-11T16:00:39.909Z
-updated: 2024-10-12T16:01:59.678Z
+date: 2024-10-17T12:28:01.300Z
+updated: 2024-10-18T10:47:31.985Z
 tags:
   - win11
   - win10
@@ -31,6 +31,13 @@ Fall Guys: Ultimate Knockout is a fascinating battle royale game. But like most 
 6. [**Reinstall the game**](https://tools.techidaily.com/drivereasy/download/)
 7. **[Check for Windows Updates](https://tools.techidaily.com/drivereasy/download/)**
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134499/19576" target="_top" id="2134499">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134499" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134499/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Check your computer specs first
 
  Before you attempt to try any of the below solutions, ensure that your device meets the minimum specifications to run Fall Guys: Ultimate Knockout. If you’re sure your PC does meet the requirements, you can skip to fixes directly.
@@ -50,6 +57,19 @@ Fall Guys: Ultimate Knockout is a fascinating battle royale game. But like most 
 
  If it turns out to be a server issue, then wait patiently for the developer to fix it. If the game server works fine, then the issue may be on your side. Move on to the next fix below.
 
+<!-- affiliate ads begin -->
+<span id="1975648">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975648.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975648">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975648%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975648/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Fix 2: End unnecessary programs
 
  If your game is unable to gain access to the memory it needs, it will either crash or run into other performance issues. So, it’s always wise to close background programs that take up a lot of PC memory. Follow the instructions below:
@@ -65,13 +85,6 @@ Fall Guys: Ultimate Knockout is a fascinating battle royale game. But like most 
 **3)** Restart Fall Guys to see if it runs correctly.
 
 If this doesn’t help, read on and try Fix 3.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134235/18498" target="_top" id="2134235">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134235" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134235/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Fix 3: Update the graphics driver
 
@@ -95,6 +108,19 @@ If this doesn’t help, read on and try Fix 3.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/12/2019-12-30_11-58-08.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1975636">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975636.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975636">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975636.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975636%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975636/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  You can do it for free if you like, but it’s partly manual.
 
 **The Pro version of Driver Easy** comes with full technical support.  
@@ -105,16 +131,10 @@ If this doesn’t help, read on and try Fix 3.
  If the game still won’t launch, then move on to the next fix, below.
 
 <!-- affiliate ads begin -->
-<span id="1374819">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1374819.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1374819">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374819.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374819%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374819/15852" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2130891/7443" target="_top" id="2130891">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130891" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130891/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Fix 4: Verify game files
@@ -136,22 +156,15 @@ If this doesn’t help, read on and try Fix 3.
 ![](https://images.drivereasy.com/wp-content/uploads/2020/12/3-1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134223/18498" target="_top" id="2134223">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2016143/19272" target="_top" id="2016143">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016143" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134223/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016143/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 5) Relaunch your game to test your issue.
 
 If the game is still unplayable, then continue with the next fix below.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975836/19272" target="_top" id="1975836">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975836" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975836/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Fix 5: Run as administrator
 
@@ -163,28 +176,15 @@ If the game is still unplayable, then continue with the next fix below.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/12/2020-12-16_16-59-37.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1936838">
-					<video width="374" height="48" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  2) Click the **Compatibility** tab and check **Run this program as an administrator** . Then click **OK** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/12/2020-12-16_17-00-12.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/1943750/22993" target="_top" id="1943750">
-  <img src="//a.impactradius-go.com/display-ad/22993-1943750" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135410/19272" target="_top" id="2135410">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135410" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943750/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135410/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 4) Repeat steps 1-2 to grant Steam admin rights.
@@ -209,6 +209,13 @@ If the game still won’t launch, then try the next solution.
 
 If the issue continues to occur, go to the next solution.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1915865/19272" target="_top" id="1915865">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915865" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915865/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Fix 7: Check for Windows updates
 
  If your game won’t launch at all, it’s not likely that out-of-date Windows components are the core issue, but you should rule out the possibility. Follow the instructions below:
@@ -220,13 +227,6 @@ If the issue continues to occur, go to the next solution.
  2) Click **Check for updates,**  and then wait for Windows to download and install the updates automatically.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/01/2020-01-18_11-12-44.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123733/7443" target="_top" id="2123733">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123733" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123733/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **3)**  Restart your computer and your game.
 
@@ -247,21 +247,18 @@ If the issue continues to occur, go to the next solution.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-in-2024-nikons-1j5-videographer-a-spectacle-in-4k/"><u>[New] In 2024, Nikon's 1J5 Videographer A Spectacle in 4K</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-mastering-audio-and-visual-quality-in-youtube-videos/"><u>[New] Mastering Audio & Visual Quality in YouTube Videos</u></a></li>
-<li><a href="https://article-helps.techidaily.com/new-mending-a-singular-audio-unit/"><u>[New] Mending a Singular Audio Unit</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/new-securing-and-optimizing-virtual-meetings-with-zoom-on-windows-11/"><u>[New] Securing and Optimizing Virtual Meetings with Zoom on Windows 11</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-apple-iphone-13-pro-drfone-by-drfone-virtual-ios/"><u>9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Apple iPhone 13 Pro | Dr.fone</u></a></li>
-<li><a href="https://solve-outstanding.techidaily.com/best-free-video-converter-tools-for-windows-11-in-2020-transform-hd-and-4k-with-ease/"><u>Best Free Video Converter Tools for Windows 11 in 2020: Transform HD & 4K with Ease</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-and-where-to-find-a-shiny-stone-pokemon-for-apple-iphone-11-drfone-by-drfone-virtual-ios/"><u>In 2024, How and Where to Find a Shiny Stone Pokémon For Apple iPhone 11? | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-what-legendaries-are-in-pokemon-platinum-on-apple-iphone-8-drfone-by-drfone-virtual-ios/"><u>In 2024, What Legendaries Are In Pokemon Platinum On Apple iPhone 8? | Dr.fone</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/solution-guide-why-are-my-headphones-not-working-with-windows-10/"><u>Solution Guide: Why Are My Headphones Not Working with Windows 10?</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/the-ultimate-guide-to-lgs-27in-widescreen-4k-display-for-2024/"><u>The Ultimate Guide to LG's 27in Widescreen 4K Display for 2024</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/the-ultimate-screen-recording-handbook-insights-and-expert-tips/"><u>The Ultimate Screen Recording Handbook: Insights & Expert Tips</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/updated-in-2024-jump-cutting-like-a-pro-in-fcpx-expert-techniques-revealed/"><u>Updated In 2024, Jump Cutting Like a Pro in FCPX Expert Techniques Revealed</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/what-legendaries-are-in-pokemon-platinum-on-apple-iphone-15-pro-drfone-by-drfone-virtual-ios/"><u>What Legendaries Are In Pokemon Platinum On Apple iPhone 15 Pro? | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/where-is-the-best-place-to-catch-dratini-on-apple-iphone-6s-drfone-by-drfone-virtual-ios/"><u>Where Is the Best Place to Catch Dratini On Apple iPhone 6s | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/where-is-the-best-place-to-catch-dratini-on-apple-iphone-7-plus-drfone-by-drfone-virtual-ios/"><u>Where Is the Best Place to Catch Dratini On Apple iPhone 7 Plus | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/why-is-ipogo-not-working-on-apple-iphone-6s-fixed-drfone-by-drfone-virtual-ios/"><u>Why is iPogo not working On Apple iPhone 6s? Fixed | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-building-successful-youtube-collaborations-step-by-step-for-2024/"><u>[Updated] Building Successful YouTube Collaborations Step by Step for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/2024cdamp35/"><u>【2024年度對CDA與MP3音頻切換建議】選出最高效5種過渡技術</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-the-slow-motion-journey-for-aspiring-ig-video-makers/"><u>2024 Approved The Slow-Motion Journey for Aspiring IG Video Makers</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/all-you-need-to-know-about-mega-greninja-for-apple-iphone-se-2020-drfone-by-drfone-virtual-ios/"><u>All You Need To Know About Mega Greninja For Apple iPhone SE (2020) | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/catchemall-celebrate-national-pokemon-day-with-virtual-location-on-apple-iphone-14-plus-drfone-by-drfone-virtual-ios/"><u>CatchEmAll Celebrate National Pokémon Day with Virtual Location On Apple iPhone 14 Plus | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-platforms-and-their-rating-systems/"><u>Digital Platforms and Their Rating Systems</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-location-on-facebook-dating-for-your-poco-c65-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Location On Facebook Dating for your Poco C65 | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-list-of-pokemon-go-joysticks-on-apple-iphone-6s-drfone-by-drfone-virtual-ios/"><u>In 2024, List of Pokémon Go Joysticks On Apple iPhone 6s | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-maximizing-zoom-value-through-top-three-strategies/"><u>In 2024, Maximizing Zoom Value Through Top Three Strategies</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/les-meilleurs-alternatives-a-imovie-pour-windows-top-10-listes-comparees/"><u>Les Meilleurs Alternatives À iMovie Pour Windows : Top 10 Listes Comparées !</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/the-most-useful-tips-for-pokemon-go-ultra-league-on-apple-iphone-13-drfone-by-drfone-virtual-ios/"><u>The Most Useful Tips for Pokemon Go Ultra League On Apple iPhone 13 | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/this-is-how-you-can-recover-deleted-pictures-from-infinix-note-30i-by-fonelab-android-recover-pictures/"><u>This is how you can recover deleted pictures from Infinix Note 30i.</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/unlocking-the-power-of-pause-time-mastering-art-of-slow-motion-videos-using-photos-apps-and-websites/"><u>Unlocking the Power of Pause Time Mastering Art of Slow Motion Videos Using Photos Apps and Websites</u></a></li>
 </ul></div>
 

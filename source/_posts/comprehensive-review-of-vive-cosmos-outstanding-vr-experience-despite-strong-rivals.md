@@ -1,7 +1,7 @@
 ---
 title: Comprehensive Review of Vive Cosmos – Outstanding VR Experience Despite Strong Rivals
-date: 2024-10-07T16:01:36.010Z
-updated: 2024-10-12T16:01:38.578Z
+date: 2024-10-13T13:38:41.377Z
+updated: 2024-10-18T09:00:10.862Z
 categories:
   - BestProducts
 description: This Article Describes Comprehensive Review of Vive Cosmos – Outstanding VR Experience Despite Strong Rivals
@@ -38,6 +38,13 @@ Lifewire / Yoona Wagener
 [View On Best Buy](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2Famazon-halo-activity-and-sleep-tracker-medium-7-onyx%2F6445215.p)
 
 4.2
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135406/19272" target="_top" id="2135406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135406" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Amazon Halo
 
@@ -91,6 +98,13 @@ Lifewire / Yoona Wagener
 
  As for water resistance, I didn’t test the 50-meter swimproof rating of the Halo in a pool, but I did shower with the device for three days. Despite the band’s moisture-wicking band material, it remained damp far longer than was comfortable and compared to a fast-drying silicone band. If you’re an avid swimmer or prefer not to remove your wearable while showering, the sport band option will most likely be the more desirable option.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134238/18498" target="_top" id="2134238">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134238" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134238/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Performance: Constantly monitoring movement, not performance
 
  While this streamlined device doesn’t log detailed workout metrics, the Halo has the upper hand when it comes to continuously monitoring movement—and sedentary stints throughout the day. Whether you’re sitting at a desk or venture out for an errand, the Halo will capture that and pretty accurately categorize it. It consistently registered walking and running activities, though the readout wasn’t very accurate for the latter. Truthfully, I don’t get the impression that that’s the point of the Halo.
@@ -100,10 +114,10 @@ Lifewire / Yoona Wagener
 ![Amazon Halo](https://www.lifewire.com/thmb/FjdFyV6Y4mTXNsqccZ4aEBJNpV0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon_Halo_05-e671ee9f77cc4cee8e2580a2dba449d5.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105883/7443" target="_top" id="2105883">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105883" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://homestyler.sjv.io/c/5597632/1943750/22993" target="_top" id="1943750">
+  <img src="//a.impactradius-go.com/display-ad/22993-1943750" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105883/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943750/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Yoona Wagener.
@@ -116,6 +130,13 @@ Lifewire / Yoona Wagener
 
  The body fat scan is based on pictures uploaded to the app—and based on prompts from the app. While it felt invasive and isn’t a feature I’d seek out in a fitness tracker, it worked without issue. Amazon reports that this technology is twice as accurate as smart scales. For the right user who feels comfortable with this kind of data compilation, this feature also offers visualizations of how different body fat percentages would look on your frame and stores your scans for a look at trends over time. All voice data and images used for the body scan are deletable from the app, though you can also choose to back up body data in the[cloud](https://www.lifewire.com/what-is-cloud-computing-817770) , which Amazon assures is private and well secured.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938745/19272" target="_top" id="1938745">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938745" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938745/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Software: An essential and user-friendly mobile app
 
  Without a visual display to interact with, the accompanying Halo mobile app is absolutely essential to the user experience. It delivers helpful explanations and guidance that most users want. Compatible with[iOS](https://www.lifewire.com/what-is-ios-1994355) and[Android](https://www.lifewire.com/what-is-google-android-1616887) phones, the Halo app makes everything from the initial setup to body scanning and voice tracking straightforward. Sleep data is backed up by explanations as is the activity point tracking system. Automatically tracked workout data is also easily accessible and so is the option to manually upload workout activities (there are 38 to choose from, including an all-encompassing Other category).
@@ -125,13 +146,6 @@ Lifewire / Yoona Wagener
  Like Fitbit, the Halo also comes with a free 6-month trial to a Halo membership, which includes various guided wellness programs from the Discover tab of the app. I followed along with various circuit, HIIT, and equipment-free workouts all of which offered some sort of video to follow along with as well as audio instructions. The Halo band would certainly lack the same sort of appeal without access to these programs that are great if you want to sneak in a quick workout, or you’re an avid at-home exerciser who likes to mix things up.
 
  The app makes everything from the initial setup to body scanning and voice tracking straightforward.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135413/19272" target="_top" id="2135413">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135413" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135413/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Battery: Enough juice to last nearly a week
 
@@ -148,10 +162,10 @@ Lifewire / Yoona Wagener
  Retailing for just about $100, the Amazon Halo band certainly won’t break the bank for budget-minded shoppers. While the lack of display could be a deterrent, the solid mobile app provides convenient access to the detailed sleep, automatic activity tracking, and specialized tone of voice and body fat analysis the Halo provides.
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134502/19576" target="_top" id="2134502">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134502" border="0" alt="https://techidaily.com" width="672" height="90"/>
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576474/17382" target="_top" id="1576474">
+  <img src="//a.impactradius-go.com/display-ad/17382-1576474" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134502/19576" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576474/17382" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Amazon Halo vs. WHOOP Strap 3
@@ -166,31 +180,11 @@ Lifewire / Yoona Wagener
 
  The Amazon Halo isn’t for everyone with its lack of display and additional layers of data tracking to capture tone of voice and body fat percentage. But for the user that wants a little less hardware but more forward-thinking fitness/health tracking, this unique wearable offers a different approach to increasing activity and wellness awareness on a daily basis.
 
-<!-- affiliate ads begin -->
-<span id="1498635">
-					<video width="320" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1498635.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/17326-1498635">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1498635.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:200px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fancheer.sjv.io%2Fc%2F5597632%2F1498635%2F17326'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1498635/17326" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Similar Products We've Reviewed
 
 * [Apple Watch Series 5](https://www.lifewire.com/apple-watch-series-6-review-5087552)
 * [Fitbit Sense](https://www.lifewire.com/fitbit-sense-review-5085832)
 * [Ticwatch Pro](https://www.lifewire.com/ticwatch-pro-4g-review-4797547)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016129/19272" target="_top" id="2016129">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016129" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016129/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -223,18 +217,19 @@ Lifewire / Yoona Wagener
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-files.techidaily.com/2024-approved-new-horizons-in-photography-lg-360-camera-update/"><u>2024 Approved New Horizons in Photography - LG 360 Camera Update</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/2024-approved-the-ultimate-speech-refinement-kit-free-tools-for-flawless-audio-effects/"><u>2024 Approved The Ultimate Speech Refinement Kit Free Tools for Flawless Audio Effects</u></a></li>
-<li><a href="https://win-blog.techidaily.com/comprehensive-fixes-overcoming-the-blackout-challenge-in-rainbow-six-siege-on-pc/"><u>Comprehensive Fixes: Overcoming The Blackout Challenge in Rainbow Six Siege on PC</u></a></li>
-<li><a href="https://fox-metric.techidaily.com/customize-your-service-configuration-options/"><u>Customize Your Service Configuration Options</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/exciting-online-gaming-options-a-list-of-7-kid-friendly-titles/"><u>Exciting Online Gaming Options: A List of 7 Kid-Friendly Titles</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/get-free-steelseries-drivers-for-arctis-5-headsets-now/"><u>Get Free SteelSeries Drivers for Arctis 5 Headsets Now!</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/how-to-use-pokemon-emerald-master-ball-cheat-on-apple-iphone-13-pro-max-drfone-by-drfone-virtual-ios/"><u>How to Use Pokémon Emerald Master Ball Cheat On Apple iPhone 13 Pro Max | Dr.fone</u></a></li>
-<li><a href="https://extra-information.techidaily.com/in-2024-comprelevant-listings-best-free-tools-to-watch-webm-videos/"><u>In 2024, Comprelevant Listings Best Free Tools to Watch WebM Videos</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-what-pokemon-evolve-with-a-dawn-stone-for-apple-iphone-13-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, What Pokémon Evolve with A Dawn Stone For Apple iPhone 13 Pro? | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/list-of-pokemon-go-joysticks-on-apple-iphone-se-2022-drfone-by-drfone-virtual-ios/"><u>List of Pokémon Go Joysticks On Apple iPhone SE (2022) | Dr.fone</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/proactive-protection-unveiling-seven-next-gen-cybersecurity-movements/"><u>Proactive Protection: Unveiling Seven Next-Gen Cybersecurity Movements</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/streamline-your-podcasts-effective-editing-tips-for-garageband-users-for-2024/"><u>Streamline Your Podcasts Effective Editing Tips for GarageBand Users for 2024</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/the-most-useful-tips-for-pokemon-go-ultra-league-on-apple-iphone-6s-drfone-by-drfone-virtual-ios/"><u>The Most Useful Tips for Pokemon Go Ultra League On Apple iPhone 6s | Dr.fone</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-craft-the-perfect-snaps-top-ideas-unveiled/"><u>[New] Craft the Perfect Snaps Top Ideas Unveiled</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-in-2024-cutting-edge-techniques-for-a-perfectly-setup-zoom-room/"><u>[New] In 2024, Cutting-Edge Techniques for a Perfectly Setup Zoom Room</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/bring-life-to-your-photos-motion-blur-techniques-for-illustration/"><u>Bring Life to Your Photos Motion Blur Techniques for Illustration</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/discover-the-best-alternatives-to-bandicam-for-effortless-screen-recording-on-windows-and-mac-ranked/"><u>Discover the Best Alternatives to Bandicam for Effortless Screen Recording on Windows & Mac - Ranked!</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/how-can-i-get-more-stardust-in-pokemon-go-on-apple-iphone-11-pro-drfone-by-drfone-virtual-ios/"><u>How can I get more stardust in pokemon go On Apple iPhone 11 Pro? | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-a-detailed-pokemon-go-pvp-tier-list-to-make-you-a-pro-trainer-for-apple-iphone-xs-max-drfone-by-drfone-virtual-ios/"><u>In 2024, A Detailed Pokemon Go PvP Tier List to Make you a Pro Trainer For Apple iPhone XS Max | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-a-working-guide-for-pachirisu-pokemon-go-map-on-apple-iphone-11-drfone-by-drfone-virtual-ios/"><u>In 2024, A Working Guide For Pachirisu Pokemon Go Map On Apple iPhone 11 | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-catchemall-celebrate-national-pokemon-day-with-virtual-location-on-apple-iphone-14-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, CatchEmAll Celebrate National Pokémon Day with Virtual Location On Apple iPhone 14 Plus | Dr.fone</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/in-2024-channel-your-tiktok-talent-chromeandroidios-guide/"><u>In 2024, Channel Your TikTok Talent Chrome/Android/iOS Guide</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-exquisite-background-melodies-for-edits/"><u>In 2024, Exquisite Background Melodies for Edits</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-pokemon-go-no-gps-signal-heres-every-possible-solution-on-apple-iphone-6s-drfone-by-drfone-virtual-ios/"><u>In 2024, Pokemon Go No GPS Signal? Heres Every Possible Solution On Apple iPhone 6s | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-uncovering-expert-video-making-talents/"><u>In 2024, Uncovering Expert Video Making Talents</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/perfect-your-audio-iphone-voice-memo-processing-for-2024/"><u>Perfect Your Audio IPhone Voice Memo Processing for 2024</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/top-15-augmented-reality-games-like-pokemon-go-to-play-on-apple-iphone-6s-plus-drfone-by-drfone-virtual-ios/"><u>Top 15 Augmented Reality Games Like Pokémon GO To Play On Apple iPhone 6s Plus | Dr.fone</u></a></li>
 </ul></div>
 

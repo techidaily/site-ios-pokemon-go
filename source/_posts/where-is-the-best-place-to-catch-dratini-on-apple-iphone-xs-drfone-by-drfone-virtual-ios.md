@@ -1,7 +1,7 @@
 ---
 title: Where Is the Best Place to Catch Dratini On Apple iPhone XS | Dr.fone
-date: 2024-10-10T16:00:02.781Z
-updated: 2024-10-12T16:06:19.757Z
+date: 2024-10-13T07:48:18.342Z
+updated: 2024-10-18T06:08:46.020Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -39,13 +39,6 @@ This is a Pokémon character that truly resembles a dragon and is the second evo
 
 Dragonite can fly at very high speeds despite its bulky appearance. It is a kindhearted Pokémon, which is as intelligent as a human being. It has been found to have tendencies to save humans from disasters, such as saving those who have come from a capsized ship on the high seas. It lives near the sea and is extremely rare in the Pokémon world.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123750/7443" target="_top" id="2123750">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123750" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123750/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2: Where can I find the Dratini nest?
 
 Dratini is a Pokémon that lives in the water. Since it loves lakes and seas, you can find it when you visit areas that are near water. For example, in the United States, the most famous nests for Dratini are found in North Eastern San Francisco, Pier 39 and Pier 15. You will always find Dratini at these sites and they are famous for people who want to farm Dratini.
@@ -82,6 +75,13 @@ The best app to use for teleportation is [Dr.Fone - Virtual Location (iOS)](http
 On the official Dr.Fone page, download and install Dr.Fone on your computer or you can click the Download button below to download it directly. Launch it and then go to the Home screen and click on “Virtual Location”.
 
 ![drfone home](https://images.wondershare.com/drfone/guide/drfone-home.png)
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484951/16446" target="_top" id="1484951">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484951" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484951/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 After entering the virtual location module, connect your iOS device to your computer using an original USB cable.
 
@@ -125,7 +125,21 @@ When you need to, you can teleport your device to an area where Dratini is popul
 
 Shiny Stone Pokémon is an important evolution item in Pokémon Sword and Shield. If you are a Pokémon player, you understand how great it is to capture a Shiny Stone. However, the Shiny Stone is a rare item, and you will have to put more work to grab one. In this article, we will to explain to you everything you ought to know about Shiny Stone Pokémon, including how to get them with less effort. Let’s get started.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137229/26400" target="_top" id="2137229">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137229" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137229/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 1. Shiny Stone Pokémon
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014851/22899" target="_top" id="2014851">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014851" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014851/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### What is Shiny Stone Evolution?
 
@@ -153,13 +167,6 @@ This is a normal type of Pokémon that was introduced in Generation 5. It is als
 
 Togetic is a fairy and flying type of Pokémon that has ten hatch cycles. Its abilities include hustle, serene grace, and super luck. Togetic itself evolves from Togepi with leveled up friendship through camp play and cooking curry. It can float in midair without having to flip it wings. It appears and showers happiness to kindhearted and caring people. It, however, becomes dispirited if it encounters people who aren’t kind. Togetic is located in Stony Wilderness and from an evolving Togepi. Togetic evolves to Togekiss with the help of a Shiny Stone.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136623/26400" target="_top" id="2136623">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136623" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136623/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2. Tricks and Hacks to Find Shiny Stone Pokémon
 
 Finding a Shiny Stone in Pokémon Sword and Shield is challenging because it is a rare item. Nevertheless, some hacks and tricks can reduce your curve of finding a Shiny Stone, as explained below.
@@ -176,6 +183,19 @@ Since the game of Pokémon is location-based, you can fake your GPS location by 
 
 ![virtual location 01](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
 
+<!-- affiliate ads begin -->
+<span id="1374820">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1374820.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1374820">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374820.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374820%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374820/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 3.** On the next page, click the third icon on the top-right to provide the teleport mode. Choose the location you want to teleport to within the filed at the top and press “Go.”
 
 ![virtual location 04](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
@@ -185,22 +205,21 @@ Since the game of Pokémon is location-based, you can fake your GPS location by 
 ![virtual location 06](https://images.wondershare.com/drfone/guide/virtual-location-06.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885932/19272" target="_top" id="1885932">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885932" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885932/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1977006">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977006.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977006">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977006.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977006%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977006/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2\. Use Android spoofing tool- Pgsharp
 
 Pgsharp i8s an Android application that enables users to be fake their GPS location and fools location-based apps like Pokémon Go to enter a territory that is easy to grab a Shiny Stone or Pokémon. It has a joystick feature for easy and smooth movement, coordinates to move to specific locations, auto walkthrough several pokestops, and saves your last location, among others.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043855/7443" target="_top" id="2043855">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043855" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043855/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 3\. Use a Drone
 
@@ -232,44 +251,17 @@ Before you install a Lure Module to a Pokemon stop, you need to purchase it on y
 
 ![Buy Lure Module Pokemon Go](https://images.wondershare.com/drfone/2020/202010/everything-about-pokemon-stops-3.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1936838">
-					<video width="374" height="48" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ****Step 2: Set up Lure Modules at Pokestops in Pokemon Go****
 
 Great! Once you have purchased Lure Modules, just step out and find Pokemon stops near me. After finding the Pokemon stop of your choice, tap on the disc icon to get more options. Now, tap on the Lure Module slot icon (white bar) at the top and go to the Pokemon Module feature.
 
 ![Add Pokestop Lure Module](https://images.wondershare.com/drfone/2020/202010/everything-about-pokemon-stops-4.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047406/19272" target="_top" id="2047406">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047406" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047406/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 That’s it! You can now select Lure Module from the Pokemon Module options and simply place it at the designated Pokemon stop. The Pokemon Go stop’s icon would change with rose petals to attract the nearby Pokemons.
 
 ![Lure Module Installed on Pokestop](https://images.wondershare.com/drfone/2020/202010/everything-about-pokemon-stops-5.jpg)
 
 For the next 30 minutes, the nearby Pokemons will automatically come to the designated Pokemon Go stop. This will benefit you and any other trainer who would visit the Pokemon Go stop until the allocated time.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880944/19272" target="_top" id="1880944">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880944" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880944/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 3: How Can You Make Pokestops into Farming Spots in the Game?
 
@@ -284,6 +276,13 @@ In this way, you can simply explore multiple Pokemon Go stops by walking. In a s
 ****Use Lure Modules with Friends****
 
 Instead of solely using Lure Modules, you can go with your friends to catch Pokemons. For instance, you and your friends can install Lure Modules at the nearby Pokemon Go stops. This will automatically create a farming spot for that place, attracting all kinds of nearby Pokemons. Not only would this benefit you/your friends, but let other trainers to catch tons of new Pokemons easily.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1884002/19272" target="_top" id="1884002">
+  <img src="//a.impactradius-go.com/display-ad/19272-1884002" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884002/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 4: How to Explore Pokemon Go Stops Remotely (without Walking)?
 
@@ -300,10 +299,10 @@ Subsequently, also connect your Apple iPhone XS to the system using a working ca
 ![launch the Virtual Location](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959773/19272" target="_top" id="1959773">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959773" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135401/19272" target="_top" id="2135401">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135401" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959773/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135401/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ****Step 2: Enter the Details of the Target Location****
@@ -315,6 +314,13 @@ Once your Apple iPhone XS is detected by the interface, its present location wou
 Now, you can go to the search options on the top-left side and enter the address or exact coordinates of the Pokestop. You can find the location of a Pokestop from several freely available online sources.
 
 ![virtual location 04](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925549/19272" target="_top" id="1925549">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925549" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925549/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ****Step 3: Spoof your Apple iPhone XS Location to a Pokemon stop****
 
@@ -340,21 +346,20 @@ I’m sure that after reading this post, you would be able to know about Poke st
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-8-best-image-grabbing-utilities/"><u>[Updated] In 2024, 8 Best Image Grabbing Utilities</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-mastering-instavid-promotion-crafting-a-successful-marketing-gameplan-for-2024/"><u>[Updated] Mastering InstaVid Promotion Crafting a Successful Marketing Gameplan for 2024</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/2024-approved-the-elite-compilation-9-online-mic-recorders-ranked/"><u>2024 Approved The Elite Compilation 9 Online Mic Recorders Ranked</u></a></li>
-<li><a href="https://fox-http.techidaily.com/beyond-spectacle-delving-into-vrs-negatives-for-2024/"><u>Beyond Spectacle Delving Into VR's Negatives for 2024</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/catch-or-beat-sleeping-snorlax-on-pokemon-go-for-apple-iphone-6s-plus-drfone-by-drfone-virtual-ios/"><u>Catch or Beat Sleeping Snorlax on Pokemon Go For Apple iPhone 6s Plus | Dr.fone</u></a></li>
-<li><a href="https://windows11.techidaily.com/decoding-the-meaning-of-0xc000003e-hexadecimal-errors/"><u>Decoding the Meaning of 0xC000003E Hexadecimal Errors</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/failed-to-play-mov-movies-on-motorola-by-aiseesoft-video-converter-play-mov-on-android/"><u>Failed to play MOV movies on Motorola</u></a></li>
-<li><a href="https://win-forum.techidaily.com/from-likes-to-viral-videos-mastering-engagement-across-facebook-twitter-instagram-and-youtube/"><u>From Likes to Viral Videos: Mastering Engagement Across Facebook, Twitter, Instagram & YouTube</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/how-can-i-create-my-pokemon-overworld-maps-on-apple-iphone-6-drfone-by-drfone-virtual-ios/"><u>How Can I Create My Pokemon Overworld Maps On Apple iPhone 6? | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-apple-iphone-8-drfone-by-drfone-virtual-ios/"><u>In 2024, Here are Some Pro Tips for Pokemon Go PvP Battles On Apple iPhone 8 | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-the-magnificent-art-of-pokemon-go-streaming-on-apple-iphone-13-drfone-by-drfone-virtual-ios/"><u>In 2024, The Magnificent Art of Pokemon Go Streaming On Apple iPhone 13? | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-ways-to-trade-pokemon-go-from-far-away-on-apple-iphone-se-2020-drfone-by-drfone-virtual-ios/"><u>In 2024, Ways to trade pokemon go from far away On Apple iPhone SE (2020)? | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/list-of-pokemon-go-joysticks-on-apple-iphone-6s-plus-drfone-by-drfone-virtual-ios/"><u>List of Pokémon Go Joysticks On Apple iPhone 6s Plus | Dr.fone</u></a></li>
-<li><a href="https://win-answers.techidaily.com/solutions-to-resolve-live-server-connection-failure-issue/"><u>Solutions to Resolve Live Server Connection Failure Issue</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/top-15-augmented-reality-games-like-pokemon-go-to-play-on-apple-iphone-11-pro-drfone-by-drfone-virtual-ios/"><u>Top 15 Augmented Reality Games Like Pokémon GO To Play On Apple iPhone 11 Pro | Dr.fone</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/updated-windows-8-mp4-video-editor-simple-and-efficient-editing-solution-for-2024/"><u>Updated Windows 8 MP4 Video Editor Simple and Efficient Editing Solution for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-in-2024-video-expertise-elevated-streamline-your-edits-with-these-vimeo-shortening-techniques/"><u>[New] In 2024, Video Expertise Elevated Streamline Your Edits with These Vimeo Shortening Techniques</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-prime-anglers-selection-leading-fishing-cameras-ranked/"><u>2024 Approved Prime Anglers' Selection Leading Fishing Cameras Ranked</u></a></li>
+<li><a href="https://blog-min.techidaily.com/5-ways-to-teach-you-to-transfer-files-from-itel-p55-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Ways To Teach You To Transfer Files from Itel P55 to Other Android Devices Easily | Dr.fone</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/compiling-ultimate-list-of-virtual-controls/"><u>Compiling Ultimate List of Virtual Controls</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/crucial-steps-in-archiving-lol-matchups-for-2024/"><u>Crucial Steps in Archiving LOL Matchups for 2024</u></a></li>
+<li><a href="https://win-forum.techidaily.com/exploring-leading-online-communities-the-powerhouses-of-facebook-twitter-instagram-youtube/"><u>Exploring Leading Online Communities: The Powerhouses of Facebook, Twitter, Instagram, Youtube</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/here-are-some-of-the-best-pokemon-discord-servers-to-join-on-apple-iphone-13-pro-max-drfone-by-drfone-virtual-ios/"><u>Here are Some of the Best Pokemon Discord Servers to Join On Apple iPhone 13 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-apple-iphone-6s-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, 4 solution to get rid of pokemon fail to detect location On Apple iPhone 6s Plus | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-to-enter-the-ispoofer-discord-server-on-apple-iphone-8-drfone-by-drfone-virtual-ios/"><u>In 2024, How to enter the iSpoofer discord server On Apple iPhone 8 | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-pokemon-go-error-12-failed-to-detect-location-on-apple-iphone-11-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, Pokemon Go Error 12 Failed to Detect Location On Apple iPhone 11 Pro Max? | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-ultimate-guide-to-get-the-meltan-box-pokemon-go-for-apple-iphone-15-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, Ultimate guide to get the meltan box pokemon go For Apple iPhone 15 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-which-pokemon-can-evolve-with-a-moon-stone-for-apple-iphone-14-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, Which Pokémon can Evolve with a Moon Stone For Apple iPhone 14 Pro Max? | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/possible-solutions-to-restore-deleted-photos-from-vivo-y200e-5g-by-fonelab-android-recover-photos/"><u>Possible solutions to restore deleted photos from Vivo Y200e 5G.</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-apple-iphone-se-2020-drfone-by-drfone-virtual-ios/"><u>Will Pokémon Go Ban the Account if You Use PGSharp On Apple iPhone SE (2020) | Dr.fone</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/1726028571800-5/"><u>ビデオ撮影者が選ぶ5つのおすすめ動画文字化シーンアプリ - 見やすく、使い勝手良し！</u></a></li>
 </ul></div>
 

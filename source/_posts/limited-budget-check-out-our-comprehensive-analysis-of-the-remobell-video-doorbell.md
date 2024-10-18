@@ -1,7 +1,7 @@
 ---
 title: Limited Budget? Check Out Our Comprehensive Analysis of the RemoBell Video Doorbell
-date: 2024-10-08T16:00:57.426Z
-updated: 2024-10-12T16:00:04.124Z
+date: 2024-10-14T18:38:31.135Z
+updated: 2024-10-17T16:00:45.703Z
 categories:
   - BestProducts
 description: This Article Describes Limited Budget? Check Out Our Comprehensive Analysis of the RemoBell Video Doorbell
@@ -42,6 +42,13 @@ Lifewire / Erika Rawes
 
 ![TP-Link Archer C9 AC1900](https://www.lifewire.com/thmb/5L4k_oD-GKPyliYY-jL-tLQH-Uk=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TPLink_LongRangeRouters_ArcherAC1900_HeroSquare-68c63e89f59a47a2944b2a73434417e9.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972679/19272" target="_top" id="1972679">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972679" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972679/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Erika Rawes
 
 [View On Amazon](https://www.amazon.com/dp/B00PDLRHFW/?tag=lifewire-onsite-prod-20&ascsubtag=5025101%7Cnb196585ced2341b2b2b5f702b47e2cf321%7CB00PDLRHFW) [View On Walmart](https://www.walmart.com/ip/TP-LINK-Archer-C9-AC1900-Wireless-Dual-Band-Gigabit-Router/42121251) [View On B&H Photo Video](https://www.bhphotovideo.com/c/replacement%5Ffor/1117107-REG/tp%5Flink%5Farcher%5Fc9%5Fac1900%5Fdual%5Fband%5Fwireless.html)
@@ -64,13 +71,6 @@ Lifewire / Erika Rawes
 
  The TP-Link Archer C9 AC1900 is a budget-friendly router, so it doesn’t include too many of the features you see in newer, more expensive models. It doesn’t include[Alexa](https://www.lifewire.com/amazon-alexa-voice-assistant-4152107) control or MU-MIMO technology, but it’s supposed to provide a long signal range for larger homes, as well as support fast enough speeds for online gaming and 4K media. I tested the TP-Link AC1900 alongside several other[long range routers](https://www.lifewire.com/best-long-range-routers-4122554) to see how well it performs in the real world.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1884021/19272" target="_top" id="1884021">
-  <img src="//a.impactradius-go.com/display-ad/19272-1884021" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884021/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Design: Fingerprints galore**
 
  The Archer AC1900 definitely isn’t the most attractive router I’ve seen. The version I tested is black, but TP-Link also makes the C9 in white. The gloss finish gives the AC1900 a cheap look, and it, unfortunately, shows each and every smudge and fingerprint when you touch the surface. The indicator lights sit on the front face, and you can easily see the network status with a quick glance.
@@ -87,6 +87,13 @@ Lifewire / Erika Rawes
 
  Setup is simple, and you can use the Tether app or the TP-Link site. There’s a QR code in the quick setup leaflet, so you can easily find the app. As it goes with most routers, you’ll find a temporary network name, password, and login info on the label. The app walks you through the setup process step-by-step, guiding you through creating your 2.4 and 5 GHz networks.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1959712/19272" target="_top" id="1959712">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959712" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959712/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Connectivity: Decent speeds, long range**
 
  The Archer C9 AC1900 is an 801.11ac router. It can reach up to 1300 Mbps on the 5 GHz band and up to 600 Mbps on the 2.4 GHz band for a total of 1900 Mbps. The C9 has[beamforming](https://www.lifewire.com/what-is-wi-fi-beamforming-4171262) , which promotes a more concentrated signal and a longer range. It has four separate gigabit LAN ports for hardwiring devices.
@@ -96,13 +103,6 @@ Lifewire / Erika Rawes
  As I traveled far away from the router, I was able to maintain a signal, but the speed slowed down quite a bit. In the backyard, another area where I often experience drop-offs, the speed came in at 39 Mbps. I repeated the Ookla speed test numerous times, and the results remained around the same in each room. I was able to get slightly higher speeds on an iPhone 11, but overall the router performed extremely well at close proximity, but not so well at a distance.
 
 ![TP-Link Archer C9 AC1900](https://www.lifewire.com/thmb/gPQRxhQBJ13ETuiP-7-Vy9eGcss=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TPLink_LongRangeRouters_ArcherAC1900_05-4ddd14a5299f45279789011ce3b9e8ea.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137218/26400" target="_top" id="2137218">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137218" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137218/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
 
@@ -117,10 +117,10 @@ Lifewire / Erika Rawes
  The router performed extremely well at close proximity, but not so well at a distance.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896532/19272" target="_top" id="1896532">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1884002/19272" target="_top" id="1884002">
+  <img src="//a.impactradius-go.com/display-ad/19272-1884002" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896532/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884002/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Software: TP-Link Tether app**
@@ -133,25 +133,18 @@ Lifewire / Erika Rawes
 
 ![The TP-Link Archer C9 AC1900 is a budget-friendly router, so it doesn’t include too many of the features you see in newer, more expensive models. It doesn’t include Alexa control or MU-MIMO technology, but it’s supposed to provide a long signal range for larger homes, as well as support fast enough speeds for online gaming and 4K media. I tested the TP-Link AC1900 alongside several other long range routers to see how well it performs in the real world. Design: Fingerprints galore The Archer AC1900 definitely isn’t the most attractive router I’ve seen. The version I tested is black, but TP-Link also makes the C9 in white. The gloss finish gives the AC1900 a cheap look, and it unfortunately shows each and every smudge and fingerprint when you touch the surface. The indicator lights sit on the front face, and you can easily see the network status with a quick glance. The C9 has a slate grey plastic border, which goes around the top perimeter, angles outward, and serves as a stand for the router. The stand allows you to position the AC1900 horizontally or vertically. However, you’ll have to move your cabling under the stand to place the router in a horizontal position, so you can’t easily move it between the two orientations without disconnecting your cables. The Archer C9 has three removable antennas you can swivel and adjust. Although they’re a necessary evil, the antennas are extremely long (almost six inches), so the router looks oddly tall when in the vertical position with the antennas extended. Most of the ports are positioned on the rear, with the exception of the second USB port that sits along the side next to the Wi-Fi button. Setup: Takes less than 10 minutes Setup is simple, and you can use the Tether app or the TP-Link site. There’s a QR code in the quick setup leaflet, so you can easily find the app. As it goes with most routers, you’ll find a temporary network name, password, and login info on the label. The app walks you through the setup process step-by-step, guiding you through creating your 2.4 and 5 GHz networks. Connectivity: Decent speeds, long range The Archer C9 AC1900 is an 801.11ac router. It can reach up to 1300 Mbps on the 5 GHz band and up to 600 Mbps on the 2.4 GHz band for a total of 1900 Mbps. The C9 has beamforming, which promotes a more concentrated signal and a longer range. It has four separate gigabit LAN ports for hardwiring devices. In my test home, my ISP speeds are 500 Mbps. On the 5 GHz band, my laptop’s Wi-Fi speed clocked in at 290 Mbps when sitting in the same room as the router. In the back corner of my office, which is often a dead zone, my laptop clocked 66 Mbps on the 2.4 GHz band. As I traveled far away from the router, I was able to maintain a signal, but the speed slowed down quite a bit. In the backyard, another area where I often experience drop offs, the speed came in at 39 Mbps. I repeated the Ookla speed test numerous times, and the results remained around the same in each room. I was able to get slightly higher speeds on an iPhone 11, but overall the router performed extremely well at close proximity, but not so well at a distance. Key features: Guest network and parental controls The C9 has two USB ports (one USB 2.0 and one USB 3.0), so you can share printers or storage over the network. Although this is somewhat of a basic router, it has some modern perks. It supports the most recent Internet Protocol version, IPv6. You can also create a guest network, so you don’t have to share your main network credentials with visitors. The C9 does feature parental controls, but they aren’t exactly comprehensive. Software: TP-Link Tether app You can control the router’s functions from the companion app, Tether. In the app, you can do things like set parental time limits on devices, create a guest network, block devices from the network, and perform basic network maintenance. I also recently tested the TP-Link Archer AX6000, which uses the Tether app as well. The app interface changes based on which router you’re using. With the Archer AX6000, I had more options visible because it’s a more feature-rich unit. I was impressed with the app’s ability to remove those features from the interface with the C9, instead of leaving them in place for me to click on and get that “not available with this model” message. The TP-Link site gives you access to more advanced features, like USB settings for file and printer sharing, more advanced parental controls (blocking sites), access control, DHCP settings, and forwarding and security features. Price: A budget router The Archer C9 AC1900 is an older model, so it’s not as readily available as it was a couple of years back. You can typically find it for around $120, which is a good price for a long range router with its feature set. TP-Link Archer C9 AC1900 vs. ASUS RT-AC1900 The ASUS RT-AC1900 typically sells for closer to $150, but you can find it refurbished or on sale for around the same price as the Archer AC1900. The two routers look similar at first glance—they both have three very long antennas protruding from the top. They have similar specifications, including a dual-core processor, AC1900 speed, and dual-bands, and a long range. But, the ASUS RT-AC1900 offers a few perks, like TrendMicro security and NVIDIA GameStream technology.](https://www.lifewire.com/thmb/m3x5QNiGd-1noZGGAsTWcydG09U=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TPLink_LongRangeRouters_ArcherAC1900_03-3c172ddeb5b34d9a98b7ac1e91b9c73f.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144271/7443" target="_top" id="2144271">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144271" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144271/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Erika Rawes
+
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1167086/14483" target="_top" id="1167086">
+  <img src="//a.impactradius-go.com/display-ad/14483-1167086" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1167086/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Price: A budget router**
 
  The Archer C9 AC1900 is an older model, so it’s not as readily available as it was a couple of years back. You can typically find it for around $120, which is a good price for a long-range router with its feature set.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068412/7443" target="_top" id="2068412">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068412" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068412/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **TP-Link Archer C9 AC1900 vs. ASUS RT-AC1900**
 
@@ -162,6 +155,13 @@ Lifewire / Erika Rawes
  **A reliable budget router that will help prevent drop-offs.**
 
  The TP-Link Archer C9 AC1900 is a good option for those who want a reasonably fast and stable network connection, but don’t want to pay a lot of cash for extra bells and whistles.
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139109/17108" target="_top" id="2139109">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139109" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139109/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -199,20 +199,24 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-uploading-success-stories-mastering-igtv-content-posting/"><u>[New] In 2024, Uploading Success Stories Mastering IGTV Content Posting</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/a-detailed-pokemon-go-pvp-tier-list-to-make-you-a-pro-trainer-for-apple-iphone-xr-drfone-by-drfone-virtual-ios/"><u>A Detailed Pokemon Go PvP Tier List to Make you a Pro Trainer For Apple iPhone XR | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/a-working-guide-for-pachirisu-pokemon-go-map-on-apple-iphone-7-plus-drfone-by-drfone-virtual-ios/"><u>A Working Guide For Pachirisu Pokemon Go Map On Apple iPhone 7 Plus | Dr.fone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/best-android-data-recovery-retrieve-lost-pictures-from-14-by-fonelab-android-recover-pictures/"><u>Best Android Data Recovery - Retrieve Lost Pictures from 14.</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-apple-iphone-6s-plus-drfone-by-drfone-virtual-ios/"><u>Can I use iTools gpx file to catch the rare Pokemon On Apple iPhone 6s Plus | Dr.fone</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/1722126066645-chatgpt-desktop-still-not-out-check-this-great-gratis-open-source-option-for-your-needs/"><u>ChatGPT Desktop Still Not Out? Check This Great, Gratis Open Source Option for Your Needs</u></a></li>
-<li><a href="https://some-tips.techidaily.com/enhanced-personalization-through-innovative-cookiebot-solutions/"><u>Enhanced Personalization Through Innovative Cookiebot Solutions</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-best-gaming-streams-a-selection-of-leading-webcams/"><u>In 2024, Best Gaming Streams A Selection of Leading Webcams</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/in-2024-facebook-evolution-what-you-need-to-know/"><u>In 2024, Facebook Evolution What You Need to Know</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-do-you-get-sun-stone-evolutions-in-pokemon-for-apple-iphone-13-mini-drfone-by-drfone-virtual-ios/"><u>In 2024, How Do You Get Sun Stone Evolutions in Pokémon For Apple iPhone 13 mini? | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-apple-iphone-14-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, How to get the dragon scale and evolution-enabled pokemon On Apple iPhone 14 Pro? | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-apple-iphone-6s-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Apple iPhone 6s Plus | Dr.fone</u></a></li>
-<li><a href="https://win-hot.techidaily.com/losung-sucht-den-fehlenden-windows-re-imageschnitt-wiederherstellung-und-optimierung/"><u>Lösung Sucht Den Fehlenden Windows RE-Imageschnitt - Wiederherstellung Und Optimierung</u></a></li>
-<li><a href="https://network-issues.techidaily.com/tackling-poor-image-rendering-in-ubisofts-island-narrative/"><u>Tackling Poor Image Rendering in Ubisoft's Island Narrative</u></a></li>
-<li><a href="https://ios-location-track.techidaily.com/top-6-appsservices-to-trace-any-apple-iphone-13-pro-location-by-mobile-number-drfone-by-drfone-virtual-ios/"><u>Top 6 Apps/Services to Trace Any Apple iPhone 13 Pro Location By Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-in-2024-proven-steps-building-quality-time-lapses-on-galaxy-devices/"><u>[New] In 2024, Proven Steps Building Quality Time-Lapses on Galaxy Devices</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-photo-perfection-highest-rated-phone-tripods/"><u>[New] Photo Perfection Highest Rated Phone Tripods</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-enhancing-googles-speech-to-text-capabilities-effectively/"><u>[Updated] 2024 Approved Enhancing Google's Speech-to-Text Capabilities Effectively</u></a></li>
+<li><a href="https://article-posts.techidaily.com/adventure-videography-supplies-for-travelers/"><u>Adventure Videography Supplies for Travelers</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-apple-iphone-12-drfone-by-drfone-virtual-ios/"><u>Can I use iTools gpx file to catch the rare Pokemon On Apple iPhone 12 | Dr.fone</u></a></li>
+<li><a href="https://win11.techidaily.com/de-jam-your-devices-top-9-solutions-for-unstuck-windows-setup/"><u>De-Jam Your Devices: Top 9 Solutions for Unstuck Windows Setup</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-a-working-guide-for-pachirisu-pokemon-go-map-on-apple-iphone-se-drfone-by-drfone-virtual-ios/"><u>In 2024, A Working Guide For Pachirisu Pokemon Go Map On Apple iPhone SE | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-here-are-some-of-the-best-pokemon-discord-servers-to-join-on-apple-iphone-xs-max-drfone-by-drfone-virtual-ios/"><u>In 2024, Here are Some of the Best Pokemon Discord Servers to Join On Apple iPhone XS Max | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-oppo-reno-11-5g-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Oppo Reno 11 5G to Other Android Devices? | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-what-legendaries-are-in-pokemon-platinum-on-apple-iphone-6-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, What Legendaries Are In Pokemon Platinum On Apple iPhone 6 Plus? | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-which-pokemon-can-evolve-with-a-moon-stone-for-apple-iphone-14-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, Which Pokémon can Evolve with a Moon Stone For Apple iPhone 14 Plus? | Dr.fone</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/mycam-in-action-a-detailed-review-of-its-recording-abilities-for-2024/"><u>MyCam in Action A Detailed Review of Its Recording Abilities for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/perfecting-trailer-audio-a-step-by-step-approach-for-2024/"><u>Perfecting Trailer Audio A Step-by-Step Approach for 2024</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/planning-to-use-a-pokemon-go-joystick-on-apple-iphone-12-mini-drfone-by-drfone-virtual-ios/"><u>Planning to Use a Pokemon Go Joystick on Apple iPhone 12 mini? | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/seamless-transition-for-extracting-facebooks-graphic-gems-anywhere-for-2024/"><u>Seamless Transition for Extracting Facebook's Graphic Gems Anywhere for 2024</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-apple-iphone-11-pro-drfone-by-drfone-virtual-ios/"><u>The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Apple iPhone 11 Pro | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-apple-iphone-12-pro-max-drfone-by-drfone-virtual-ios/"><u>The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Apple iPhone 12 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/top-tipps-voor-online-and-vrijgebruikelijke-tools-om-mkv-naar-mp4-te-versterken/"><u>Top-Tipps Voor Online & Vrijgebruikelijke Tools Om MKV Naar MP4 Te Versterken</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-apple-iphone-15-plus-drfone-by-drfone-virtual-ios/"><u>What is the best Pokemon for pokemon pvp ranking On Apple iPhone 15 Plus? | Dr.fone</u></a></li>
 </ul></div>
 
