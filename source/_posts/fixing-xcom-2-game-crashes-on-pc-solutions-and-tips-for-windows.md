@@ -1,7 +1,7 @@
 ---
 title: Fixing XCOM 2 Game Crashes on PC – Solutions and Tips for Windows
-date: 2024-10-17T06:18:06.637Z
-updated: 2024-10-23T18:18:42.882Z
+date: 2024-10-26T01:55:39.698Z
+updated: 2024-10-30T02:47:07.343Z
 tags:
   - win11
   - win10
@@ -41,9 +41,24 @@ Check for Windows update on your Windows 10:
 
 ![](https://images.drivereasy.com/wp-content/uploads/2017/10/img_59e46083007b4.png)
 3. Install the available updates.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896510/19272" target="_top" id="1896510">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896510" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896510/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 4. Reboot your Windows and try to run your game on Steam to see if it works.
 
 **Note:**  If Windows tells you **Your device is up to date**  after checking, please try our next method.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144309/7443" target="_top" id="2144309">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144309" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144309/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Method 2: Update your video card driver
 
@@ -59,15 +74,22 @@ Check for Windows update on your Windows 10:
 3. Click **Update All** to automatically download and install the correct version of _all_ the drivers that are missing or out of date on your system (this requires the **[Pro version](https://tools.techidaily.com/drivereasy/download/)**  – you’ll be prompted to upgrade when you click Update All).  
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027181/19272" target="_top" id="2027181">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027181" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2014851/22899" target="_top" id="2014851">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014851" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027181/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014851/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Note** : You can do it for free if you like, but it’s partly manual.  
 ![](https://images.drivereasy.com/wp-content/uploads/2023/07/driver-easy-update.jpg)
 4. Reboot your Windows and try to run your game on Steam to see if it works.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144310/7443" target="_top" id="2144310">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144310" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144310/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Method 3: Verify your game cache files
 
@@ -83,13 +105,6 @@ Follow these to verify your game cache files:
 ![](https://images.drivereasy.com/wp-content/uploads/2017/10/img_59e47001401be.png)
 4. It should then begin validating your Steam files and you will see this small window after several minutes:  
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014853/22899" target="_top" id="2014853">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014853" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014853/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![](https://images.drivereasy.com/wp-content/uploads/2017/10/img_59e4712ae8e78.png)
 5. Reboot your Windows and try to run your game on Steam to see if it works.
 
@@ -98,13 +113,6 @@ Follow these to verify your game cache files:
  Some programs running on your Windows 10 may interfere the performance of Steam. Try to close those unnecessary programs. Then reboot your Windows and try to run your game on Steam to see if it works.
 
  If you’re not sure about which programs you should close, you can take [Programs Which May Interfere with Steam](https://support.steampowered.com/kb%5Farticle.php?ref=9828-SFLZ-9289) from official Steam website as a reference.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134241/18498" target="_top" id="2134241">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134241" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134241/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Method 5: Check for damaged system files
 
@@ -120,20 +128,13 @@ Follow these to verify your game cache files:
 ![](https://images.drivereasy.com/wp-content/uploads/2022/01/fortect-2.jpg)
 4. Once done, you’ll see a detailed report of all the issues on your PC. To fix them automatically, click**START REPAIR** . This requires you to purchase the full version. But don’t worry. If Fortect doesn’t solve the issue, you can request a refund within 60 days.  
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2139322/26400" target="_top" id="2139322">
-  <img src="//a.impactradius-go.com/display-ad/26400-2139322" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2139322/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![](https://images.drivereasy.com/wp-content/uploads/2022/01/fortect-3.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037319/7443" target="_top" id="2037319">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037319" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151892/7443" target="_top" id="2151892">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151892" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037319/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151892/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Hopefull this post helped you solved the Steam games not launching issue. If you have any questions or suggestions, please feel free to leave a comment below.
@@ -155,19 +156,24 @@ Follow these to verify your game cache files:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/updated-360-video-stitching-tips-how-to-stitch-gopro-clips-into-360-videos-for-2024/"><u>[Updated] 360 Video Stitching Tips How to Stitch GoPro Clips Into 360 Videos for 2024</u></a></li>
-<li><a href="https://some-skills.techidaily.com/2024-approved-streamline-your-podcasts-for-apple-podcasts/"><u>2024 Approved Streamline Your Podcasts for Apple Podcasts</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/customize-your-windows-photos-experience-with-unique-audio-and-aesthetic-choices-for-2024/"><u>Customize Your Windows Photos Experience with Unique Audio & Aesthetic Choices for 2024</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/guide-to-ipad-navigation-systems-unveiling-the-models-that-offer-integrated-gps-for-tracking-and-location-services/"><u>Guide to iPad Navigation Systems: Unveiling the Models That Offer Integrated GPS for Tracking and Location Services</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-all-you-need-to-know-about-mega-greninja-for-apple-iphone-13-drfone-by-drfone-virtual-ios/"><u>In 2024, All You Need To Know About Mega Greninja For Apple iPhone 13 | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-can-i-create-my-pokemon-overworld-maps-on-apple-iphone-xs-max-drfone-by-drfone-virtual-ios/"><u>In 2024, How Can I Create My Pokemon Overworld Maps On Apple iPhone XS Max? | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-apple-iphone-11-drfone-by-drfone-virtual-ios/"><u>In 2024, How PGSharp Save You from Ban While Spoofing Pokemon Go On Apple iPhone 11? | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-to-come-up-with-the-best-pokemon-team-on-apple-iphone-6-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Come up With the Best Pokemon Team On Apple iPhone 6 Plus? | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-use-pokemon-go-joystick-on-tecno-camon-20-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to use Pokemon Go Joystick on Tecno Camon 20 Pro 5G? | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-what-legendaries-are-in-pokemon-platinum-on-apple-iphone-11-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, What Legendaries Are In Pokemon Platinum On Apple iPhone 11 Pro Max? | Dr.fone</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/polite-practices-for-chatbot-engagements-examples-with-siri-and-others/"><u>Polite Practices for Chatbot Engagements: Examples with Siri & Others</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/quick-fixes-for-why-is-my-realme-narzo-60x-5g-black-and-white-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Quick Fixes for Why Is My Realme Narzo 60x 5G Black and White | Dr.fone</u></a></li>
-<li><a href="https://win-help.techidaily.com/transferieren-sie-ihr-betriebssystem-windows-881-effizient-auf-einen-schnelleren-ssd/"><u>Transferieren Sie Ihr Betriebssystem Windows 8/8.1 Effizient Auf Einen Schnelleren SSD!</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-apple-iphone-14-pro-max-drfone-by-drfone-virtual-ios/"><u>Will Pokémon Go Ban the Account if You Use PGSharp On Apple iPhone 14 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/uy-subscribers-wisely-watch-your-numbers-soar-for-2024/"><u>[New] Buy Subscribers Wisely, Watch Your Numbers Soar for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-beat-stress-away-the-ultimate-gaming-list/"><u>[Updated] Beat Stress Away The Ultimate Gaming List</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-top-12-vlogger-friendly-cameras-unveiled/"><u>2024 Approved Top 12 Vlogger-Friendly Cameras Unveiled!</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-apple-iphone-8-drfone-by-drfone-virtual-ios/"><u>Here are Some Pro Tips for Pokemon Go PvP Battles On Apple iPhone 8 | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-apple-iphone-x-drfone-by-drfone-virtual-ios/"><u>Here are Some Pro Tips for Pokemon Go PvP Battles On Apple iPhone X | Dr.fone</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-remove-and-reset-face-id-on-iphone-12-pro-max-by-drfone-ios/"><u>How to Remove and Reset Face ID on iPhone 12 Pro Max</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/how-to-use-pokemon-emerald-master-ball-cheat-on-apple-iphone-14-drfone-by-drfone-virtual-ios/"><u>How to Use Pokémon Emerald Master Ball Cheat On Apple iPhone 14 | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-11-best-pokemon-go-spoofers-for-gps-spoofing-on-apple-iphone-12-drfone-by-drfone-virtual-ios/"><u>In 2024, 11 Best Pokemon Go Spoofers for GPS Spoofing on Apple iPhone 12 | Dr.fone</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/in-2024-boost-engagement-using-obs-for-youtube-and-twitch-audiences/"><u>In 2024, Boost Engagement Using OBS for YouTube & Twitch Audiences</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-to-come-up-with-the-best-pokemon-team-on-apple-iphone-13-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Come up With the Best Pokemon Team On Apple iPhone 13 Pro Max? | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-reasons-why-pokemon-gps-does-not-work-on-apple-iphone-15-drfone-by-drfone-virtual-ios/"><u>In 2024, Reasons why Pokémon GPS does not Work On Apple iPhone 15? | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/life360-learn-how-everything-works-on-oneplus-nord-n30-se-drfone-by-drfone-virtual-android/"><u>Life360 Learn How Everything Works On OnePlus Nord N30 SE | Dr.fone</u></a></li>
+<li><a href="https://fox-that.techidaily.com/recovery-techniques-finding-and-restoring-deletion-prone-apple-notebook-data/"><u>Recovery Techniques: Finding and Restoring Deletion-Prone Apple Notebook Data</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/rootjunky-apk-to-bypass-google-frp-lock-for-infinix-hot-40-by-drfone-android/"><u>Rootjunky APK To Bypass Google FRP Lock For Infinix Hot 40</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/the-essential-guide-to-video-hue-correction-11-steps/"><u>The Essential Guide to Video Hue Correction (11 Steps)</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/the-magnificent-art-of-pokemon-go-streaming-on-apple-iphone-x-drfone-by-drfone-virtual-ios/"><u>The Magnificent Art of Pokemon Go Streaming On Apple iPhone X? | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/undelete-lost-contacts-from-honor-90-pro-by-fonelab-android-recover-contacts/"><u>Undelete lost contacts from Honor 90 Pro.</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/which-pokemon-can-evolve-with-a-moon-stone-for-apple-iphone-12-pro-max-drfone-by-drfone-virtual-ios/"><u>Which Pokémon can Evolve with a Moon Stone For Apple iPhone 12 Pro Max? | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/why-cant-i-install-the-ipogo-on-apple-iphone-12-drfone-by-drfone-virtual-ios/"><u>Why cant I install the ipogo On Apple iPhone 12 | Dr.fone</u></a></li>
 </ul></div>
 

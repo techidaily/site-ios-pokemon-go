@@ -1,7 +1,7 @@
 ---
 title: Ways to trade pokemon go from far away On Apple iPhone 7? | Dr.fone
-date: 2024-10-11T16:06:11.609Z
-updated: 2024-10-12T16:06:30.612Z
+date: 2024-10-25T01:41:33.998Z
+updated: 2024-10-30T04:16:13.912Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -29,6 +29,13 @@ Dr.Fone - Virtual Location, easy-to-use software that will enable you to set any
 - **Set the speed to mock GPS location:** While playing virtual reality location-based games, you can also set the pace of movement of your GPS. This will help you to become better at the game!
 - **Joystick simulated motion:** you can use the in-app joystick for simulating motion and moving around on the map.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137203/26400" target="_top" id="2137203">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137203" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137203/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Step-by-step Tutorial
 
 **Step 1: Launch the Tool**
@@ -53,18 +60,18 @@ Subsequently, activate the "teleport mode" by clicking the icon shown in the ima
 
 ![virtual location 04](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137226/26400" target="_top" id="2137226">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137226" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137226/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 5: Change Location**
 
 Upon clicking on "go", a pop-up will appear showing you the distance of the location you have chosen. Tap on “Move Here” and the location would now be set to the location entered by you. Click on "center on" to check your location.
 
 ![virtual location 05](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2148772/18498" target="_top" id="2148772">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148772" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148772/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 2: Which pokemon can you evolve with trading?
 
@@ -89,6 +96,19 @@ You need a Special Trade whenever you wish to trade a legendary Pokemon or a shi
 
 Trading in Pokemon go was introduced in recent times and had now become one of the most integral factors of the game. Pokemon go trading has changed the gaming trend. However, you could get an upper hand by using a virtual location changer such as [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) . This can help you to even trade pokemons seamlessly with friends staying at far-off places. Using the pokemon trade feature and evolving pokemons is a smart and handy way to progress further in the game. As a Pokemon go player, you must try it out!
 
+<!-- affiliate ads begin -->
+<span id="1304648">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1304648.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1304648">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304648%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304648/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## A Detailed Pokemon Go PvP Tier List to Make you a Pro Trainer For Apple iPhone 7
 
 If you have been playing Pokemon PvP battle leagues, then you might already know how tough the competition is. To win more matches and rank-up, players take the assistance of a Pokemon Go PvP tier list. With the help of a tier list, you can know what Pokemons to pick and identify some of the strongest contenders. In this post, I’m going to share dedicated Pokemon Go great, ultra, and master tier lists to help you pick the best Pokemons.
@@ -96,10 +116,10 @@ If you have been playing Pokemon PvP battle leagues, then you might already know
 ![pokemon go pvp tier list banner](https://images.wondershare.com/drfone/2020/pokemon-go-pvp-tier-list-banner.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148775/18498" target="_top" id="2148775">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148775" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144279/7443" target="_top" id="2144279">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144279" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148775/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144279/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 1: How are Pokemon Go PvP Tier Lists Evaluated?
@@ -119,13 +139,6 @@ Before you go through our carefully calculated great, ultra, and master league P
 ## Part 2: A Complete Pokemon Go PvP Tier List: Great, Ultra, and Master Leagues
 
 Since Pokemon Go PvP matches are based on different leagues, I have also come up with Pokemon ultra, great, and master league tier lists to help you pick the most powerful Pokemon in every match.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886019/19272" target="_top" id="1886019">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886019" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886019/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Pokemon Go Great League Tier List
 
@@ -161,13 +174,6 @@ As you can see from the top tier Great league Pokemon Go list that the tier 1 an
 
 There you go! I’m sure that after going through this Pokemon Go PvP tier list, you would be able to pick the strongest Pokemons in every league match. If you don’t have Tier 1 and 2 Pokemons already, then I would recommend using Dr.Fone – Virtual Location (iOS). Using it, you can catch any Pokemon remotely from the comfort of your home without jailbreaking your device.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135357/19272" target="_top" id="2135357">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135357" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135357/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Most Asked Questions about Pokemon Go Battle League Rewards On Apple iPhone 7
 
 Ever since Pokemon Go Battle League matches have been introduced, players have shifted their focus on ranking up. After all, once the season ends, you can collect amazing Pokemon Go Battle league rewards. You might already know that the 5th season of Battle League is currently running with tons of Pokemon Go PvP rewards up for grabs. Let’s get to know more about these Pokemon Go League rewards and how we can level up in the game easily.
@@ -175,10 +181,10 @@ Ever since Pokemon Go Battle League matches have been introduced, players have s
 ![pokemon go battle league rewards](https://images.wondershare.com/drfone/2020/pokemon-go-battle-league-rewards.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137223/26400" target="_top" id="2137223">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1959759/19272" target="_top" id="1959759">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959759" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137223/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959759/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## What are the Pokemon Go Battle League Rewards?
@@ -191,13 +197,6 @@ Pokemon Go Battle League runs different seasons and once a season would end, pla
 - **Rank 10:** If you finish at the highest rank, you will get a free avatar post and avatar items (Libre or Stone inspired)
 
 ![pokemon battle rewards for ranks](https://images.wondershare.com/drfone/2020/pokemon-battle-rewards-for-ranks.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528703/16446" target="_top" id="1528703">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528703" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528703/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Apart from these Pokemon Go League awards, you will also get a free encounter with different Pokemons. For instance, if you finish at Rank 10, then you can even get a chance to catch a Pikachu Libre.
 
@@ -216,13 +215,6 @@ Apart from these Pokemon Go League awards, you will also get a free encounter wi
 
 ![pokemon go pikachu libre](https://images.wondershare.com/drfone/2020/pokemon-go-pikachu-libre.jpeg)
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129042/19576" target="_top" id="2129042">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129042" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129042/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to Get Battle League Pokemon Go Rewards?
 
 To get more Pokemon Go league rewards, you need to rank-up by playing with other trainers and winning more matches. The battles take place under three primary leagues:
@@ -238,6 +230,19 @@ Apart from that, three different cups would be organized in the season 5 Pokemon
 - **Catch Cup (23rd to 30th November):** Pokemons that are caught from the starting of season 5 (excluding mythical Pokemons) of maximum 1500 CP.
 
 ![pokemon go battle leagues](https://images.wondershare.com/drfone/2020/pokemon-go-battle-leagues.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1982459">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982459.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982459">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982459.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982459%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982459/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 When you start playing in Pokemon Go Battle League, Rank 1 would be unlocked. As you would keep winning more matches, your rank will improve. Though, to reach Rank 10, you also need an additional Go League Battle rating of 3000+.
 
@@ -257,18 +262,18 @@ Most of the rookie PvP trainers make the common mistake of only picking attack-b
 
 ![pokemon go pvp battle](https://images.wondershare.com/drfone/2020/pokemon-go-pvp-battle.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123729/7443" target="_top" id="2123729">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123729" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123729/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Tip 2: Know the Current Meta Tier
 
 Just like any other PvP game, Pokemon Go Battle Leagues also has a tier-list. That is, some Pokemons are just more powerful than others. Therefore, before you pick your Pokemons, get to know about the current meta-list. This will help you pick more powerful Pokemons that can easily carry a game.
 
 ![meta pokemons in pvp](https://images.wondershare.com/drfone/2020/meta-pokemons-in-pvp.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012415/19272" target="_top" id="2012415">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012415" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012415/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Tip 3: Catch More Pokemons Easily
 
@@ -283,6 +288,13 @@ Since it is not feasible to step out and look for Pokemons, you can use a locati
 <iframe width="100%" height="450" src="https://www.youtube.com/embed/FfhgWxnARqo" frameborder="0" allowfullscreen=""></iframe>
 
 ![virtual location 05](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136622/26400" target="_top" id="2136622">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136622" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136622/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Now when you know about the updated Pokemon Go Battle League rewards, you must be inspired to rank-up in the game. To do that, you can follow the above-listed tips and collect more powerful Pokemons. For this, a location spoofer tool like Dr.Fone – Virtual Location (iOS) would certainly come in handy as it will help you catch your favorite Pokemons remotely.
 
@@ -300,22 +312,18 @@ Now when you know about the updated Pokemon Go Battle League rewards, you must b
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-instagram-visual-impact-strategic-planning-for-viral-video-campaigns-for-2024/"><u>[New] Instagram Visual Impact Strategic Planning for Viral Video Campaigns for 2024</u></a></li>
-<li><a href="https://discord-videos.techidaily.com/updated-discords-top-10-where-to-date-and-love/"><u>[Updated] Discord's Top 10 Where to Date and Love</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-gopro-mastery-top-15-dynamic-color-look-up-table-reviews/"><u>2024 Approved GoPro Mastery Top 15 Dynamic Color Look-Up Table Reviews</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/fixing-inaccurate-avatar-showcasing-in-fb-messages-for-2024/"><u>Fixing Inaccurate Avatar Showcasing in FB Messages for 2024</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/full-guide-to-catch-100-iv-pokemon-using-a-map-on-apple-iphone-7-plus-drfone-by-drfone-virtual-ios/"><u>Full Guide to Catch 100 IV Pokémon Using a Map On Apple iPhone 7 Plus | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/how-can-i-get-more-stardust-in-pokemon-go-on-apple-iphone-x-drfone-by-drfone-virtual-ios/"><u>How can I get more stardust in pokemon go On Apple iPhone X? | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/how-to-get-and-use-pokemon-go-promo-codes-on-apple-iphone-13-pro-drfone-by-drfone-virtual-ios/"><u>How to Get and Use Pokemon Go Promo Codes On Apple iPhone 13 Pro | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-all-you-need-to-know-about-mega-greninja-for-apple-iphone-6s-drfone-by-drfone-virtual-ios/"><u>In 2024, All You Need To Know About Mega Greninja For Apple iPhone 6s | Dr.fone</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/in-2024-aviation-companions-the-drones-guide-to-following/"><u>In 2024, Aviation Companions The Drone's Guide to Following</u></a></li>
-<li><a href="https://android-location.techidaily.com/in-2024-easy-ways-to-manage-your-oneplus-nord-n30-5g-location-settings-drfone-by-drfone-virtual/"><u>In 2024, Easy Ways to Manage Your OnePlus Nord N30 5G Location Settings | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-google-play-location-on-huawei-nova-y91-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Google Play Location On Huawei Nova Y91 | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-the-best-ispoofer-alternative-to-try-on-apple-iphone-11-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, The Best iSpoofer Alternative to Try On Apple iPhone 11 Pro | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-ultimate-guide-to-get-the-meltan-box-pokemon-go-for-apple-iphone-6-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, Ultimate guide to get the meltan box pokemon go For Apple iPhone 6 Plus | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-apple-iphone-6s-drfone-by-drfone-virtual-ios/"><u>In 2024, Unova Stone Pokémon Go Evolution List and How Catch Them For Apple iPhone 6s | Dr.fone</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/jumpstart-your-projects-using-xps-film-editor/"><u>Jumpstart Your Projects Using XP's Film Editor</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/riprendere-ed-esportare-immagini-da-raw-a-formato-jpeg-senza-costo-tutorial-di-conversione-con-movavi/"><u>Riprendere Ed Esportare Immagini Da RAW a Formato JPEG Senza Costo: Tutorial Di Conversione Con Movavi</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-apple-iphone-13-drfone-by-drfone-virtual-ios/"><u>Will Pokémon Go Ban the Account if You Use PGSharp On Apple iPhone 13 | Dr.fone</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-tips-to-incorrante-tv-with-facebook-live-integration-for-2024/"><u>[New] Tips to Incorrante TV with Facebook Live Integration for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-unveiling-simple-techniques-for-amazing-slow-motion-footage-in-android/"><u>[New] Unveiling Simple Techniques for Amazing Slow-Motion Footage in Android</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-fix-in-a-flash-rapid-recovery-techniques-for-disrupted-fb-lives/"><u>[Updated] In 2024, Fix in a Flash Rapid Recovery Techniques for Disrupted FB Lives</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-ultimate-list-best-asmr-on-smartphones/"><u>[Updated] Ultimate List Best ASMR on Smartphones</u></a></li>
+<li><a href="https://video-capture.techidaily.com/2024-approved-the-ultimate-playbook-techniques-to-archive-your-unique-vr-adventures/"><u>2024 Approved The Ultimate Playbook Techniques to Archive Your Unique VR Adventures</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/additional-tips-about-sinnoh-stone-for-apple-iphone-8-drfone-by-drfone-virtual-ios/"><u>Additional Tips About Sinnoh Stone For Apple iPhone 8 | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/catchemall-celebrate-national-pokemon-day-with-virtual-location-on-apple-iphone-se-2022-drfone-by-drfone-virtual-ios/"><u>CatchEmAll Celebrate National Pokémon Day with Virtual Location On Apple iPhone SE (2022) | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/complete-tutorial-to-use-vpna-to-fake-gps-location-on-honor-play-40c-drfone-by-drfone-virtual-android/"><u>Complete Tutorial to Use VPNa to Fake GPS Location On Honor Play 40C | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/detailed-guide-of-ispoofer-for-pogo-installation-on-apple-iphone-se-2020-drfone-by-drfone-virtual-ios/"><u>Detailed guide of ispoofer for pogo installation On Apple iPhone SE (2020) | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/hacks-to-do-pokemon-go-trainer-battles-for-apple-iphone-12-pro-drfone-by-drfone-virtual-ios/"><u>Hacks to do pokemon go trainer battles For Apple iPhone 12 Pro | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-apple-iphone-15-drfone-by-drfone-virtual-ios/"><u>In 2024, Unova Stone Pokémon Go Evolution List and How Catch Them For Apple iPhone 15 | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-what-is-geo-blocking-and-how-to-bypass-it-on-tecno-pop-8-drfone-by-drfone-virtual-android/"><u>In 2024, What is Geo-Blocking and How to Bypass it On Tecno Pop 8? | Dr.fone</u></a></li>
+<li><a href="https://win-bytes.techidaily.com/1728464865499-windows-10/"><u>Windows 10 再インストール後に失われたファイルの回復方法</u></a></li>
 </ul></div>
 

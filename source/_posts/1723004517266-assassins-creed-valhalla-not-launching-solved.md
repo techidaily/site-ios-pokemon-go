@@ -1,7 +1,7 @@
 ---
 title: Assassin's Creed Valhalla Not Launching [Solved]
-date: 2024-10-17T00:16:48.097Z
-updated: 2024-10-24T06:47:38.038Z
+date: 2024-10-25T03:27:13.889Z
+updated: 2024-10-29T22:54:09.705Z
 tags:
   - win11
   - win10
@@ -43,20 +43,27 @@ thumbnail: https://thmb.techidaily.com/2d824596cda220209cd5b9247c0c0e4bf48214334
 
 ![open task manager](https://images.drivereasy.com/wp-content/uploads/2020/10/open-task-manager.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2027195/19272" target="_top" id="2027195">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027195" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027195/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  3) Under the **Processes**  tab, select the programs that are CPU-intensive. Right-click on them and select **End task** .
 
 ![temporarily disable background programs](https://images.drivereasy.com/wp-content/uploads/2020/11/end-task.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094419/7443" target="_top" id="2094419">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094419" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094419/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  If you don’t want some programs running automatically, you can select the **Startup**  tab, right-click on them and select **Disable** .
 
 ![prevent programs from running automatically](https://images.drivereasy.com/wp-content/uploads/2020/11/prevent-programs-from-starting-automatically.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094418/7443" target="_top" id="2094418">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094418" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094418/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Once you’ve disabled programs running in the background, launch your game to check if it’s still stuttering.
 
@@ -73,10 +80,10 @@ thumbnail: https://thmb.techidaily.com/2d824596cda220209cd5b9247c0c0e4bf48214334
 ![turn off game mode to fix Assasin's Cree Valhalla stuttering on PC](https://images.drivereasy.com/wp-content/uploads/2020/11/turn-off-game-mode-to-fix-Assasins-Cree-Valhalla-stuttering-on-PC.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016165/19272" target="_top" id="2016165">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016165" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2100542/7443" target="_top" id="2100542">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100542" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016165/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100542/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  3) Select**Game bar** and set the**Record game clips, screenshots, and broadcast using Game bar** option to**Off** .  
@@ -86,6 +93,13 @@ thumbnail: https://thmb.techidaily.com/2d824596cda220209cd5b9247c0c0e4bf48214334
  4) From the left sidebar, select**Captures** . In the**Background recording** section, set the**Record in the background while I’m playing a game** option to**Off** .  
   
 ![turn off record in the background option](https://images.drivereasy.com/wp-content/uploads/2020/11/turn-off-record-in-the-background-option.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123736/7443" target="_top" id="2123736">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123736" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123736/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  5) From the left sidebar, select**Game Mode** and set**Use Game Mode** option to**Off** .  
   
@@ -105,13 +119,6 @@ thumbnail: https://thmb.techidaily.com/2d824596cda220209cd5b9247c0c0e4bf48214334
 
 [NVIDIA](https://tools.techidaily.com/drivereasy/download/) and[AMD](https://www.amd.com/en/support) release updates for their drivers regularly. All you need to do is go to the official website of your graphics card manufacturer. Then find the driver corresponding with your Windows version and download it manually. Once you’ve downloaded the correct driver for your system, double-click on the downloaded file and follow the on-screen instructions to install the drivers. For Nvidia users, you can also use GeForce Experience to check for the driver.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016129/19272" target="_top" id="2016129">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016129" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016129/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Option 2: Automatically update your graphics card driver (recommended)
 
  Updating drivers manually can be time-consuming and risky. So if you don’t feel like doing it on your own, you can do it automatically with **[Driver Easy](https://tools.techidaily.com/drivereasy/download/)**  . It’s a useful tool that automatically detects, downloads, and installs the correct or missing drivers for your system. And you can also roll back to your previous driver version if you’re not satisfied with the updated one.
@@ -129,13 +136,6 @@ Here’s how it works:
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/11/NVIDIA-RTX-3080.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484910/16446" target="_top" id="1484910">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484910" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484910/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **The Pro version of Driver Easy** comes with full technical support. If you need assistance, please contact **Driver Easy’s support team** at **[support@drivereasy.com](https://tools.techidaily.com/drivereasy/download/) .**
 
  After you’ve updated your drivers, restart your computer for them to take effect. Then launch your game to check if the problem persists.
@@ -146,16 +146,16 @@ Here’s how it works:
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/11/roll-back-to-a-previous-version.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144287/7443" target="_top" id="2144287">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144287" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144287/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  2) Click**Driver Restore** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/11/driver-restore.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918684/19272" target="_top" id="1918684">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918684" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918684/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Then follow the on-screen instructions to roll back your drivers.
 
@@ -175,13 +175,6 @@ Then follow the on-screen instructions to roll back your drivers.
   
 ![set the priority to high ACValhalla](https://images.drivereasy.com/wp-content/uploads/2020/11/set-the-priority-to-high-ACValhalla.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896510/19272" target="_top" id="1896510">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896510" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896510/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  4) Now you’re navigated to**ACValhalla\_Plus.exe** . Right-click it and select**Set priority > High** .  
   
 ![set the priority to high ACValhalla to fix the game stuttering on PC](https://images.drivereasy.com/wp-content/uploads/2020/11/set-the-priority-to-high-ACValhalla-to-fix-the-game-stuttering-on-PC.jpg)
@@ -193,6 +186,13 @@ Then follow the on-screen instructions to roll back your drivers.
 Now play your game and your issue should be resolved.
 
 ---
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2148774/18498" target="_top" id="2148774">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148774" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148774/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Fix 5: Disable fullscreen optimizations
 
@@ -206,16 +206,16 @@ Now play your game and your issue should be resolved.
   
 ![disable fullscreen optimizations fix Assasin's Creed Valhalla stuttering](https://images.drivereasy.com/wp-content/uploads/2020/11/disable-fullscreen-optimizations-fix-Assasins-Creed-Valhalla-stuttering.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123735/7443" target="_top" id="2123735">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123735" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123735/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  3) Navigate to**ACValhalla** .exe. Right-click it and select**Properties** .  
   
 ![disable fullscreen optimizations fix Assasin's Creed Valhalla stuttering select Properties](https://images.drivereasy.com/wp-content/uploads/2020/11/disable-fullscreen-optimizations-fix-Assasins-Creed-Valhalla-stuttering-select-Properties.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://bluettiit.sjv.io/c/5597632/2148129/17093" target="_top" id="2148129">
+  <img src="//a.impactradius-go.com/display-ad/17093-2148129" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148129/17093" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  4) Select the**Compatibility** tab. Check the box next to**Disable fullscreen optimizations** . Then click**Apply > OK** .  
   
@@ -237,6 +237,13 @@ Now play your game and your issue should be resolved.
   
 ![UBISOFT settings](https://images.drivereasy.com/wp-content/uploads/2020/11/UBISOFT-settings-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151869/7443" target="_top" id="2151869">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151869" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151869/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  3) Scroll down and under the**General** section, uncheck the box next to**Enable in-game overlay for supported games** .
 
 ![disable in-game overlay to fix Assasin's Creed Valhalla stuttering on PC
@@ -257,13 +264,6 @@ Now play your game and your issue should be resolved.
  2) Select**Screen** and head to the**Window Mode** section. If you’re running on**Fullscreen** mode, change to**Borderless** ; If it’s already on**Borderless** , change to**Fullscreen** .  
   
 ![change Window Mode to fix Assasin's Creed stuttering on PC](https://images.drivereasy.com/wp-content/uploads/2020/11/change-window-mode.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148638/16836" target="_top" id="2148638">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148638" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148638/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  3) For**Graphics** settings. Try to set everything to**Low** to lower the graphics settings and check if it works.
 
@@ -288,18 +288,20 @@ Now play your game and your issue should be resolved.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-in-2024-2023s-fb-url-vault-securely-access-8-free-downloads-online/"><u>[New] In 2024, 2023'S FB URL Vault Securely Access 8 Free Downloads Online</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-exclusive-list-best-4k-laptops-for-playing-games/"><u>2024 Approved Exclusive List Best 4K Laptops for Playing Games</u></a></li>
-<li><a href="https://location-fake.techidaily.com/a-detailed-guide-on-faking-your-location-in-mozilla-firefox-on-nokia-105-classic-drfone-by-drfone-virtual-android/"><u>A Detailed Guide on Faking Your Location in Mozilla Firefox On Nokia 105 Classic | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/a-detailed-pokemon-go-pvp-tier-list-to-make-you-a-pro-trainer-for-apple-iphone-6-plus-drfone-by-drfone-virtual-ios/"><u>A Detailed Pokemon Go PvP Tier List to Make you a Pro Trainer For Apple iPhone 6 Plus | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/a-working-guide-for-pachirisu-pokemon-go-map-on-apple-iphone-14-plus-drfone-by-drfone-virtual-ios/"><u>A Working Guide For Pachirisu Pokemon Go Map On Apple iPhone 14 Plus | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-apple-iphone-7-drfone-by-drfone-virtual-ios/"><u>Here are Some Pro Tips for Pokemon Go PvP Battles On Apple iPhone 7 | Dr.fone</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-essential-insights-on-asmr-videos-unveiled/"><u>In 2024, Essential Insights on ASMR Videos Unveiled</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-here-are-some-of-the-best-pokemon-discord-servers-to-join-on-apple-iphone-13-mini-drfone-by-drfone-virtual-ios/"><u>In 2024, Here are Some of the Best Pokemon Discord Servers to Join On Apple iPhone 13 mini | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-apple-iphone-x-drfone-by-drfone-virtual-ios/"><u>In 2024, How PGSharp Save You from Ban While Spoofing Pokemon Go On Apple iPhone X? | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-reset-a-locked-honor-magic5-ultimate-phone-by-drfone-android/"><u>In 2024, How to Reset a Locked Honor Magic5 Ultimate Phone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/reasons-why-pokemon-gps-does-not-work-on-apple-iphone-12-mini-drfone-by-drfone-virtual-ios/"><u>Reasons why Pokémon GPS does not Work On Apple iPhone 12 mini? | Dr.fone</u></a></li>
-<li><a href="https://android-frp.techidaily.com/the-updated-method-to-bypass-samsung-galaxy-s23plus-frp-by-drfone-android/"><u>The Updated Method to Bypass Samsung Galaxy S23+ FRP</u></a></li>
-<li><a href="https://win-updates.techidaily.com/unlocking-mastery-in-computer-case-customization-with-our-expertly-crafted-msi-packaging-manual/"><u>Unlocking Mastery in Computer Case Customization with Our Expertly Crafted MSI Packaging Manual</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-2024-approved-hp-envy-27-4k-usb-c-monitor-review/"><u>[New] 2024 Approved HP Envy 27 4K USB-C Monitor Review</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-filmoras-quick-start-approach-for-youtube-trailers/"><u>[New] In 2024, Filmora's Quick-Start Approach for YouTube Trailers</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-in-2024-how-to-stream-your-podcast-with-a-click/"><u>[New] In 2024, How to Stream Your Podcast with a Click</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-from-selfie-to-sensation-vloggers-choice-of-top-9-camera-accessories/"><u>[Updated] From Selfie to Sensation Vloggers' Choice of Top 9 Camera Accessories</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/ai-powered-record-of-screenshots-videos-and-live-audio-by-winxvideo-software/"><u>AI-Powered Record of Screenshots, Videos, and Live Audio by Winxvideo Software</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/experiencing-days-gone-an-in-depth-look-at-motorcycle-rides-in-a-zombie-world/"><u>Experiencing Days Gone: An In-Depth Look at Motorcycle Rides in a Zombie World</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/exploring-the-lenovo-ideapad-320-sleek-design-meets-iconic-lenovo-typing-experience-reviewed/"><u>Exploring the Lenovo Ideapad 320: Sleek Design Meets Iconic Lenovo Typing Experience Reviewed</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/in-2024-choosing-the-right-screen-recorder-outside-of-xbox/"><u>In 2024, Choosing the Right Screen Recorder, Outside of Xbox</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-why-is-ipogo-not-working-on-apple-iphone-13-mini-fixed-drfone-by-drfone-virtual-ios/"><u>In 2024, Why is iPogo not working On Apple iPhone 13 mini? Fixed | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/key-decisions-before-cutting-your-social-cord/"><u>Key Decisions Before Cutting Your Social Cord</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/limited-budget-check-out-our-comprehensive-analysis-of-the-remobell-video-doorbell/"><u>Limited Budget? Check Out Our Comprehensive Analysis of the RemoBell Video Doorbell</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/new-multiple-ways-how-to-remove-icloud-activation-lock-on-your-apple-iphone-13-pro-by-drfone-ios/"><u>New Multiple Ways How To Remove iCloud Activation Lock On your Apple iPhone 13 Pro</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/pokemon-go-cooldown-chart-on-apple-iphone-11-pro-max-drfone-by-drfone-virtual-ios/"><u>Pokémon Go Cooldown Chart On Apple iPhone 11 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/what-pokemon-evolve-with-a-dawn-stone-for-apple-iphone-15-pro-drfone-by-drfone-virtual-ios/"><u>What Pokémon Evolve with A Dawn Stone For Apple iPhone 15 Pro? | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/yakuza-like-a-dragon-the-ultimate-rpg-experience-you-cant-miss/"><u>Yakuza: Like a Dragon - The Ultimate RPG Experience You Can't Miss!</u></a></li>
 </ul></div>
 

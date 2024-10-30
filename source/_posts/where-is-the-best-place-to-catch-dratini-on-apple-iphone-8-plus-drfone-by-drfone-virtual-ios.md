@@ -1,7 +1,7 @@
 ---
 title: Where Is the Best Place to Catch Dratini On Apple iPhone 8 Plus | Dr.fone
-date: 2024-10-18T18:51:54.273Z
-updated: 2024-10-23T21:33:37.551Z
+date: 2024-10-23T16:29:54.959Z
+updated: 2024-10-30T02:29:27.678Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -39,6 +39,13 @@ This is a Pokémon character that truly resembles a dragon and is the second evo
 
 Dragonite can fly at very high speeds despite its bulky appearance. It is a kindhearted Pokémon, which is as intelligent as a human being. It has been found to have tendencies to save humans from disasters, such as saving those who have come from a capsized ship on the high seas. It lives near the sea and is extremely rare in the Pokémon world.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137412/7443" target="_top" id="2137412">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137412" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137412/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: Where can I find the Dratini nest?
 
 Dratini is a Pokémon that lives in the water. Since it loves lakes and seas, you can find it when you visit areas that are near water. For example, in the United States, the most famous nests for Dratini are found in North Eastern San Francisco, Pier 39 and Pier 15. You will always find Dratini at these sites and they are famous for people who want to farm Dratini.
@@ -56,13 +63,6 @@ This is quite a common question for those who are new to the Pokémon universe. 
 If the Dratini nest migrates, it can still come back in the future. You should always keep an eye at the spawn point where you first encountered your first Dratini Nest; it may come back once more and you can continue farming Dratini.
 
 Dratini nests will migrate on alternate Thursdays at midnight. The nest migrations are random, so make sure that you visit and hit them many times over the two weeks in order to get the most Dratini that you can.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043597/7443" target="_top" id="2043597">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043597" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043597/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 4: How to increase the possibility of earning Pokémon Go Dratini?
 
@@ -88,6 +88,13 @@ After entering the virtual location module, connect your iOS device to your comp
 Next, click on “Get Started”; you will now be able to start the spoofing process.
 
 ![virtual location 01](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014851/22899" target="_top" id="2014851">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014851" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014851/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Looking at the map, you can now see the actual location of your device. If the coordinates are not the correct ones, go to the bottom of your computer screen and click on the “Current Virtual location” icon. This will instantly point to the current virtual location of your device.
 
@@ -162,6 +169,19 @@ It’s possible that the Pokemon Routes are not showing up because you’re too 
 
 ![pokemon go location access](https://images.wondershare.com/drfone/article/2024/01/pokemon-go-route-not-working-5.JPG)
 
+<!-- affiliate ads begin -->
+<span id="1983573">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983573.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983573">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983573.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983573%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983573/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Is Pokemon Go Route not working on your end? Well, it’s possibly because the application has limited or restricted access to GPS on your smartphone. Don’t worry. It’s nothing serious. You can easily fix this kind of misconfiguration by adjusting your privacy settings.
 
 ### Your internet connection is unstable while playing Pokemon Go
@@ -172,14 +192,14 @@ Pokemon Go Routes and most of the game’s main features require a reliable inte
 
 ![update pokemon go app](https://images.wondershare.com/drfone/article/2024/01/pokemon-go-route-not-working-6.JPG)
 
-Keep in mind that the Pokemon Go Routes is an additional game feature. That’s why you first need to update your existing Pokemon Go app before you can access it. The Routes is definitely not available to old versions of Pokemon Go mobile software.
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118325/7443" target="_top" id="2118325">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118325" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997722/19272" target="_top" id="1997722">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997722" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118325/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997722/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+Keep in mind that the Pokemon Go Routes is an additional game feature. That’s why you first need to update your existing Pokemon Go app before you can access it. The Routes is definitely not available to old versions of Pokemon Go mobile software.
 
 ### The current software version of your smartphone is not compatible with the Pokemon Go Routes feature
 
@@ -206,6 +226,13 @@ In simple terms, DeFit is a third-party application that allows trainers to play
 
 ![wondershare drfone virtual location](https://images.wondershare.com/drfone/guide/virtual-location-08.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925484/19272" target="_top" id="1925484">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925484" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925484/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 - **Step 5:** Calibrate the necessary settings according to your liking. Start by choosing your preferred type and number of trips. Right after, adjust the movement speed by moving the slider from left to write. Then, click **Move Here** to commence the simulation. If you wish to reset your inputs, click **Clear** instead.
 
 ![movement settings](https://images.wondershare.com/drfone/guide/virtual-location-09.png)
@@ -213,13 +240,6 @@ In simple terms, DeFit is a third-party application that allows trainers to play
 - **Step 6:** The simulation will then begin immediately. Refer to the map for the real-time progress. If you wish to halt the movement for a little while, click **Pause.** On the one hand, click **Clear** if you want to start all over again.
 
 ![movement simulation ongoing](https://images.wondershare.com/drfone/guide/virtual-location-10.png)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151890/7443" target="_top" id="2151890">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151890" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151890/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -252,10 +272,10 @@ The system within the system that has been designed by the game developers makes
 Several ways can be used to make sure that the subject error is resolved with ease. This section of the article will deal with all such ways that can be used to get the work done with ease and perfection.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148772/18498" target="_top" id="2148772">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148772" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1938745/19272" target="_top" id="1938745">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938745" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148772/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938745/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Method 1: Enable Mock Locations
@@ -274,13 +294,6 @@ As the name suggests it is to set the fake location using the build-in iPhone fe
 
 ![pokemon error 12 3](https://images.wondershare.com/drfone/2020/2020/pokemon_error_12_3.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049391/7443" target="_top" id="2049391">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049391" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049391/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Method 2: Location Activation
 
 This is another important and easy way to make sure that the Pokémon failed to detect location 12 error is resolved with ease and perfection. To execute the process the steps are mentioned as follows:
@@ -289,33 +302,19 @@ This is another important and easy way to make sure that the Pokémon failed to 
 
 ![pokemon error 12 4](https://images.wondershare.com/drfone/2020/2020/pokemon_error_12_4.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068408/7443" target="_top" id="2068408">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068408" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068408/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 2.** Tap on the passwords and security to proceed with the process:
 
 ![pokemon error 12 5](https://images.wondershare.com/drfone/2020/2020/pokemon_error_12_5.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148641/16836" target="_top" id="2148641">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148641" border="0" alt="https://techidaily.com" width="254" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148641/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 3.** Tap to turn on the location to finish the process and eliminate the failed to detect location 12 Pokémon Go errors.
 
 ![pokemon error 12 6](https://images.wondershare.com/drfone/2020/2020/pokemon_error_12_6.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2135316/14409" target="_top" id="2135316">
-  <img src="//a.impactradius-go.com/display-ad/14409-2135316" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://review-au.sjv.io/c/5597632/2135315/14409" target="_top" id="2135315">
+  <img src="//a.impactradius-go.com/display-ad/14409-2135315" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135316/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135315/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Method 3: Reboot the Apple iPhone 8 Plus device
@@ -351,6 +350,13 @@ Connect your Apple iPhone 8 Plus and enable virtual location from the options of
 The center on the button on the next screen is to be clicked to get the accurate location.
 
 ![virtual location 03](https://images.wondershare.com/drfone/guide/virtual-location-03.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151854/7443" target="_top" id="2151854">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151854" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151854/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Step 4: Teleportation**
 
@@ -388,22 +394,20 @@ The location will be locked by the program and your Apple iPhone 8 Plus will als
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-comprehensive-iptv-platform-agnosticism/"><u>[Updated] Comprehensive IPTV Platform Agnosticism</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-streamlining-your-way-to-high-quality-android-recordings/"><u>[Updated] In 2024, Streamlining Your Way to High-Quality Android Recordings</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/detailed-guide-of-ispoofer-for-pogo-installation-on-apple-iphone-xs-max-drfone-by-drfone-virtual-ios/"><u>Detailed guide of ispoofer for pogo installation On Apple iPhone XS Max | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/how-and-where-to-find-a-shiny-stone-pokemon-for-apple-iphone-7-drfone-by-drfone-virtual-ios/"><u>How and Where to Find a Shiny Stone Pokémon For Apple iPhone 7? | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/how-to-use-pokemon-go-joystick-on-apple-iphone-x-drfone-by-drfone-virtual-ios/"><u>How to use Pokemon Go Joystick on Apple iPhone X? | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-2-ways-to-transfer-text-messages-from-itel-p55-5g-to-iphone-1514131211x8-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 2 Ways to Transfer Text Messages from Itel P55 5G to iPhone 15/14/13/12/11/X/8/ | Dr.fone</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-a-complete-guide-to-oem-unlocking-on-nokia-g42-5g-by-drfone-android/"><u>In 2024, A Complete Guide To OEM Unlocking on Nokia G42 5G</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/in-2024-adjusting-settings-for-audible-obs-broadcasts/"><u>In 2024, Adjusting Settings for Audible OBS Broadcasts</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-best-nubia-red-magic-9-proplus-pattern-lock-removal-tools-remove-android-pattern-lock-without-losing-data-by-drfone-android/"><u>In 2024, Best Nubia Red Magic 9 Pro+ Pattern Lock Removal Tools Remove Android Pattern Lock Without Losing Data</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-detailed-guide-of-ispoofer-for-pogo-installation-on-apple-iphone-7-drfone-by-drfone-virtual-ios/"><u>In 2024, Detailed guide of ispoofer for pogo installation On Apple iPhone 7 | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-here-are-different-ways-to-find-pokemon-go-trainer-codes-to-add-to-your-account-on-apple-iphone-15-drfone-by-drfone-virtual-ios/"><u>In 2024, Here are Different Ways to Find Pokemon Go Trainer Codes to Add to Your Account On Apple iPhone 15 | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-apple-iphone-15-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, How to get the dragon scale and evolution-enabled pokemon On Apple iPhone 15 Pro? | Dr.fone</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-illustrate-images-select-caption-apps-for-your-photos-iosandroid/"><u>In 2024, Illustrate Images Select Caption Apps for Your Photos (iOS/Android)</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-pokemon-go-error-12-failed-to-detect-location-on-apple-iphone-6s-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, Pokemon Go Error 12 Failed to Detect Location On Apple iPhone 6s Plus? | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/mastering-android-device-manager-the-ultimate-guide-to-unlocking-your-infinix-hot-40-device-by-drfone-android/"><u>Mastering Android Device Manager The Ultimate Guide to Unlocking Your Infinix Hot 40 Device</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/most-asked-questions-about-pokemon-go-battle-league-rewards-on-apple-iphone-12-pro-max-drfone-by-drfone-virtual-ios/"><u>Most Asked Questions about Pokemon Go Battle League Rewards On Apple iPhone 12 Pro Max | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-oppo-a58-4g-drfone-by-drfone-virtual-android/"><u>Will Pokémon Go Ban the Account if You Use PGSharp On Oppo A58 4G | Dr.fone</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/new-10-best-screenshot-enhancers-iphoneandroid-sticker-magic/"><u>[New] 10 Best Screenshot Enhancers IPhone/Android Sticker Magic</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-how-to-preserve-your-gaming-moments-with-windows-10/"><u>[New] 2024 Approved How to Preserve Your Gaming Moments with Windows 10</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-perfect-your-online-storytelling-top-101-tips-for-facebook-biographies/"><u>[New] In 2024, Perfect Your Online Storytelling Top 101 Tips for Facebook Biographies</u></a></li>
+<li><a href="https://windows11.techidaily.com/defunct-windows-characteristics-youll-miss/"><u>Defunct Windows Characteristics You'll Miss</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/how-to-come-up-with-the-best-pokemon-team-on-apple-iphone-se-drfone-by-drfone-virtual-ios/"><u>How to Come up With the Best Pokemon Team On Apple iPhone SE? | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-a-comprehensive-guide-to-mastering-ipogo-for-pokemon-go-on-apple-iphone-8-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, A Comprehensive Guide to Mastering iPogo for Pokémon GO On Apple iPhone 8 Plus | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-a-deep-dive-into-youtubes-latest-monetization-policy/"><u>In 2024, A Deep Dive Into YouTube's Latest Monetization Policy</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-apple-iphone-15-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, Here are Some Pro Tips for Pokemon Go PvP Battles On Apple iPhone 15 Plus | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-can-i-catch-the-regional-pokemon-without-traveling-on-apple-iphone-x-drfone-by-drfone-virtual-ios/"><u>In 2024, How Can I Catch the Regional Pokémon without Traveling On Apple iPhone X | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-pokemon-go-cooldown-chart-on-apple-iphone-8-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, Pokémon Go Cooldown Chart On Apple iPhone 8 Plus | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-pokemon-go-error-12-failed-to-detect-location-on-apple-iphone-8-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, Pokemon Go Error 12 Failed to Detect Location On Apple iPhone 8 Plus? | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-why-does-the-pokemon-go-battle-league-not-available-on-apple-iphone-8-drfone-by-drfone-virtual-ios/"><u>In 2024, Why does the pokemon go battle league not available On Apple iPhone 8 | Dr.fone</u></a></li>
+<li><a href="https://win-dash.techidaily.com/latest-nvidia-rtx-2nvida-rtx-2080-graphics-card-drivers-for-windows-platforms-including-win-11-7-and-8/"><u>Latest NVIDIA RTX 2Nvida RTX 2080 Graphics Card Drivers for Windows Platforms Including Win 11, 7 & 8</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/optimized-with-cookiebot-technology/"><u>Optimized with Cookiebot Technology</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/stepwise-strategy-for-perfectly-curating-videos-in-your-youtube-playlists/"><u>Stepwise Strategy for Perfectly Curating Videos in Your YouTube Playlists</u></a></li>
 </ul></div>
 
