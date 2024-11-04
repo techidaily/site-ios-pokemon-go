@@ -1,7 +1,7 @@
 ---
 title: "Affordable Innovation with ArcShell's AR-5 Review: Excellent Performance Meets Low Cost."
-date: 2024-10-24T00:20:13.817Z
-updated: 2024-10-30T03:28:05.203Z
+date: 2024-11-03T17:20:17.969Z
+updated: 2024-11-04T16:54:32.581Z
 categories:
   - BestProducts
 description: "This Article Describes Affordable Innovation with ArcShell's AR-5 Review: Excellent Performance Meets Low Cost."
@@ -43,13 +43,6 @@ Lifewire / Jonno Hill
 
 ![Corsair One Pro](https://www.lifewire.com/thmb/bAGUctxOJ12bRS1igxDea_7Ukpw=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Corsair-One-Pro-Desktop-Computer-1-18b604776a364414be0d3f42d78f93cb.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135370/19272" target="_top" id="2135370">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135370" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135370/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire / Jonno Hill
 
 [View On Amazon](https://www.amazon.com/Corsair-CS-9000011-NA-i7-7700K-Certified-Refurbished/dp/B07FMNQDHF/?tag=lifewire-onsite-prod-20&ascsubtag=5072820%7Cn263af6bf93484f57b41504a1366de95207%7CB07FMNQDHF) [View On Best Buy $2,975](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2Fcorsair-one-gaming-desktop-intel-core-i9-9900k-32gb-memory-nvidia-geforce-rtx-2080-ti-960gb-ssd-2tb-hdd%2F6394141.p%3FskuId%3D6394141) [View On Corsair.com](https://www.corsair.com/us/en/Categories/Products/Systems/CORSAIR-ONE/CORSAIR-ONE-PRO-Compact-Gaming-PC-%E2%80%94-Intel-Core-i7-7700K%2C-NVIDIA-GeForce-GTX-1080-Ti%2C-16GB-DDR4-2400%2C-960GB-SSD/p/CS-9000004-NA)
@@ -81,7 +74,27 @@ Lifewire / Jonno Hill
 
 ![Corsair One Pro](https://www.lifewire.com/thmb/WC9SY_zrilLIIn_IFlawIcQw3l0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Corsair-One-Pro-Desktop-Computer-2-567ca178cde846769c37ca84176d79b7.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111964/7443" target="_top" id="2111964">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111964" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111964/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Jonno Hill
+
+<!-- affiliate ads begin -->
+<span id="1834906">
+					<video width="864" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1834906.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1834906">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834906.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834906%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834906/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Design** :**Beautiful and compact**
 
@@ -99,13 +112,6 @@ Lifewire / Jonno Hill
 
 ![Corsair One Pro](https://www.lifewire.com/thmb/fx7g2Vg5VksuNwH4LThQhniEsg0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Corsair-One-Pro-Desktop-Computer-3-51b17ae55a144069ac2ce72488200290.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139119/17108" target="_top" id="2139119">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139119" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139119/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Jonno Hill
 
 ## **Performance** : **Solid for gaming, but limited RAM for video editing**
@@ -117,6 +123,13 @@ Lifewire / Jonno Hill
  On the gaming side, things were slightly less rosy, with the Corsair One Pro scoring an 8,602 in the synthetic gaming benchmark Time Spy in the 3DMark suite. Compare this with an average of 8,890 for systems with this hardware configuration. To put this in perspective, the average score on a system with a GTX 1080 instead of a 1080 Ti averages 7,180, so the Corsair One Pro is still doing just fine.
 
  It’s certainly enough memory if you don’t do much beyond gaming and web browsing, but it’s quite limiting for any creative applications like video editing and motion graphics.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115916/19272" target="_top" id="2115916">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115916" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115916/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Network** :**Everything a gaming PC needs**
 
@@ -134,13 +147,6 @@ Lifewire / Jonno Hill
 
  Lifewire / Jonno Hill
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144275/7443" target="_top" id="2144275">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144275" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144275/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Price: A premium, but a deserved one**
 
  The Corsair One Pro as configured can be found online for between $1700-$1900, which is a pretty great deal for this system. I put together a comparable build on PCPartPicker and despite cutting a few corners still ended up at around $1600 all-in. A $100-300 premium for a well-built, compact desktop like this is incredibly reasonable by any measure.
@@ -152,19 +158,19 @@ Lifewire / Jonno Hill
 ![Corsair One Pro](https://www.lifewire.com/thmb/b6k5YWyriZ_Y7470FGAcu1W_ff4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Corsair-One-Pro-Desktop-Computer-4-0587a464511c4a0c9b312ba9693af470.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134500/19576" target="_top" id="2134500">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134500" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135418/19272" target="_top" id="2135418">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135418" border="0" alt="https://techidaily.com" width="468" height="60"/>
 </a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134500/19576" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135418/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Jonno Hill
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047406/19272" target="_top" id="2047406">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047406" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aidotcom.pxf.io/c/5597632/2134502/19576" target="_top" id="2134502">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134502" border="0" alt="https://techidaily.com" width="672" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134502/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Corsair One Pro vs HP OMEN Obelisk**
@@ -216,16 +222,22 @@ Lifewire / Jonno Hill
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-techniques.techidaily.com/new-humor-haven-the-ultimate-list-of-event-specific-jokes/"><u>[New] Humor Haven The Ultimate List of Event-Specific Jokes</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-11-useful-youtube-seo-tips-to-help-rank-your-video-high-for-2024/"><u>[Updated] 11 Useful YouTube SEO Tips to Help Rank Your Video High for 2024</u></a></li>
-<li><a href="https://some-skills.techidaily.com/updated-techniques-to-boost-pc-audio-recording-efficiency/"><u>[Updated] Techniques to Boost PC Audio Recording Efficiency</u></a></li>
-<li><a href="https://facebook.techidaily.com/confirming-the-authenticity-of-(securityfacebookmailcom)-as-fbs-safety-mail/"><u>Confirming the Authenticity of @<security@facebookmail.com> as FB's Safety Mail</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/get-your-logitechear-speakers-up-to-date-latest-driver-downloads-for-win-oses/"><u>Get Your Logitechear Speakers Up to Date: Latest Driver Downloads for Win OSes</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/in-2024-masterclass-in-vr-bikes-and-trails/"><u>In 2024, Masterclass in VR Bikes and Trails</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-which-pokemon-can-evolve-with-a-moon-stone-for-apple-iphone-14-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, Which Pokémon can Evolve with a Moon Stone For Apple iPhone 14 Plus? | Dr.fone</u></a></li>
-<li><a href="https://win-answers.techidaily.com/instantly-solve-your-steamvr-problems-a-simple-and-speedy-approach/"><u>Instantly Solve Your SteamVR Problems - A Simple and Speedy Approach</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/planning-to-use-a-pokemon-go-joystick-on-apple-iphone-12-mini-drfone-by-drfone-virtual-ios/"><u>Planning to Use a Pokemon Go Joystick on Apple iPhone 12 mini? | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-apple-iphone-11-pro-drfone-by-drfone-virtual-ios/"><u>The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Apple iPhone 11 Pro | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-apple-iphone-12-pro-max-drfone-by-drfone-virtual-ios/"><u>The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Apple iPhone 12 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-top-windows-11-capture-tools-win-edition/"><u>[New] Top Windows 11 Capture Tools Win Edition</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-instagram-integration-with-youtube-video-sharing/"><u>[Updated] 2024 Approved Instagram Integration with YouTube Video Sharing</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-wallet-friendly-microphones-for-social-media-stars-for-2024/"><u>[Updated] Wallet-Friendly Microphones for Social Media Stars for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-seamless-time-lapse-production-using-advanced-gopro-software/"><u>2024 Approved Seamless Time Lapse Production Using Advanced GoPro Software</u></a></li>
+<li><a href="https://techidaily.com/all-about-usb-selective-suspend-in-depth-information-you-cant-miss/"><u>All About USB Selective Suspend: In-Depth Information You Can't Miss</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/chatgpt-or-huggingface-exploring-the-top-contenders-in-ai-assistants/"><u>ChatGPT or HuggingFace? Exploring the Top Contenders in AI Assistants</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/enhance-your-broadcasts-with-manycam-superior-live-video-solutions-and-fake-webcams/"><u>Enhance Your Broadcasts with ManyCam – Superior Live-Video Solutions & Fake Webcams</u></a></li>
+<li><a href="https://app-tips.techidaily.com/guaranteed-methods-restore-deleted-whatsapp-content-on-your-iphone-including-messages-photos-videos-and-audio/"><u>Guaranteed Methods: Restore Deleted WhatsApp Content on Your iPhone Including Messages, Photos, Videos & Audio</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/how-can-i-catch-the-regional-pokemon-without-traveling-on-apple-iphone-11-pro-max-drfone-by-drfone-virtual-ios/"><u>How Can I Catch the Regional Pokémon without Traveling On Apple iPhone 11 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-a-comprehensive-guide-to-mastering-ipogo-for-pokemon-go-on-apple-iphone-15-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, A Comprehensive Guide to Mastering iPogo for Pokémon GO On Apple iPhone 15 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-hacks-to-do-pokemon-go-trainer-battles-for-apple-iphone-6-drfone-by-drfone-virtual-ios/"><u>In 2024, Hacks to do pokemon go trainer battles For Apple iPhone 6 | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-reasons-why-pokemon-gps-does-not-work-on-apple-iphone-11-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, Reasons why Pokémon GPS does not Work On Apple iPhone 11 Pro Max? | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-ultimate-guide-to-catch-the-regional-located-pokemon-for-apple-iphone-15-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, Ultimate Guide to Catch the Regional-Located Pokemon For Apple iPhone 15 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-ways-to-trade-pokemon-go-from-far-away-on-apple-iphone-11-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, Ways to trade pokemon go from far away On Apple iPhone 11 Pro? | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/ultimate-guide-to-catch-the-regional-located-pokemon-for-apple-iphone-xs-max-drfone-by-drfone-virtual-ios/"><u>Ultimate Guide to Catch the Regional-Located Pokemon For Apple iPhone XS Max | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/visualconstruct-pro/"><u>VisualConstruct Pro</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-apple-iphone-x-drfone-by-drfone-virtual-ios/"><u>Will Pokémon Go Ban the Account if You Use PGSharp On Apple iPhone X | Dr.fone</u></a></li>
 </ul></div>
 
