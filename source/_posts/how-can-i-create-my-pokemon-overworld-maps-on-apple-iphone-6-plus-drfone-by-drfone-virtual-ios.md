@@ -1,7 +1,7 @@
 ---
 title: How Can I Create My Pokemon Overworld Maps On Apple iPhone 6 Plus? | Dr.fone
-date: 2024-07-12T04:56:36.920Z
-updated: 2024-07-13T04:56:36.920Z
+date: 2024-11-08T19:25:02.032Z
+updated: 2024-11-15T02:53:58.284Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -71,8 +71,6 @@ The spoofed location will be the 'Start' point of your route. Now, use one-stop 
 
 Creating Pokemon overworld maps is a paramount step to playing Pokemon Go. This will help you stay ahead of the game and learn how to calculate your moves. One way is to use WP Google maps. However, you will need to upgrade to the Pro version to unleash the hidden gems. You can also opt for a reliable route creator to easily draw your route and spoof iPhone. Dr. Fone Virtual Location works in simple steps to fake the GPS location of choice and let you explore the world from the comfort of your room.
 
-
-
 ## Pokémon Go Cooldown Chart On Apple iPhone 6 Plus
 
 Pokémon Go is a viral game; hence many people try to cheat to achieve high scores and invade others' privacy. The good news is that the Pokémon company is very responsive to preventing and combating such attacks. Cooldown Pokémon go another such feature to deter cheating. So let us discuss what cooldown means.
@@ -90,6 +88,13 @@ What does cool down mean? Cooldown is the time a player has to wait after comple
 When you get a soft ban, its duration is about 12 hours. In this period, any Pokémon you catch during the ban period will leave even if you use any ball type or berries. It also restricts you from winning gym fights and looting Pokéstops. You can still keep playing Pokémon, though, as it is the most lenient form of ban.
 
 ## Part 3: Cooldown Rules and How to Avoid Soft Ban in Pokémon Go?
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137216/26400" target="_top" id="2137216">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137216" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137216/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 1\. How long does it take for a Pokémon to Cool Down?
 
@@ -114,6 +119,13 @@ The cooldown time is proportional to the distance covered by the player. So, whe
 ### 2\. How long must I wait to avoid a softban?
 
 The waiting period for a soft ban is around 12 hours. After this time, if you can try and catch a Pokémon, it means the soft ban is over.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135372/19272" target="_top" id="2135372">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135372" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135372/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 3\. Actions that Do trigger cooldown?
 
@@ -192,6 +204,13 @@ In the new screen, navigate to the teleport option on the menu in the top-right 
 
 ![virtual-location](https://images.wondershare.com/drfone/guide/virtual-location-03.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049382/7443" target="_top" id="2049382">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049382" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049382/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Now, you can choose the location by entering its name in the search bar or coordinates if you want to be more precise. Then, you can see the desired location on the map on the screen.
 
 ![virtual-location](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
@@ -202,19 +221,22 @@ When you reach the target location and move your pin, click the "Move Here" butt
 
 ![virtual-location](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1915805/19272" target="_top" id="1915805">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915805" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915805/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Voila! You have teleported your location to the desired place.
 
 ![virtual-location](https://images.wondershare.com/drfone/guide/virtual-location-07.png)
 
 When you want to stop this teleporting, simply click the "Stop Simulation" button and your real location will take effect.
 
-
-
 ### Conclusion
 
 Pokémon Go is a viral and fantastic game. However, sometimes players get into trouble trying to beat its restriction or break the cooldown of Pokémon go and even compromise their phone's security and game records. Teleporting using [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) application is a simple and effective method of excelling in the game and avoiding bans while enjoying the perks of fast movements. We highly recommend using reliable applications to keep your phone and game secure.
-
-
 
 ## The Best iSpoofer Alternative to Try On Apple iPhone 6 Plus
 
@@ -223,6 +245,19 @@ _**“Is iSpoofer for Pokemon Go not working anymore? Can someone tell me how to
 If you have been using iSpoofer for a while to change your Apple iPhone 6 Plus location, you can encounter a similar situation. Since iSpoofer is no longer available, users are actively looking for its alternative. In this post, I will let you know the iSpoofer use and why we can’t take its assistance to change the Pokemon Go location anymore. I will also make you familiar with the best iSpoofer alternative for iPhone and Android.
 
 ![ispoofer shutdown banner](https://drfone.wondershare.com/2020/ispoofer-shutdown-banner.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1630055">
+					<video width="192" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1630055.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18460-1630055">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1630055.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcaperobbin.sjv.io%2Fc%2F5597632%2F1630055%2F18460'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1630055/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 1: Why did iSpoofer shutdown?
 
@@ -255,8 +290,6 @@ If you are looking for an iSpoofer alternative to spoof your phone location, con
 
 <iframe width="100%" height="450" src="https://www.youtube.com/embed/FfhgWxnARqo" frameborder="0" allowfullscreen=""></iframe>
 
-
-
 You can follow these simple steps to use this iSpoofer alternative to change your Apple iPhone 6 Plus location easily.
 
 **Step 1: Connect your Apple iPhone 6 Plus to the system**
@@ -287,8 +320,6 @@ You can now launch Pokemon Go or any other GPS-based app to check the spoofed lo
 
 **Note:** Keep in mind the cooldown duration before changing your location to ensure your account won’t get banned by Niantic while using the location spoofer. For instance, wait for a few minutes and only change your location realistically.
 
-
-
 ## Part 3: How to Spoof your Android Device’s Location for Pokemon Go?
 
 Unlike iOS devices, it is pretty easy to spoof location in Android devices. This is because Google allows us to mock the location of our device using any reliable mobile app (unlike Apple). Therefore, if you are looking for an iSpoofer alternative for Android devices, you can follow these basic instructions.
@@ -298,6 +329,13 @@ Unlike iOS devices, it is pretty easy to spoof location in Android devices. This
 At first, you need to turn on the Developer Options to enable the Mock Location feature. For this, go to your phone’s Settings > About Phone and tap the “Build Number” seven times to turn on Developer Options.
 
 ![enable developer options](https://drfone.wondershare.com/2020/enable-developer-options.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137226/26400" target="_top" id="2137226">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137226" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137226/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Great! Now you can go to your phone’s Settings > Developer Options and turn on the Mock Location option.
 
@@ -313,14 +351,27 @@ Once the app has been downloaded, you can again go to your phone’s Settings > 
 
 ![select mock location app](https://drfone.wondershare.com/2020/select-mock-location-app.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130529/26400" target="_top" id="2130529">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130529/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 3: Change your device’s location**
 
 That’s it! Now you can launch the mock location app and enter the address or coordinates of any target location. You can further adjust the pin and drop it anywhere you like to spoof the Apple iPhone 6 Plus device’s location.
 
 ![fake location on lexa](https://drfone.wondershare.com/2020/fake-location-on-lexa.jpg)
 
-There you go! After reading this post, I’m sure that you would be able to know about the iSpoofer use for Pokemon Go. Since iSpoofer has been shut down, you can no longer use it to change your Apple iPhone 6 Plus location. Therefore, you can consider [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) (iOS & Android) as an ideal iSpoofer alternative for your device. In just a few clicks, you can change the location of your Apple iPhone 6 Plus anywhere you like and that too without jailbreaking your phone.
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136620/26400" target="_top" id="2136620">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136620" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136620/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
+There you go! After reading this post, I’m sure that you would be able to know about the iSpoofer use for Pokemon Go. Since iSpoofer has been shut down, you can no longer use it to change your Apple iPhone 6 Plus location. Therefore, you can consider [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) (iOS & Android) as an ideal iSpoofer alternative for your device. In just a few clicks, you can change the location of your Apple iPhone 6 Plus anywhere you like and that too without jailbreaking your phone.
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -334,9 +385,18 @@ There you go! After reading this post, I’m sure that you would be able to know
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/024-approved-channel-aspirations-reach-and-secure-10k-views-for-youtube-partner-perks/"><u>[New] 2024 Approved Channel Aspirations – Reach and Secure 10K Views for YouTube Partner Perks</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-in-2024-discover-top-8-budget-friendly-screen-capture-apps-for-android/"><u>[New] In 2024, Discover Top 8 Budget-Friendly Screen Capture Apps for Android</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/outube-collabs-how-to-find-youtube-collaboration-partners-in-2024/"><u>[New] YouTube Collabs How to Find YouTube Collaboration Partners, In 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/1726028611717-powerpoint/"><u>「PowerPointビデオ編集技術：効果的な切り貼り・カット・クロッピング・回転方法」</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/a-comprehensive-guide-to-mastering-ipogo-for-pokemon-go-on-apple-iphone-x-drfone-by-drfone-virtual-ios/"><u>A Comprehensive Guide to Mastering iPogo for Pokémon GO On Apple iPhone X | Dr.fone</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/how-to-effortlessly-take-screenshots-on-your-playstation/"><u>How to Effortlessly Take Screenshots on Your PlayStation 지킬</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-nail-the-art-of-time-lapses-with-your-gopro-hero5-black/"><u>In 2024, Nail the Art of Time-Lapses with Your GoPro Hero5 Black</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-preparation-to-beat-giovani-in-pokemon-go-for-apple-iphone-13-drfone-by-drfone-virtual-ios/"><u>In 2024, Preparation to Beat Giovani in Pokemon Go For Apple iPhone 13 | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/pokemon-go-no-gps-signal-heres-every-possible-solution-on-apple-iphone-14-plus-drfone-by-drfone-virtual-ios/"><u>Pokemon Go No GPS Signal? Heres Every Possible Solution On Apple iPhone 14 Plus | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/square-video-production-masterclass-in-imovie-for-social-media/"><u>Square Video Production Masterclass in iMovie for Social Media</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/which-pokemon-can-evolve-with-a-moon-stone-for-apple-iphone-14-plus-drfone-by-drfone-virtual-ios/"><u>Which Pokémon can Evolve with a Moon Stone For Apple iPhone 14 Plus? | Dr.fone</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Affordable Innovation with ArcShell's AR-5 Review: Excellent Performance Meets Low Cost."
-date: 2024-11-09T18:55:02.086Z
-updated: 2024-11-14T00:32:54.310Z
+date: 2024-11-10T00:06:13.954Z
+updated: 2024-11-14T20:59:01.031Z
 categories:
   - BestProducts
 description: "This Article Describes Affordable Innovation with ArcShell's AR-5 Review: Excellent Performance Meets Low Cost."
@@ -40,10 +40,10 @@ Lifewire / Jonno Hill
 4.5
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902304/19272" target="_top" id="1902304">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902304" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136619/26400" target="_top" id="2136619">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136619" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902304/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136619/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Corsair One Pro
@@ -83,13 +83,6 @@ Lifewire / Jonno Hill
 
  Lifewire / Jonno Hill
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135353/19272" target="_top" id="2135353">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135353" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135353/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Design** :**Beautiful and compact**
 
  The first thing I noticed about the Corsair One Pro when taking it out of the box was how small it was, and I was already anticipating a small PC. The 12 Liter case measures just 7.8 x 6.9 x 14.9 inches (HWD)—absolutely minuscule by gaming desktop standards. They also manage to do all this without making the case look like a cheesy aesthetic nightmare designed by an 11-year-old with a Mountain Dew Code Red addiction. A feat, I know. Hats off to Corsair for designing a PC for adults.
@@ -108,6 +101,19 @@ Lifewire / Jonno Hill
 
  Lifewire / Jonno Hill
 
+<!-- affiliate ads begin -->
+<span id="1976998">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1976998.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1976998">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1976998.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1976998%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1976998/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Performance** : **Solid for gaming, but limited RAM for video editing**
 
  The Corsair One Pro that I tested featured an Intel Core i7-7700k processor, 32GB of RAM, a 480GB[M.2 NVMe drive](https://www.lifewire.com/what-is-m2-833453) , a 2TB HDD, and an Nvidia GTX GeForce 1080 Ti graphics card. I’m a fan of almost everything about this hardware configuration except for the RAM. It’s certainly enough memory if you don’t do much beyond gaming and web browsing, but it’s quite limiting for any creative applications like video editing and motion graphics.
@@ -118,6 +124,13 @@ Lifewire / Jonno Hill
 
  It’s certainly enough memory if you don’t do much beyond gaming and web browsing, but it’s quite limiting for any creative applications like video editing and motion graphics.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975816/19272" target="_top" id="1975816">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975816" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975816/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Network** :**Everything a gaming PC needs**
 
  The Corsair One Pro features[Gigabit Ethernet](https://www.lifewire.com/definition-of-gigabit-ethernet-816338) , 802.11ac Wi-Fi, and Bluetooth 4.2\. While most serious users will want to get off of Wi-Fi and onto Ethernet as soon as they can, the presence of Wi-Fi is still very critical. Not everyone has access to Ethernet, or at least not right away, and sometimes being able to hop on Wi-Fi in a pinch makes all the difference.
@@ -125,10 +138,10 @@ Lifewire / Jonno Hill
  I didn’t have any trouble on the networking front with either the Wi-Fi or the Ethernet. My test setup was about 50 ft from the nearest router in direct line of sight, so I didn’t expect too many issues, but I was happy with the stability that I enjoyed during testing.
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/798161/11305" target="_top" id="798161">
-  <img src="//a.impactradius-go.com/display-ad/11305-798161" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137212/26400" target="_top" id="2137212">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137212" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798161/11305" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137212/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Software: A light touch**
@@ -139,14 +152,14 @@ Lifewire / Jonno Hill
 
 ![Corsair One Pro](https://www.lifewire.com/thmb/wD8iDgpKfKl5SxrOM7HcPorqmgw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Corsair-One-Pro-Desktop-Computer-5-d413b11c28bb49e0baada954e10dcb3a.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135400/19272" target="_top" id="2135400">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135400" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135400/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Jonno Hill
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135419/19272" target="_top" id="2135419">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135419" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135419/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Price: A premium, but a deserved one**
 
@@ -173,13 +186,6 @@ Lifewire / Jonno Hill
  **A pre-built gaming PC fit for novices and veterans alike.**
 
  Corsair has done an admirable job putting together a pre-built PC that can satisfy everyone from the total novice to the PC-building veteran. The Corsair One Pro is beautifully designed, space-efficient, quiet, and cool. To top things off, they aren’t even charging an extraordinary premium over what the parts would cost if purchased individually. Buyers should be able to consider the Corsair One Pro with very few reservations.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137213/26400" target="_top" id="2137213">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137213" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137213/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -216,20 +222,19 @@ Lifewire / Jonno Hill
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-amplify-engagement-through-linked-story-sharing/"><u>[New] 2024 Approved Amplify Engagement Through Linked Story Sharing</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/new-a-new-era-of-visual-narratives-full-rotation/"><u>[New] A New Era of Visual Narratives Full Rotation</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-auditory-alteration-on-the-go-the-top-7-mobile-voice-modification-apps/"><u>[Updated] 2024 Approved Auditory Alteration on the Go The Top 7 Mobile Voice Modification Apps</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-from-views-to-revenue-simplifying-the-process-with-a-3-step-framework-for-monitoring-youtube-income/"><u>[Updated] 2024 Approved From Views to Revenue Simplifying the Process with a 3-Step Framework for Monitoring YouTube Income</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/can-t-view-mov-movies-content-on-samsung-galaxy-m54-5g-by-aiseesoft-video-converter-play-mov-on-android/"><u>Can’t view MOV movies content on Samsung Galaxy M54 5G</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-apple-iphone-xs-max-drfone-by-drfone-virtual-ios/"><u>In 2024, 9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Apple iPhone XS Max | Dr.fone</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/in-2024-become-an-expert-tutorial-for-making-gifs-into-desirable-whatsapp-and-telegram-stickers/"><u>In 2024, Become an Expert Tutorial for Making GIFs Into Desirable WhatsApp & Telegram Stickers</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-apple-iphone-11-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, Here are Some Pro Tips for Pokemon Go PvP Battles On Apple iPhone 11 Pro | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-to-come-up-with-the-best-pokemon-team-on-apple-iphone-14-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Come up With the Best Pokemon Team On Apple iPhone 14 Pro Max? | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-ipogo-will-be-the-new-ispoofer-on-apple-iphone-6-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, iPogo will be the new iSpoofer On Apple iPhone 6 Plus? | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-apple-iphone-6s-drfone-by-drfone-virtual-ios/"><u>In 2024, Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Apple iPhone 6s | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/preparation-to-beat-giovani-in-pokemon-go-for-apple-iphone-11-pro-drfone-by-drfone-virtual-ios/"><u>Preparation to Beat Giovani in Pokemon Go For Apple iPhone 11 Pro | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/the-magnificent-art-of-pokemon-go-streaming-on-apple-iphone-13-pro-drfone-by-drfone-virtual-ios/"><u>The Magnificent Art of Pokemon Go Streaming On Apple iPhone 13 Pro? | Dr.fone</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/things-you-should-know-when-unlocking-total-wireless-of-iphone-se-drfone-by-drfone-ios/"><u>Things You Should Know When Unlocking Total Wireless Of iPhone SE | Dr.fone</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/king-youtube-success-mastering-the-art-of-shorts-thumbnails-for-2024/"><u>Unlocking YouTube Success Mastering the Art of Shorts Thumbnails for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-visual-voyage-your-guide-to-broadcasting-vids-with-confidence-on-facebook/"><u>[New] 2024 Approved Visual Voyage Your Guide to Broadcasting Vids with Confidence on Facebook</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-mastering-tv-broadcasts-repeating-youtube-videos-effortlessly/"><u>[New] In 2024, Mastering TV Broadcasts Repeating YouTube Videos Effortlessly</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-top-5-web-based-or-extension-voice-changers-for-chromebook/"><u>[New] Top 5 Web-Based or Extension Voice Changers for Chromebook</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-2024-approved-superior-choice-of-8-free-uhd-software-for-pc-and-macos/"><u>[Updated] 2024 Approved Superior Choice of 8 Free UHD Software for PC & MacOS</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-apple-iphone-7-plus-drfone-by-drfone-virtual-ios/"><u>4 solution to get rid of pokemon fail to detect location On Apple iPhone 7 Plus | Dr.fone</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/bold-disclosure-of-vulnerability-as-hackers-break-into-anycubics-3d-printer-network/"><u>Bold Disclosure of Vulnerability as Hackers Break Into Anycubic's 3D Printer Network</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/catchemall-celebrate-national-pokemon-day-with-virtual-location-on-apple-iphone-8-plus-drfone-by-drfone-virtual-ios/"><u>CatchEmAll Celebrate National Pokémon Day with Virtual Location On Apple iPhone 8 Plus | Dr.fone</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/how-to-successfully-download-and-install-dell-latitude-e6430-drivers-on-your-pc-windows/"><u>How to Successfully Download & Install Dell Latitude E6430 Drivers on Your PC (Windows)</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/how-to-use-pokemon-go-joystick-on-apple-iphone-6-drfone-by-drfone-virtual-ios/"><u>How to use Pokemon Go Joystick on Apple iPhone 6? | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-best-pokemons-for-pvp-matches-in-pokemon-go-for-apple-iphone-12-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, Best Pokemons for PVP Matches in Pokemon Go For Apple iPhone 12 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/most-asked-questions-about-pokemon-go-battle-league-rewards-on-apple-iphone-8-plus-drfone-by-drfone-virtual-ios/"><u>Most Asked Questions about Pokemon Go Battle League Rewards On Apple iPhone 8 Plus | Dr.fone</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/new-2024-approved-ultimate-tips-for-editing-audios-using-avidemux-2023-edition/"><u>New 2024 Approved Ultimate Tips for Editing Audios Using Avidemux - 2023 Edition</u></a></li>
+<li><a href="https://extra-support.techidaily.com/seamless-integration-of-multimedia-pip-video-tips-for-sierra-users-for-2024/"><u>Seamless Integration of Multimedia PIP Video Tips for Sierra Users for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/ultimate-microphone-choices-for-filmmakers-for-2024/"><u>Ultimate Microphone Choices for Filmmakers for 2024</u></a></li>
 </ul></div>
 
