@@ -1,7 +1,7 @@
 ---
 title: What Legendaries Are In Pokemon Platinum On Apple iPhone 12? | Dr.fone
-date: 2024-10-22T22:34:28.735Z
-updated: 2024-10-30T00:42:13.513Z
+date: 2024-11-06T19:59:45.418Z
+updated: 2024-11-13T22:10:13.128Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -75,6 +75,13 @@ There are about 18 platinum legendaries Pokemon that you can obtain per game car
 
 **18\. Arceus:** Arceus, the level 80 Pokemon, is also an event-only Pokemon who is accessible with the Azure Flute obtained from Nintendo Event. At the Spear Pillar, you will be asked if you want to play the flute. If yes, the flute is played and a huge staircase appears. Climb up the staircase and you will find the Pokemon resting there. Go up and battle him.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896546/19272" target="_top" id="1896546">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896546" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896546/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: How do you catch the legendary Pokemon in platinum?
 
 There are a few cheats to capture platinum legendaries in Pokemon. In addition to the official methods discusses above, you can use action replay codes or try location spoofing.
@@ -137,13 +144,6 @@ If you have been playing Pokemon PvP battle leagues, then you might already know
 
 ![pokemon go pvp tier list banner](https://images.wondershare.com/drfone/2020/pokemon-go-pvp-tier-list-banner.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130890/7443" target="_top" id="2130890">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130890" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130890/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 1: How are Pokemon Go PvP Tier Lists Evaluated?
 
 Before you go through our carefully calculated great, ultra, and master league Pokemon Go tier list, you should know some basics. Ideally, the following parameters are considered while placing any Pokemon in a tier list.
@@ -163,16 +163,10 @@ Before you go through our carefully calculated great, ultra, and master league P
 Since Pokemon Go PvP matches are based on different leagues, I have also come up with Pokemon ultra, great, and master league tier lists to help you pick the most powerful Pokemon in every match.
 
 <!-- affiliate ads begin -->
-<span id="1424531">
-					<video width="864" height="NaN" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424531.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424531">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424531.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424531%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424531/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2068408/7443" target="_top" id="2068408">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068408" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068408/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Pokemon Go Great League Tier List
@@ -205,23 +199,9 @@ As you can see from the top tier Great league Pokemon Go list that the tier 1 an
 
 ![virtual location 05](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1883998/19272" target="_top" id="1883998">
-  <img src="//a.impactradius-go.com/display-ad/19272-1883998" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1883998/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 <iframe width="100%" height="450" src="https://www.youtube.com/embed/FfhgWxnARqo" frameborder="0" allowfullscreen=""></iframe>
 
 There you go! I’m sure that after going through this Pokemon Go PvP tier list, you would be able to pick the strongest Pokemons in every league match. If you don’t have Tier 1 and 2 Pokemons already, then I would recommend using Dr.Fone – Virtual Location (iOS). Using it, you can catch any Pokemon remotely from the comfort of your home without jailbreaking your device.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886069/19272" target="_top" id="1886069">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886069" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886069/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 11 Best Pokemon Go Spoofers for GPS Spoofing on Apple iPhone 12
 
@@ -323,6 +303,13 @@ Tutuapp is another popular **Pokemon Go spoofer iOS**. It is also a third-party 
 
 **More info:** <https://www.tutuapp.com/>
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087234/19272" target="_top" id="2087234">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087234" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087234/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 4\. iPogo
 
 In this way, you can use iPogo to do spoofing for Pokemon Go on iPhone too. Since it will demand to jailbreak, the authenticity of your device would stay intact.
@@ -348,10 +335,10 @@ In this way, you can use iPogo to do spoofing for Pokemon Go on iPhone too. Sinc
 **More info:** you can download ipgo here <https://ipogo.app/>
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134496/18498" target="_top" id="2134496">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134496" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettieu.pxf.io/c/5597632/2141676/17091" target="_top" id="2141676">
+  <img src="//a.impactradius-go.com/display-ad/17091-2141676" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134496/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141676/17091" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 5\. Relocate
@@ -375,6 +362,20 @@ Don't get confused by the name of this location spoofer for iOS as it won't help
 - Might get detected by Pokemon Go
 
 ![Relocate](https://images.wondershare.com/drfone/article/2019/09/pokemon-go-spoofers-iphone-7.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139123/17108" target="_top" id="2139123">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139123" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139123/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144297/7443" target="_top" id="2144297">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144297" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144297/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 6\. iTools by ThinkSky
 
@@ -463,19 +464,6 @@ If you don't want to take the computer's assistance to do Pokemon Go spoofing on
 
 ![iOS Roaming Guide](https://images.wondershare.com/drfone/article/2019/09/pokemon-go-spoofers-iphone-6.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1938141">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1938141.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1938141">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938141.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938141%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938141/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **More info:** <https://cydia.saurik.com/package/com.scholar.iosroamingguide/>
 
 ## 10\. iSpoofer
@@ -498,19 +486,6 @@ iSpoofer is renowned among Pokémon Go players for its user-friendly interface a
 - The original app was shut down.
 
 ![ispoofer for pokemon go](https://images.wondershare.com/drfone/article/2023/12/pokemon-go-spoofers-for-gps-1.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1983545">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983545.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983545">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983545.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983545%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983545/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **More info:** <https://ispoofer.app/>
 
@@ -537,15 +512,28 @@ Unlock boundless exploration with Spoofer Go, your ultimate Pokémon Go companio
 
 ![spoofer go for gokemon go](https://images.wondershare.com/drfone/article/2023/12/pokemon-go-spoofers-for-gps-2.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1983575">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983575.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983575">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983575.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983575%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983575/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **More info:** <https://www.spoofer-go.com/>
 
 ## FAQs You May Want to Know about Pokémon GO Spoofing iOS
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087262/19272" target="_top" id="2087262">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087262" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115932/19272" target="_top" id="2115932">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115932" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087262/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115932/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 1\. What is Pokemon GO Spoofing on iOS?
@@ -580,18 +568,16 @@ Now that you know about 11 different ways to do **Pokemon Go spoofing on iOS**, 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-top-20-free-public-domain-pubg-screenshot-slideshows/"><u>[New] Top 20 Free Public Domain PUBG Screenshot Slideshows</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-drive-more-traffic-effective-strategies-for-youtube-outros/"><u>[Updated] In 2024, Drive More Traffic Effective Strategies for YouTube Outros</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-the-youtuber-enigma-decoded-exciting-questionnaires-leading-to-your-ideal-creator-profile/"><u>[Updated] The YouTuber Enigma Decoded Exciting Questionnaires Leading to Your Ideal Creator Profile</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/a-working-guide-for-pachirisu-pokemon-go-map-on-apple-iphone-xs-max-drfone-by-drfone-virtual-ios/"><u>A Working Guide For Pachirisu Pokemon Go Map On Apple iPhone XS Max | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/heres-everything-you-should-know-about-pokemon-stops-in-detail-on-apple-iphone-8-plus-drfone-by-drfone-virtual-ios/"><u>Heres Everything You Should Know About Pokemon Stops in Detail On Apple iPhone 8 Plus | Dr.fone</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-do-i-stop-someone-from-tracking-my-realme-c53-drfone-by-drfone-virtual-android/"><u>How Do I Stop Someone From Tracking My Realme C53? | Dr.fone</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-crafting-perfect-youtube-music-sets/"><u>In 2024, Crafting Perfect YouTube Music Sets</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-do-you-get-sun-stone-evolutions-in-pokemon-for-apple-iphone-6s-drfone-by-drfone-virtual-ios/"><u>In 2024, How Do You Get Sun Stone Evolutions in Pokémon For Apple iPhone 6s? | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-reasons-why-pokemon-gps-does-not-work-on-apple-iphone-11-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, Reasons why Pokémon GPS does not Work On Apple iPhone 11 Pro? | Dr.fone</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/pairing-perfection-a-tutorial-for-attaching-a-subwoofer-to-a-samsung-soundbar-system/"><u>Pairing Perfection: A Tutorial for Attaching a Subwoofer to a Samsung Soundbar System</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/top-10-video-fix-tools-for-pc-and-mac-streamline-your-editing/"><u>Top 10 Video Fix Tools for PC & Mac - Streamline Your Editing</u></a></li>
-<li><a href="https://facebook.techidaily.com/understanding-fbs-governance-the-role-of-its-regulatory-body/"><u>Understanding FB's Governance: The Role of Its Regulatory Body</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/unleashing-productivity-with-copilot-on-microsoft-teams-your-ultimate-how-to/"><u>Unleashing Productivity with Copilot on Microsoft Teams - Your Ultimate How-To</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/here-are-some-of-the-best-pokemon-discord-servers-to-join-on-apple-iphone-xs-drfone-by-drfone-virtual-ios/"><u>Here are Some of the Best Pokemon Discord Servers to Join On Apple iPhone XS | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-lock-apps-on-oppo-a1-5g-to-protect-your-individual-information-by-drfone-android/"><u>How to Lock Apps on Oppo A1 5G to Protect Your Individual Information</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-rescue-lost-music-from-google-pixel-7a-by-fonelab-android-recover-music/"><u>How to Rescue Lost Music from Google Pixel 7a</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-use-snapchat-location-spoofer-to-protect-your-privacy-on-xiaomi-14-drfone-by-drfone-virtual-android/"><u>How to use Snapchat Location Spoofer to Protect Your Privacy On Xiaomi 14? | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-apple-iphone-11-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, 15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Apple iPhone 11 Pro | Dr.fone</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-fake-android-location-without-rooting-for-your-samsung-galaxy-xcover-6-pro-tactical-edition-drfone-by-drfone-virtual/"><u>In 2024, Fake Android Location without Rooting For Your Samsung Galaxy XCover 6 Pro Tactical Edition | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-here-are-different-ways-to-find-pokemon-go-trainer-codes-to-add-to-your-account-on-apple-iphone-7-drfone-by-drfone-virtual-ios/"><u>In 2024, Here are Different Ways to Find Pokemon Go Trainer Codes to Add to Your Account On Apple iPhone 7 | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-apple-iphone-xs-drfone-by-drfone-virtual-ios/"><u>In 2024, Here are Some Pro Tips for Pokemon Go PvP Battles On Apple iPhone XS | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-what-legendaries-are-in-pokemon-platinum-on-apple-iphone-x-drfone-by-drfone-virtual-ios/"><u>In 2024, What Legendaries Are In Pokemon Platinum On Apple iPhone X? | Dr.fone</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/new-top-free-luts-to-use-in-shotcut-an-overview/"><u>New Top Free LUTs To Use in Shotcut An Overview</u></a></li>
+<li><a href="https://win-dash.techidaily.com/unlock-maximum-performance-in-games-on-windows-11-and-10-with-free-nvidia-graphics-driver-downloads/"><u>Unlock Maximum Performance in Games on Windows 11 & 10 with Free Nvidia Graphics Driver Downloads</u></a></li>
 </ul></div>
 

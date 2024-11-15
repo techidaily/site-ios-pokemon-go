@@ -1,7 +1,7 @@
 ---
 title: What Legendaries Are In Pokemon Platinum On Apple iPhone 12 mini? | Dr.fone
-date: 2024-10-26T20:46:54.008Z
-updated: 2024-10-29T22:46:46.962Z
+date: 2024-11-09T17:56:33.121Z
+updated: 2024-11-13T20:06:23.001Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -75,13 +75,6 @@ There are about 18 platinum legendaries Pokemon that you can obtain per game car
 
 **18\. Arceus:** Arceus, the level 80 Pokemon, is also an event-only Pokemon who is accessible with the Azure Flute obtained from Nintendo Event. At the Spear Pillar, you will be asked if you want to play the flute. If yes, the flute is played and a huge staircase appears. Climb up the staircase and you will find the Pokemon resting there. Go up and battle him.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111994/7443" target="_top" id="2111994">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111994" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111994/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2: How do you catch the legendary Pokemon in platinum?
 
 There are a few cheats to capture platinum legendaries in Pokemon. In addition to the official methods discusses above, you can use action replay codes or try location spoofing.
@@ -93,6 +86,13 @@ There are many action replay codes available on the Internet. Using these codes,
 Make sure you get these codes only from reliable websites or sources. Otherwise, you may get banned from playing this game permanently.
 
 ![Platinum legendaries 8](https://images.wondershare.com/drfone/Platinum-legendaries-8.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1959764/19272" target="_top" id="1959764">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959764" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959764/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2.2 Location Spoofing with Dr. Fone Virtual Location
 
@@ -124,19 +124,6 @@ For this illustration, we will use using Dr.fone to see how to iPhone GPS spoofi
 
 Now, enjoy playing Pokemon Platinum and capture more Legendary Pokemon to level up in the game.
 
-<!-- affiliate ads begin -->
-<span id="1424529">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424529.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424529">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424529.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424529%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424529/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 3: How to get Mewtwo in Pokemon Platinum?
 
 Mewtwo in the Pokemon game was introduced to be the strongest Pokemon. It lives up to that and has a mega evolution that makes Mewtwo even stronger when compared to its original form. The Pokemon can learn powerful psychic moves, such as confusion and recover.
@@ -144,13 +131,6 @@ Mewtwo in the Pokemon game was introduced to be the strongest Pokemon. It lives 
 Frankly, Mewtwo can be located only in the Cerulean Cave that further locates in Kanto. That’s why you cannot find Mewtwo in Platinum. And, if you want to obtain Mewtwo, you have to migrate or trade for one.
 
 ![Platinum legendaries 14](https://images.wondershare.com/drfone/Platinum-legendaries-14.png)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012429/19272" target="_top" id="2012429">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012429" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012429/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 According to some users, you can get Mewtwo with Pokemon Fire Red or Leaf Green. With these in hand, you can obtain Mewtwo in cerulean cave once you have defeated the Elite 4.
 
@@ -161,6 +141,13 @@ Hopefully, these comprehensive guides help you learn about all legendaries in Pl
 ## How Do You Get Sun Stone Evolutions in Pokémon For Apple iPhone 12 mini?
 
 ![pokémon go sun stone](https://images.wondershare.com/drfone/article/2024/03/sun-stone-evolutions.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134221/18498" target="_top" id="2134221">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134221" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134221/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Though you can certainly catch some powerful Pokémon in Pokémon Go just by playing the game, exploring the wilderness, and joining raids, it’s not enough. Evolving your Pokémon is how you advance through the game, level up, and become a better catcher.
 
@@ -210,6 +197,13 @@ While certainly not the rarest evolution item in Pokémon Go, that title belongi
 
 Fortunately, for all those unlucky ones, you can acquire the Sun Stone to complete your Pokémon evolutions in a few different ways.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918714/19272" target="_top" id="1918714">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918714" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918714/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Special Events
 
 Partaking in Pokémon Go special events is almost always a lucrative experience. You can get excellent XP bonuses, come across special Pokémon, enjoy more candy and stardust, encounter special raid bosses, and so much more. Of course, you can also increase your chances of encountering rare evolution items like the Sun Stone.
@@ -230,6 +224,13 @@ Among the different types of research the professor sends you is field research.
 
 As you’re completing your field research tasks, you can collect your rewards, earn stamps, and unlock breakthroughs. Hopefully, one of the rewards you receive will include the Sun Stone, allowing you to evolve some of your Pokémon.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144308/7443" target="_top" id="2144308">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144308" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144308/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Special Research
 
 With field research, you have some flexibility. You can visit PokéStops when you’re up for them, and you can even discard some tasks if they’re too difficult for you. With special research, you don’t have all that much flexibility.
@@ -238,13 +239,6 @@ Professor Willow will contact you directly and give you specific tasks you must 
 
 As a rule, special research will be more involved and will likely last longer than field research. However, your rewards will usually be much more valuable, and you’ll exponentially increase your chances of obtaining a Sun Stone.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135409/19272" target="_top" id="2135409">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135409" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135409/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Gyms and PokeStops
 
 Of course, you can always earn valuable rewards by simply visiting gyms and PokéStops and spinning the Photo Discs. Create a 7-day PokéStop streak, as that will guarantee you’ll get an evolution item.
@@ -252,6 +246,13 @@ Of course, you can always earn valuable rewards by simply visiting gyms and Pok�
 While you’ll usually get a more common evolution item after your 7-day streak, you might get a Sun Stone or something even more valuable.
 
 Usually, it’s in your best interest to go to more popular areas with more PokéStops, as you’ll be able to make more spins faster.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049369/7443" target="_top" id="2049369">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049369" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049369/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 5. How to Gather Sun Stones Efficiently
 
@@ -282,6 +283,13 @@ To get started with Wondershare Dr.Fone and complete your field research tasks, 
 
 ![choose the Apple iPhone 12 mini device you want to connect to dr.fone](https://images.wondershare.com/drfone/guide/vl-connect-android-1.png)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139110/17108" target="_top" id="2139110">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139110" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139110/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 6. On your phone, tap **Allow USB Debugging**;
 7. On your phone, go to **Developer Options> Select mock location app**;
 8. Select **Fone**.
@@ -295,13 +303,6 @@ From there, you can easily set up your route, change your location, and simulate
 Finally, to start getting Sun Stones and other rarer items more efficiently, you’ll always want to pay close attention to community days and special events. Pokémon Go is a very active game with frequent high-rewarding events that could happen at any time. Since these events are time-limited, you’ll always want to know precisely when they start and end.
 
 Fortunately, finding this out is pretty easy. Just keep track of Pokémon Go on social media or visit the official Pokémon Go website to find out more. All events will be announced ahead of time so that you can prepare.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037474/7443" target="_top" id="2037474">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037474" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037474/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -369,6 +370,13 @@ You can also use the Star Piece item to multiply the Stardust amount by 1.5.
 
 ![eggs in pokemon go](https://images.wondershare.com/drfone/article/2024/03/importance-of-stardust-in-pokemon-go-5.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896532/19272" target="_top" id="1896532">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896532/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### By Catching Pokemon
 
 Catching Pokemon is one of the most efficient ways of earning Stardust points. Each Pokemon has a base rate of 100 Stardust points, but you can earn more points depending on the Pokemon’s evolution stage. For instance, if the Pokemon is in the second stage, you’ll earn an additional 500 Stardust points.
@@ -388,13 +396,6 @@ Once you and your team defeat the Boss, you can collect the prizes. You’ll win
 If you defeat the boss, you’ll also get a chance to catch the Pokemon, which can bring you even more Stardust points!
 
 ![a raid battle in pokemon go](https://images.wondershare.com/drfone/article/2024/03/importance-of-stardust-in-pokemon-go-7.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129042/19576" target="_top" id="2129042">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129042" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129042/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### By Getting Rocket Rewards
 
@@ -422,13 +423,6 @@ You’ll earn 20 Stardust points for each berry you give a Pokemon. It may be th
 
 ![giving berries to pokemon characters](https://images.wondershare.com/drfone/article/2024/03/importance-of-stardust-in-pokemon-go-10.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134237/18498" target="_top" id="2134237">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134237" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134237/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Claim Stardust Quickly in Pokemon Go by Using Location Spoofing
 
 If you live in a rural area and don’t get too many chances to walk around and catch Pokemon characters, you can use a classic trick of location spoofing. It will allow you to change your virtual location and wander the streets of another city to discover more Pokemon opportunities.
@@ -441,16 +435,16 @@ Virtual Location will allow you to head to any city in the world, collect the ra
 
 ![choose the route mode](https://images.wondershare.com/drfone/guide/virtual-location-11.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151860/7443" target="_top" id="2151860">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151860" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151860/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 2. Set the desired parameters.
 
 ![choose parameters](https://images.wondershare.com/drfone/guide/virtual-location-09.png)
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139107/17108" target="_top" id="2139107">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139107" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139107/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 3. Click the **Start Moving**or **Move Here**
 
@@ -482,20 +476,17 @@ If you’re searching for ways to collect these items as quickly as possible and
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-hints.techidaily.com/new-crafting-engaging-vlog-dialogues-a-step-by-step-guide/"><u>[New] Crafting Engaging Vlog Dialogues A Step-by-Step Guide</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-discover-the-joy-of-real-time-broadcasting-with-fb-and-roku/"><u>[New] Discover the Joy of Real-Time Broadcasting with FB & Roku</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/new-premier-virtual-microphones/"><u>[New] Premier Virtual Microphones</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-in-2024-pro-video-production-mastering-the-coordination-between-windows-photos-and-storyremix/"><u>[Updated] In 2024, Pro Video Production Mastering the Coordination Between Windows, Photos, and StoryRemix</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-apple-iphone-6s-drfone-by-drfone-virtual-ios/"><u>How to get the dragon scale and evolution-enabled pokemon On Apple iPhone 6s? | Dr.fone</u></a></li>
-<li><a href="https://techidaily.com/how-to-soft-reset-tecno-spark-20-phone-drfone-by-drfone-reset-android-reset-android/"><u>How to Soft Reset Tecno Spark 20 phone? | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-11-best-pokemon-go-spoofers-for-gps-spoofing-on-apple-iphone-6-drfone-by-drfone-virtual-ios/"><u>In 2024, 11 Best Pokemon Go Spoofers for GPS Spoofing on Apple iPhone 6 | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-and-where-to-find-a-shiny-stone-pokemon-for-apple-iphone-13-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, How and Where to Find a Shiny Stone Pokémon For Apple iPhone 13 Pro? | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-pokemon-go-error-12-failed-to-detect-location-on-apple-iphone-12-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, Pokemon Go Error 12 Failed to Detect Location On Apple iPhone 12 Pro? | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-why-is-ipogo-not-working-on-apple-iphone-13-fixed-drfone-by-drfone-virtual-ios/"><u>In 2024, Why is iPogo not working On Apple iPhone 13? Fixed | Dr.fone</u></a></li>
-<li><a href="https://techidaily.com/introducing-chrome-support-in-vivaldi-browser-version-66-a-new-era-of-web-panel-customization/"><u>Introducing Chrome Support in Vivaldi Browser Version 6.6: A New Era of Web Panel Customization</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/list-of-pokemon-go-joysticks-on-apple-iphone-12-mini-drfone-by-drfone-virtual-ios/"><u>List of Pokémon Go Joysticks On Apple iPhone 12 mini | Dr.fone</u></a></li>
-<li><a href="https://program-issues.techidaily.com/valorant-players-solution-manual-fixing-fps-drops-and-enhancing-your-gaming-experience/"><u>Valorant Players' Solution Manual: Fixing FPS Drops and Enhancing Your Gaming Experience</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/what-legendaries-are-in-pokemon-platinum-on-apple-iphone-xr-drfone-by-drfone-virtual-ios/"><u>What Legendaries Are In Pokemon Platinum On Apple iPhone XR? | Dr.fone</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/why-iphone-14-plus-is-a-steal-unmatched-long-lasting-battery-and-hidden-gems-you-should-know-zdnet-review/"><u>Why iPhone 14 Plus Is a Steal: Unmatched Long-Lasting Battery and Hidden Gems You Should Know (ZDNet Review)</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-from-facebook-to-the-friends-inbox-sharing-videos-through-whatsapp-for-2024/"><u>[New] From Facebook to the Friend's Inbox Sharing Videos Through WhatsApp for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-peak-performance-sd-card-for-sony-a7s-series/"><u>[New] In 2024, Peak Performance SD Card for Sony A7S Series</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-from-speech-to-text-a-complete-free-workshop-on-youtube-transcription-for-2024/"><u>[Updated] From Speech to Text A Complete, FREE Workshop on YouTube Transcription for 2024</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/a-working-guide-for-pachirisu-pokemon-go-map-on-apple-iphone-15-pro-max-drfone-by-drfone-virtual-ios/"><u>A Working Guide For Pachirisu Pokemon Go Map On Apple iPhone 15 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-apple-iphone-11-pro-max-drfone-by-drfone-virtual-ios/"><u>Can I use iTools gpx file to catch the rare Pokemon On Apple iPhone 11 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://article-files.techidaily.com/earnings-exploration-how-much-does-pewdiepie-earn-for-2024/"><u>Earnings Exploration How Much Does PewDiePie Earn for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/in-2024-in-the-fast-lane-capturing-games-on-galaxy-devices/"><u>In 2024, In the Fast Lane Capturing Games on Galaxy Devices</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-what-legendaries-are-in-pokemon-platinum-on-apple-iphone-xs-drfone-by-drfone-virtual-ios/"><u>In 2024, What Legendaries Are In Pokemon Platinum On Apple iPhone XS? | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/reasons-why-pokemon-gps-does-not-work-on-apple-iphone-xs-max-drfone-by-drfone-virtual-ios/"><u>Reasons why Pokémon GPS does not Work On Apple iPhone XS Max? | Dr.fone</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/resolving-lcd-darkness-on-notebooks/"><u>Resolving LCD Darkness on Notebooks</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/three-ways-to-sim-unlock-honor-x50i-by-drfone-android/"><u>Three Ways to Sim Unlock Honor X50i</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/transform-your-verse-ideas-using-chatgpt/"><u>Transform Your Verse Ideas Using ChatGPT</u></a></li>
 </ul></div>
 

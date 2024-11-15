@@ -1,7 +1,7 @@
 ---
 title: How to get the dragon scale and evolution-enabled pokemon On Apple iPhone 11 Pro Max? | Dr.fone
-date: 2024-09-13T19:09:09.095Z
-updated: 2024-09-20T09:47:15.636Z
+date: 2024-11-09T19:26:57.889Z
+updated: 2024-11-13T21:29:34.673Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -48,6 +48,13 @@ Pokemon Go can be played without requiring movement, using Dr. Fone's toolkit. T
 
 ![drfone home](https://images.wondershare.com/drfone/guide/drfone-home.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094483/7443" target="_top" id="2094483">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094483" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094483/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 You can click the ‘Get Started’ button to initiate the action as soon as your phone gets detected.
 
 ![virtual location 01](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
@@ -82,9 +89,23 @@ Pokemon go dragon scale can be obtained by taking charge of Gyms and spinning, w
 
 You can get your hands on a dragon scale by spinning a specific Pokestop seven days in a row to get the required streak bonus. This won't ensure you a dragon scale; however, it will give you the possibility of achieving other evolutionary objects such as the Sun Stone, Upgrade, Sinnoh Stone, Unova Stone, Metal Coat, and King's Rock.
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1030380/11832" target="_top" id="1030380">
+  <img src="//a.impactradius-go.com/display-ad/11832-1030380" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030380/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 Specific Pokémon in Pokémon GO now call for rare evolution items such as a steel coat, a sunstone, a king's rock, a dragon scale, or an upgrade to evolve, all of which are unplanned drops from Pokestops. However, the players can make use of [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) application to gain version exclusive Pokemon and evolution items and make advancements in the game.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868495/19272" target="_top" id="1868495">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868495" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868495/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Full Guide to Catch 100 IV Pokémon Using a Map On Apple iPhone 11 Pro Max
 
@@ -122,10 +143,10 @@ You can check the true percentages of your characters’ IVs in the gaming app i
 Further, you can also click on the arrows on the left and right to see the stats of the next Pokémon.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144284/7443" target="_top" id="2144284">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144284" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1948881/19272" target="_top" id="1948881">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948881" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144284/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948881/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2.2 Know Pokémon IV using search filters
@@ -172,13 +193,6 @@ The Silph Road is the most extensive crowd-sourced resource for Pokémon Go that
 
 ![The Silph Road](https://images.wondershare.com/drfone/article/2024/03/the-silph-road-map.png)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2145009/26400" target="_top" id="2145009">
-  <img src="//a.impactradius-go.com/display-ad/26400-2145009" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2145009/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2\. Pokémon Go Map
 
 Pokémon Go Map is another Pokémon Go 100 IV map for you if you want to quickly find and catch rare Pokémon without spending hours wandering around. It is free to use and regularly updated with new features and bug fixes. You can customize your search preferences and receive notifications when new Pokémon appear in your area. You also can connect your game account to the map and chat with other characters in the game. This map has a built-in chat function.
@@ -190,13 +204,6 @@ Pokémon Go Map is another Pokémon Go 100 IV map for you if you want to quickly
 Further, the map shows the gym in red and Pokestops in blue by default. Therefore, it helps you to your route and trip to catch the Pokémon and to shop as well. Also, when you click on a particular Pokestop or Gym, this will show you the look of the stop, which you can share with other players.
 
 ![pokemongomap](https://images.wondershare.com/drfone/2023/virtuallocation/EX-Raid-Gym-Map-7.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1172027/12108" target="_top" id="1172027">
-  <img src="//a.impactradius-go.com/display-ad/12108-1172027" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1172027/12108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 You can also search for postcodes in Pokémon Go Map. But this map is not affiliated with Pokémon Go or Niantic. So, you need to download it from the site.
 
@@ -228,6 +235,13 @@ _You may be interested in: [8 Best Alternatives of PokeCrew: Find Pokemons on an
 
 Using a 100 IV Pokémon Go map, you can easily know their spawning locations and whereabouts. Since it is not possible to physically visit these locations to catch Pokémon, you can spoof your Apple iPhone 11 Pro Max location instead. To do that, just take the assistance of [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/). With just a few clicks, it will let you spoof your Apple iPhone 11 Pro Max location without jailbreaking or undergoing any technical hassle.
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/2139558/4704" target="_top" id="2139558">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139558" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139558/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Dr.Fone - Virtual Location
 
 Catch 100 IV Pokémon without moving!
@@ -248,6 +262,13 @@ After connecting your Apple iPhone 11 Pro Max to the application, go to its Tele
 
 ![virtual location 05](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997630/19272" target="_top" id="1997630">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997630" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997630/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Simulate your Apple iPhone 11 Pro Max movement
 
 If you wish to evolve your Pokémon or simulate your movement, then use the one-stop or multi-stop mode of the application. You can drop different stops in a route, enter the number of times you want to cover it, and can even specify your preferred speed. The application also has a GPS joystick that would further help you simulate your movement realistically.
@@ -259,6 +280,19 @@ If you wish to evolve your Pokémon or simulate your movement, then use the one-
 ## Conclusion
 
 That’s a wrap, everyone! Now that you know about the Pokémon Go 100 IV maps that actually work, you can easily catch these powerful Pokémon. Though, after noting their coordinates from a Pokémon IV 100 map, you would need to use a location spoofer app. I would recommend [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) since it is pretty easy to use and will not need any jailbreak access as well. You can spoof your Apple iPhone 11 Pro Max location to anywhere you want and also just simulate your movements realistically.
+
+<!-- affiliate ads begin -->
+<span id="1630055">
+					<video width="192" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1630055.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18460-1630055">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1630055.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcaperobbin.sjv.io%2Fc%2F5597632%2F1630055%2F18460'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1630055/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## A Detailed Pokemon Go PvP Tier List to Make you a Pro Trainer For Apple iPhone 11 Pro Max
 
@@ -280,13 +314,6 @@ Before you go through our carefully calculated great, ultra, and master league P
 
 ![cp levels pokemon leagues](https://images.wondershare.com/drfone/2020/cp-levels-pokemon-leagues.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135413/19272" target="_top" id="2135413">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135413" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135413/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2: A Complete Pokemon Go PvP Tier List: Great, Ultra, and Master Leagues
 
 Since Pokemon Go PvP matches are based on different leagues, I have also come up with Pokemon ultra, great, and master league tier lists to help you pick the most powerful Pokemon in every match.
@@ -303,18 +330,18 @@ You might already know that in the ultra league, we are allowed to pick Pokemons
 
 <table><tbody><tr><td>Tier 1 (5/5 rating)</td><td>Registeel and Giratina</td></tr></tbody><tbody><tr><td>Tier 2 (4.5/5 rating)</td><td>Snorlax, Alolan Muk, Togekiss, Poliwrath, Gyarados, Steelix, and Blastoise</td></tr><tr><td>Tier 3 (4/5 rating)</td><td>Regice, Ho-Oh, Meltmetal, Suicune, Kingdra, Primeape, Cloyster, Kangaskhan, Golem, and Virizion</td></tr><tr><td>Tier 4 (3.5/5 rating)</td><td>Crustle, Glaceon, Piloswine, Latios, Jolteon, Sawk, Leafeon, Braviary, and Mesprit</td></tr><tr><td>Tier 5 (3/5 rating)</td><td>Celebi, Scyther, Latias, Alomomola, Durant, Hypno, Muk, and Roserade</td></tr></tbody></table>
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137223/26400" target="_top" id="2137223">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137223/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Pokemon Go Master League Tier List
 
 Lastly, in the Master League, we don’t have any CP limits for Pokemons. Keeping this in mind, I have included some of the most powerful Pokemons in Tier 1 and 2 here.
 
 <table><tbody><tr><td>Tier 1 (5/5 rating)</td><td>Togekiss, Groudon, Kyogre, and Dialga</td></tr></tbody><tbody><tr><td>Tier 2 (4.5/5 rating)</td><td>Lugia, Mewtwo, Garchomp, Zekrom, Metagross, and Melmetal</td></tr><tr><td>Tier 3 (4/5 rating)</td><td>Zapdos, Moltres, Machamp, Darkrai, Kyurem, Articuno, Jirachi, and Rayquaza</td></tr><tr><td>Tier 4 (3.5/5 rating)</td><td>Gallade, Golurk, Usie, Cresselia, Entei, Lapras, and Pinsir</td></tr><tr><td>Tier 5 (3/5 rating)</td><td>Scizor, Crobat, Electivire, Emboar, Sawk, Victini, Exeggutor, Flygon, and Torterra</td></tr></tbody></table>
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135364/19272" target="_top" id="2135364">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135364" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135364/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 3: How to Catch Powerful Pokemons Remotely?
 
@@ -344,5 +371,24 @@ There you go! I’m sure that after going through this Pokemon Go PvP tier list,
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-harmonizing-horizons-easy-steps-for-sharing-soundtracks/"><u>[New] 2024 Approved Harmonizing Horizons Easy Steps for Sharing Soundtracks</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-achieve-financial-success-with-youtube-ad-profit-techniques/"><u>[Updated] 2024 Approved Achieve Financial Success with YouTube Ad Profit Techniques</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-elevate-your-videography-insights-on-youtube-studio-editor/"><u>[Updated] 2024 Approved Elevate Your Videography Insights on YouTube Studio Editor</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-top-techniques-for-broadcasting-fb-live-on-cable/"><u>[Updated] Top Techniques for Broadcasting FB Live on Cable</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-apple-iphone-15-pro-max-drfone-by-drfone-virtual-ios/"><u>15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Apple iPhone 15 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/discover-top-10plus-free-desktop-capture-software-for-2024/"><u>Discover Top 10+ Free Desktop Capture Software for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/efficient-and-trustworthy-in-depth-analysis-of-the-audew-mini-compressor-unit/"><u>Efficient and Trustworthy: In-Depth Analysis of the Audew Mini Compressor Unit</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/enhancing-engagement-streaming-historical-video-events-on-facebook-for-2024/"><u>Enhancing Engagement Streaming Historical Video Events on Facebook for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/fcps-ultimate-effect-upgrade-the-best-10-plugins/"><u>FCP’s Ultimate Effect Upgrade The Best 10 Plugins</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-additional-tips-about-sinnoh-stone-for-apple-iphone-6s-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, Additional Tips About Sinnoh Stone For Apple iPhone 6s Plus | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-to-use-pokemon-emerald-master-ball-cheat-on-apple-iphone-11-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Use Pokémon Emerald Master Ball Cheat On Apple iPhone 11 | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-to-use-pokemon-go-joystick-on-apple-iphone-14-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, How to use Pokemon Go Joystick on Apple iPhone 14 Plus? | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-ultimate-guide-to-get-the-meltan-box-pokemon-go-for-apple-iphone-11-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, Ultimate guide to get the meltan box pokemon go For Apple iPhone 11 Pro | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-what-pokemon-evolve-with-a-dawn-stone-for-apple-iphone-15-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, What Pokémon Evolve with A Dawn Stone For Apple iPhone 15 Plus? | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-which-pokemon-can-evolve-with-a-moon-stone-for-apple-iphone-15-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, Which Pokémon can Evolve with a Moon Stone For Apple iPhone 15 Pro? | Dr.fone</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/reimagining-action-recording-with-intova-edge-x-for-2024/"><u>Reimagining Action Recording with Intova Edge X for 2024</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-apple-iphone-6-plus-drfone-by-drfone-virtual-ios/"><u>The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Apple iPhone 6 Plus | Dr.fone</u></a></li>
+</ul></div>
 

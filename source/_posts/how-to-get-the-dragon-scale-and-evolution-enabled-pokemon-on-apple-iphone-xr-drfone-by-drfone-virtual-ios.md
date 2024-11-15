@@ -1,7 +1,7 @@
 ---
 title: How to get the dragon scale and evolution-enabled pokemon On Apple iPhone XR? | Dr.fone
-date: 2024-09-16T10:30:38.374Z
-updated: 2024-09-20T09:43:07.702Z
+date: 2024-11-07T19:26:33.408Z
+updated: 2024-11-13T23:44:41.152Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -76,6 +76,13 @@ To let the system duplicate flow by choosing the accurate choices, press the 'Ma
 
 ![virtual location 12](https://images.wondershare.com/drfone/guide/virtual-location-12.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934138/19272" target="_top" id="1934138">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934138" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934138/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 3: How to get the dragon scale on Pokémon Go?
 
 Pokemon go dragon scale can be obtained by taking charge of Gyms and spinning, waiting for the Pokestops to give you free dragon scales, but the chances are extremely low. PokeStops are symbolized by little blue box images on the map and usually can be observed in places of recreation such as a train station, a landmark, or even a regional post office. When your avatar is near to entering a PokeStop, the blue box image changes into a disc shape. The next thing you need to do is tap the disc, and it will exhibit a picture of the landmark, which is a chance to get a few free products.
@@ -86,11 +93,25 @@ You can get your hands on a dragon scale by spinning a specific Pokestop seven d
 
 Specific Pokémon in Pokémon GO now call for rare evolution items such as a steel coat, a sunstone, a king's rock, a dragon scale, or an upgrade to evolve, all of which are unplanned drops from Pokestops. However, the players can make use of [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) application to gain version exclusive Pokemon and evolution items and make advancements in the game.
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/857865/11832" target="_top" id="857865">
+  <img src="//a.impactradius-go.com/display-ad/11832-857865" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857865/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Hacks to do pokemon go trainer battles For Apple iPhone XR
 
 With the launch of the Pokémon Go battle league, the trainer battles are seen as one of the options that can be used to compete and do it the hard way. As the name suggests it is a feature in Pokémon Go that lets you battle as a trainer against the other trainers. Pokémon Go trainer battles are a great way to enhance your skills as the rules are different from the gym and raid battles which are also a great feature of this game. The Pokémon CP limits are granted to each league from which the trainer needs to choose one.
 
 ![Pokemon go hacks 1](https://images.wondershare.com/drfone/2020/Pokemon_go_hacks_1.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137202/26400" target="_top" id="2137202">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137202" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137202/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 1: What is the Point of Trainer Battles in Pokémon Go?
 
@@ -122,13 +143,6 @@ The rematches that are done in the trainer battles also account for the leveling
 
 In Pokémon trainer battle it indeed matters and this is one of the basic phenomena that will take you and your team to the next level. The CP stands for combat power and it means the power of your Pokémon. As a trainer when you battle more and more the XP increases and the CP as well. This CP will also help you to get a step ahead of others in terms of Pokémon that you own. The candies are used to make sure that the CP of the Pokémon is increased. It also means that you get the best Pokémon on the battlefield that will be able to counter offense the other Pokémon on the field. There are two ways to get higher CP. Firstly you can evolve a Pokémon and secondly you can also power up an existing Pokémon. Both are the choices and the result is completely up to you. Use candies and power up your Pokémon to a higher level. It will also ensure that you get the best results on the battlefield. The weight and the size of the Pokémon also affect the CP score so you need a Pokémon that is both agile and lightweight to get the best results.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094414/7443" target="_top" id="2094414">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094414" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094414/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 4: Tips to level up Pokémon before doing the Pokémon go trainer battles
 
 To get the best out of Pokémon Go battle another trainer it is advised to get the [Dr. Fone Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/). This program has been specifically developed to change the iOS location and the added features also get you a step ahead of our competitors in Pokémon trainer battles.
@@ -141,17 +155,38 @@ You need to make sure that the program has been installed and launched to begin 
 
 ![drfone home](https://images.wondershare.com/drfone/guide/drfone-home.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 2: Get Started**
 
 You need to make sure that the virtual location is clicked from all options and the iPhone is connected. Click get started to begin.
 
 ![virtual location 1](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2136548/16384" target="_top" id="2136548">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136548" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136548/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 3: Accurate location**
 
 In the next window click center on to get the accurate location.
 
 ![virtual location 3](https://images.wondershare.com/drfone/guide/virtual-location-03.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868590/19272" target="_top" id="1868590">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868590" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868590/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Step 4: Teleport**
 
@@ -224,6 +259,19 @@ As the interface would be launched, you can see five different modes in the top-
 
 ![walk mode](https://images.wondershare.com/drfone/guide/virtual-location-08.png)
 
+<!-- affiliate ads begin -->
+<span id="1155462">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1155462.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1155462">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1155462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1155462%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1155462/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Now you can just select the number of times you wish to move and complete other settings, such as enabling the realistic and fluctuation mode. After that, click on the "Move Here" button.
 
 ![confirm marching](https://images.wondershare.com/drfone/guide/virtual-location-09.png)
@@ -241,13 +289,6 @@ This will just start the simulation, and you can even adjust the speed from a sl
 Using Dr.Fone – Virtual Location (iOS), you can also simulate an entire route between multiple spots as well. To do this, just click on the "Multi-stop route" which is the fourth option in the top-right corner of the interface.
 
 ![route between multiple spots](https://images.wondershare.com/drfone/guide/virtual-location-11.png)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975841/19272" target="_top" id="1975841">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975841" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975841/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Now, you can mark multiple spots on the map and can also select the number of times you wish to take this route. Click on the "Start Moving" button to start **Pokemon Go hatch eggs without walking**.
 
@@ -271,6 +312,19 @@ While changing your location, make sure that you do it tactfully. For instance, 
 
     ![location spoofing app](https://images.wondershare.com/drfone/article/2019/09/hatch-pokemon-eggs-without-walking-3.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1531882">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1531882.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1531882">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531882.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531882%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531882/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 3. That’s it! Now you can just launch the fake GPS app and manually change your location to a few meters away to trick Pokemon Go. Do the same a few times to cover a prominent distance.
 
     ![change your location to a few meters away](https://images.wondershare.com/drfone/article/2019/09/hatch-pokemon-eggs-without-walking-4.jpg)
@@ -289,13 +343,6 @@ Apart from a location spoofing app, there are a handful of other ways to learn h
 - Use a lock and make sure that your phone won’t fall from your drone.
 - Enable the Find My Apple iPhone XR service on your Android or iPhone so that you can locate your phone if it is lost.
 - Move your drone slowly so that Pokemon Go would not detect that you are using a drone or playing the game while driving.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043597/7443" target="_top" id="2043597">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043597" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043597/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Way 4: Exchange the Friend Code of Other Pokemon Go Users
 
@@ -336,13 +383,6 @@ Just make sure that you stay safe while riding your bike or skateboard. Don’t 
 
 ![play Pokemon Go with Bike or Skateboard](https://images.wondershare.com/drfone/article/2019/09/hatch-pokemon-eggs-without-walking-10.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151873/7443" target="_top" id="2151873">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151873" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151873/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Way 7: Use a Roomba while Playing Pokemon Go
 
 If you have a Roomba or any other robotic cleaner in the house, then you can also take its assistance to hack Pokemon Go eggs. All you got to do is place your phone on the Roomba and let it move around in your house. Since the robotic cleaner would move slowly, it will make Pokemon Go believe that you are walking instead. Just be sure that your phone will stay safe and protected. I would recommend placing it in a waterproof lock to further protect it from any wear and tear.
@@ -364,13 +404,6 @@ Place your phone on the outermost edge of the turntable > Turn on the turntable 
 ![play pokemon go with turntable](https://images.wondershare.com/drfone/article/2023/05/hatch-pokemon-eggs-without-walking.jpg)
 
 _**Tips:** Tired of walking to hatch eggs? Using Dr.Fone - Virtual Location to hatch Pokémon Go eggs without taking a step. Explore the world of Pokémon from the comfort of your home. Try it now and level up your Pokémon Go adventure!_
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082536/7443" target="_top" id="2082536">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082536" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082536/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Bonus Tip: The Different Types of Pokemon Eggs in Pokemon Go
 
@@ -399,5 +432,24 @@ Now that you know **how to hatch eggs in Pokemon Go without walking** in 9 diffe
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-broadcast-an-episode-to-your-insta-circle/"><u>[Updated] 2024 Approved Broadcast an Episode to Your Insta Circle</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-affordable-wireless-charging-pads-for-modern-phones-for-2024/"><u>[Updated] Affordable Wireless Charging Pads for Modern Phones for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-iphone-and-selfies-unite-our-top-8-gear-guide/"><u>2024 Approved Iphone and Selfies Unite - Our Top #8 Gear Guide</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-primewave-riders-most-fancied-and-binge-watched-originals-on-twitter/"><u>2024 Approved PrimeWave Riders Most Fancied & Binge-Watched Originals on Twitter</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/all-you-need-to-know-about-mega-greninja-for-apple-iphone-7-plus-drfone-by-drfone-virtual-ios/"><u>All You Need To Know About Mega Greninja For Apple iPhone 7 Plus | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-review-of-the-cumuluspro-mat-the-pinnacle-of-standing-desk-comfort-and-support/"><u>Comprehensive Review of the CumulusPRO Mat: The Pinnacle of Standing Desk Comfort and Support</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/full-guide-to-catch-100-iv-pokemon-using-a-map-on-apple-iphone-14-drfone-by-drfone-virtual-ios/"><u>Full Guide to Catch 100 IV Pokémon Using a Map On Apple iPhone 14 | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/full-guide-to-catch-100-iv-pokemon-using-a-map-on-apple-iphone-15-drfone-by-drfone-virtual-ios/"><u>Full Guide to Catch 100 IV Pokémon Using a Map On Apple iPhone 15 | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-apple-iphone-15-pro-drfone-by-drfone-virtual-ios/"><u>How to get the dragon scale and evolution-enabled pokemon On Apple iPhone 15 Pro? | Dr.fone</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-bending-words-in-media-landscapes/"><u>In 2024, Bending Words in Media Landscapes</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-full-guide-to-catch-100-iv-pokemon-using-a-map-on-apple-iphone-12-mini-drfone-by-drfone-virtual-ios/"><u>In 2024, Full Guide to Catch 100 IV Pokémon Using a Map On Apple iPhone 12 mini | Dr.fone</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/in-2024-harness-the-web-to-preserve-and-share-live-music-sounds/"><u>In 2024, Harness the Web to Preserve and Share Live Music Sounds</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-the-best-ispoofer-alternative-to-try-on-apple-iphone-11-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, The Best iSpoofer Alternative to Try On Apple iPhone 11 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-apple-iphone-13-pro-drfone-by-drfone-virtual-ios/"><u>Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Apple iPhone 13 Pro | Dr.fone</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/ultimate-tutorial-fixing-errors-with-the-chkdsk-utility-on-a-windows-pc/"><u>Ultimate Tutorial: Fixing Errors with the Chkdsk Utility on a Windows PC</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-exploring-vn-video-editor-pro-is-this-app-right-for-you-in-2024/"><u>Updated Exploring VN Video Editor Pro Is This App Right for You, In 2024</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/why-cant-i-install-the-ipogo-on-apple-iphone-14-pro-max-drfone-by-drfone-virtual-ios/"><u>Why cant I install the ipogo On Apple iPhone 14 Pro Max | Dr.fone</u></a></li>
+</ul></div>
 

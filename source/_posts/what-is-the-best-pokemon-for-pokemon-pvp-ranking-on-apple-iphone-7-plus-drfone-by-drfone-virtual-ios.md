@@ -1,7 +1,7 @@
 ---
 title: What is the best Pokemon for pokemon pvp ranking On Apple iPhone 7 Plus? | Dr.fone
-date: 2024-10-27T20:37:18.798Z
-updated: 2024-10-30T03:09:47.683Z
+date: 2024-11-10T00:18:55.897Z
+updated: 2024-11-13T21:02:01.444Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -29,16 +29,16 @@ Pokemon Go PvP rank battles are far different from other forms of duel in the ga
 
 There are lots of sensible reasons why you should engage in the Pokemon Go PvP rank game. Some of them are enumerated below. Check out the list to learn more.
 
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137972/21526" target="_top" id="2137972">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137972" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137972/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### It upgrades the gaming experience to a whole new level
 
 ![pokemon go battles](https://images.wondershare.com/drfone/article/2024/02/pokemon-go-pvp-rank-1.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043618/7443" target="_top" id="2043618">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043618" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043618/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Doing the same thing over and over sometimes frustrates us. Therefore, playing Pokemon Go PvP rank battles for a change of scenery is great. It somehow gives us a perfect dose of distraction at times when we feel bored and unmotivated.
 
@@ -52,6 +52,13 @@ Sure. Catching Pokemon in the wild and visiting nearby PokeStops are incredibly 
 
 Pokemon Go is holding various tournaments from time to time. However, some of these events require players to garner a specific rank or rating in Pokemon Go PvP battles. That means you cannot join if you don’t meet a particular rank level required in the game. Therefore, strive harder to participate in PvP games and win as many duels as you can. Your Pokemon PvP ranking is not just a mere group of numbers. It actually defines your eligibility to join prestigious Pokemon Go events. Hence, take it very seriously.
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134501/19576" target="_top" id="2134501">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134501" border="0" alt="https://techidaily.com" width="640" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134501/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2. How to Get Started With Pokemon Go PvP Rank Battles?
 
 Go Battle League is the most basic type of Pokemon Go PvP battle. It is available to level 10 (and above) trainers whose account is in good standing. Generally, the Go Battle League comes in three game formats, namely Great League, Ultra League, and Master League. You can participate in any of them if you have the required type of Pokemon and amount of Combat Power. On a regular day, you’re given a chance to play at least five sets of battles for each league. Take advantage of this opportunity and win as many battles as you can to increase your rank in no time. Yes. Aside from special prizes, you also level up in every battle you win. That’s why you should prepare a lot and make sure to beat your opponent every chance you get.
@@ -63,6 +70,13 @@ Accessing the Go Battle League and participating in your preferred battle is ind
 
 ![poke ball option](https://images.wondershare.com/drfone/article/2024/02/pokemon-go-pvp-rank-3.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105876/7443" target="_top" id="2105876">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105876" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105876/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 - **Step 3:** From there, click **Battle.**
 
 ![battle option](https://images.wondershare.com/drfone/article/2024/02/pokemon-go-pvp-rank-4.jpg)
@@ -72,13 +86,6 @@ Accessing the Go Battle League and participating in your preferred battle is ind
 ![gbl reward track](https://images.wondershare.com/drfone/article/2024/02/pokemon-go-pvp-rank-5.jpg)
 
 - **Step 5:** Finalize your three-member Pokemon team and start battling against another trainer you match with.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151883/7443" target="_top" id="2151883">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151883" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151883/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 3. Explained: Pokemon PvP Ranking in Go Battle League
 
@@ -98,6 +105,13 @@ Do you want to win many Pokemon Go PvP rank battles? Of course, you are. Check o
 - Your priority during the Pokemon Go PvP rank battle is to cause damage to your opponent. It’s a tough job unless you’re aware of the Pokemon’s weaknesses and strengths. Study the type advantages of Pokemon so that you can intelligently strategize during the match.
 - Deploy Charged Attacks as often as possible during the battle. As for your defense, make sure to utilize Protect Shield for the most valuable member of your team.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123731/7443" target="_top" id="2123731">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123731" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123731/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 4. Win Pokemon Go PvP Rank Battles With <u>Wondershare Dr.Fone</u>
 
 It’s fair to say that winning Pokemon Go PvP rank battles relies heavily on how well you prepare. That’s why you should catch as many strong Pokemon as possible beforehand. Sure. Catching Pokemon in the wild is not as easy as falling off a log. You have to travel a distance and wander aimlessly until you come across your target. But did you know that there’s actually a tool that can help you do all this stuff without going outdoors? Yes. Wondershare Dr.Fone has a potent Virtual Location feature capable of modifying your current whereabouts and simulating GPS movements. Do you want to try it out? Here’s a short guide to get you started.
@@ -109,6 +123,13 @@ It’s fair to say that winning Pokemon Go PvP rank battles relies heavily on ho
 
 ![wondershare drfone virtual location](https://images.wondershare.com/drfone/guide/virtual-location-08.png)
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014850/22899" target="_top" id="2014850">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014850" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014850/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 - **Step 5:** Configure the settings according to your liking. Start by specifying your preferred number and type of trips. Then, adjust the movement speed by dragging the slider from left to right. After that, it’s time to commence the simulation. Click **Move Here** to proceed. If you wish to reset your inputs, click **Clear** instead.
 
 ![simulation settings](https://images.wondershare.com/drfone/guide/virtual-location-09.png)
@@ -116,6 +137,13 @@ It’s fair to say that winning Pokemon Go PvP rank battles relies heavily on ho
 - **Step 6:** The simulation will begin in a second. Use the details on the map to monitor the real-time progress. If you wish to halt the movement for a little while, click **Pause.** Should you wish to start all over again, click **Clear** instead and repeat the entire process one more time.
 
 ![movement simulation ongoing](https://images.wondershare.com/drfone/guide/virtual-location-10.png)
+
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1166360/14483" target="_top" id="1166360">
+  <img src="//a.impactradius-go.com/display-ad/14483-1166360" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1166360/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -147,13 +175,6 @@ With WordPress Google Maps, you can create custom maps with high-end markers, pr
 
 ![create custom maps with WordPress google map](https://images.wondershare.com/drfone/2020/2020/word-press-google-maps.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027167/19272" target="_top" id="2027167">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027167" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027167/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 3. Create and Visit Pokemon Stops at any Location by Spoofing your Apple iPhone 7 Plus's GPS
 
 Once you create Pokestop maps, you can now check the location with the best gpx map creator for Pokemon Go – Dr. Fone Virtual Location. It lets you fake the location of Pokestops anywhere you wish to go and visit them remotely. Follow these steps to spoof the location of your Apple iPhone 7 Plus anywhere in the world with Dr. Fone Virtual Location.
@@ -163,13 +184,6 @@ Once you create Pokestop maps, you can now check the location with the best gpx 
 Ensure you have first noted the address of the Pokestop before you embark on visiting it. To continue, connect your Apple iPhone 7 Plus to your computer then open Dr.Fone toolkit. Next, select which Virtual Location module to use and hit the 'Get Started' button.
 
 ![drfone](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/924297/11305" target="_top" id="924297">
-  <img src="//a.impactradius-go.com/display-ad/11305-924297" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i110150.net/i/5597632/924297/11305" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Step 2. Choose your target location
 
@@ -193,13 +207,6 @@ The spoofed location will be the 'Start' point of your route. Now, use one-stop 
 
 Creating Pokemon overworld maps is a paramount step to playing Pokemon Go. This will help you stay ahead of the game and learn how to calculate your moves. One way is to use WP Google maps. However, you will need to upgrade to the Pro version to unleash the hidden gems. You can also opt for a reliable route creator to easily draw your route and spoof iPhone. Dr. Fone Virtual Location works in simple steps to fake the GPS location of choice and let you explore the world from the comfort of your room.
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014851/22899" target="_top" id="2014851">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014851" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014851/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Pokémon Go Cooldown Chart On Apple iPhone 7 Plus
 
 Pokémon Go is a viral game; hence many people try to cheat to achieve high scores and invade others' privacy. The good news is that the Pokémon company is very responsive to preventing and combating such attacks. Cooldown Pokémon go another such feature to deter cheating. So let us discuss what cooldown means.
@@ -211,13 +218,6 @@ What is a cooldown? Cooldown Time restricts to stop a player from repeating mult
 A soft ban is a restriction to discourage people from playing Pokémon Go while driving or moving. The three primary reasons for getting a soft ban are GPS spoofing, sharing accounts, and traveling fast. A soft ban is a temporary ban triggered when the Pokémon determines that the player cannot arrive within a period. So how do you know if you're soft-banned Pokémon go? A soft ban has some consequences, i.e., wasting tickets, no Pokémon guarding towers, no attacking Pokémon defending towers, etc.
 
 What does cool down mean? Cooldown is the time a player has to wait after completing the in-game action. It is calculated from the distance you travel between the triggering activities. It depends on distance travel, and the time for cooldown is also high when the distance is high.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896532/19272" target="_top" id="1896532">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896532" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896532/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 2: What Happens When You Get a Soft Ban?
 
@@ -245,13 +245,6 @@ The cooldown time is proportional to the distance covered by the player. So, whe
 | 1000 km | 1 hour 30 minutes |
 | \>1500 km | 2 hour |
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934188/19272" target="_top" id="1934188">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934188" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934188/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2\. How long must I wait to avoid a softban?
 
 The waiting period for a soft ban is around 12 hours. After this time, if you can try and catch a Pokémon, it means the soft ban is over.
@@ -268,6 +261,19 @@ So, what action of a player can trigger a cooldown? Let us list them here for qu
 - When you feed a gym defender on a screen radar.
 - Gym battles.
 - When a Pokémon flees, if you try to catch it.
+
+<!-- affiliate ads begin -->
+<span id="1938136">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1938136.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1938136">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938136.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938136%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938136/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 4\. Actions that DO NOT trigger cooldown?
 
@@ -323,16 +329,16 @@ Looking for a Pokémon Go Spoofer that's still working? Or thinking about [how t
 
 ![drfone-home](https://images.wondershare.com/drfone/guide/drfone-home.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2027167/19272" target="_top" id="2027167">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027167" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027167/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Connect your phone to the system and click on the "Get Started" button to start the process.
 
 ![virtual-location](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918698/19272" target="_top" id="1918698">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918698" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918698/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 2:** Select a location to teleport
 
@@ -374,16 +380,20 @@ Pokémon Go is a viral and fantastic game. However, sometimes players get into t
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-clips.techidaily.com/new-trending-tweets-triumph-twitters-highest-viewed-video-hits/"><u>[New] Trending Tweets Triumph Twitter's Highest-Viewed Video Hits</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-in-2024-graphics-genesis-radeon-reclaimed/"><u>[Updated] In 2024, Graphics Genesis Radeon Reclaimed</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/find-x7-support-turn-off-screen-lock-by-drfone-android-unlock-android-unlock/"><u>Find X7 support - Turn Off Screen Lock.</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/how-to-fix-pokemon-go-route-not-working-on-apple-iphone-se-2020-drfone-by-drfone-virtual-ios/"><u>How to Fix Pokemon Go Route Not Working On Apple iPhone SE (2020)? | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-watch-avchd-mts-video-on-xiaomi-redmi-k70e-by-aiseesoft-video-converter-play-mts-on-android/"><u>How to watch AVCHD MTS video on Xiaomi Redmi K70E?</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-hacks-to-do-pokemon-go-trainer-battles-for-apple-iphone-7-drfone-by-drfone-virtual-ios/"><u>In 2024, Hacks to do pokemon go trainer battles For Apple iPhone 7 | Dr.fone</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/organic-scenes-essential-free-templates-to-elevate-filmmaking-art/"><u>Organic Scenes Essential, Free Templates to Elevate Filmmaking Art</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/planning-to-use-a-pokemon-go-joystick-on-apple-iphone-13-pro-drfone-by-drfone-virtual-ios/"><u>Planning to Use a Pokemon Go Joystick on Apple iPhone 13 Pro? | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/ultimate-guide-to-catch-the-regional-located-pokemon-for-apple-iphone-15-drfone-by-drfone-virtual-ios/"><u>Ultimate Guide to Catch the Regional-Located Pokemon For Apple iPhone 15 | Dr.fone</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/watching-a-solar-eclipse-safely-with-homemade-camera-obscura-how-to-sciencehub/"><u>Watching a Solar Eclipse Safely with Homemade Camera Obscura - How To | ScienceHub</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/which-pokemon-can-evolve-with-a-moon-stone-for-apple-iphone-12-mini-drfone-by-drfone-virtual-ios/"><u>Which Pokémon can Evolve with a Moon Stone For Apple iPhone 12 mini? | Dr.fone</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-ideal-ios-companions-best-ps2-game-simulators/"><u>[New] Ideal iOS Companions Best PS2 Game Simulators</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-query-unlimited-access-to-media-sharing-in-text-based-apps/"><u>[Updated] 2024 Approved Query Unlimited Access to Media Sharing in Text-Based Apps</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-the-fundamentals-of-income-for-t-series-on-youtube/"><u>2024 Approved The Fundamentals of Income for T-Series on YouTube</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209848358-9781788085403-goddess-rising/"><u>Goddess Rising | Free Book</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-apple-iphone-14-plus-drfone-by-drfone-virtual-ios/"><u>Here are Some Pro Tips for Pokemon Go PvP Battles On Apple iPhone 14 Plus | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-change-google-play-location-on-honor-90-lite-drfone-by-drfone-virtual-android/"><u>How to Change Google Play Location On Honor 90 Lite | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-best-pokemons-for-pvp-matches-in-pokemon-go-for-apple-iphone-13-mini-drfone-by-drfone-virtual-ios/"><u>In 2024, Best Pokemons for PVP Matches in Pokemon Go For Apple iPhone 13 mini | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-catch-or-beat-sleeping-snorlax-on-pokemon-go-for-apple-iphone-se-2020-drfone-by-drfone-virtual-ios/"><u>In 2024, Catch or Beat Sleeping Snorlax on Pokemon Go For Apple iPhone SE (2020) | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-check-if-your-itel-a60s-is-unlocked-by-drfone-android/"><u>In 2024, How To Check if Your Itel A60s Is Unlocked</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-ipogo-will-be-the-new-ispoofer-on-apple-iphone-se-2022-drfone-by-drfone-virtual-ios/"><u>In 2024, iPogo will be the new iSpoofer On Apple iPhone SE (2022)? | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-which-pokemon-can-evolve-with-a-moon-stone-for-apple-iphone-12-drfone-by-drfone-virtual-ios/"><u>In 2024, Which Pokémon can Evolve with a Moon Stone For Apple iPhone 12? | Dr.fone</u></a></li>
+<li><a href="https://article-posts.techidaily.com/jumpstart-to-understanding-av1-codecs-for-2024/"><u>Jumpstart to Understanding AV1 Codecs for 2024</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/the-most-useful-tips-for-pokemon-go-ultra-league-on-apple-iphone-14-pro-drfone-by-drfone-virtual-ios/"><u>The Most Useful Tips for Pokemon Go Ultra League On Apple iPhone 14 Pro | Dr.fone</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/understanding-gpts-built-in-extensions/"><u>Understanding GPT's Built-In Extensions</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-apple-iphone-8-drfone-by-drfone-virtual-ios/"><u>Will Pokémon Go Ban the Account if You Use PGSharp On Apple iPhone 8 | Dr.fone</u></a></li>
 </ul></div>
 

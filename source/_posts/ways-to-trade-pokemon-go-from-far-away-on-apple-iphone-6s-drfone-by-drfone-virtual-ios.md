@@ -1,7 +1,7 @@
 ---
 title: Ways to trade pokemon go from far away On Apple iPhone 6s? | Dr.fone
-date: 2024-10-26T18:32:15.295Z
-updated: 2024-10-29T17:18:01.052Z
+date: 2024-11-08T16:02:36.084Z
+updated: 2024-11-13T23:08:12.068Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -29,6 +29,13 @@ Dr.Fone - Virtual Location, easy-to-use software that will enable you to set any
 - **Set the speed to mock GPS location:** While playing virtual reality location-based games, you can also set the pace of movement of your GPS. This will help you to become better at the game!
 - **Joystick simulated motion:** you can use the in-app joystick for simulating motion and moving around on the map.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047346/19272" target="_top" id="2047346">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047346" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047346/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Step-by-step Tutorial
 
 **Step 1: Launch the Tool**
@@ -47,6 +54,13 @@ Now on the interface, you'd see a map with your location highlighted on it. If y
 
 ![virtual location 03](https://images.wondershare.com/drfone/guide/virtual-location-03.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137413/7443" target="_top" id="2137413">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137413" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137413/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 4: Activate Teleport Mode**
 
 Subsequently, activate the "teleport mode" by clicking the icon shown in the image. Now enter the location to which you want your fake location to be set to in the upper left field. Now click on "go"
@@ -60,10 +74,10 @@ Upon clicking on "go", a pop-up will appear showing you the distance of the loca
 ![virtual location 05](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135400/19272" target="_top" id="2135400">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135400" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037351/7443" target="_top" id="2037351">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037351" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135400/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037351/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: Which pokemon can you evolve with trading?
@@ -81,13 +95,6 @@ Evolution is one of the most important aspects of the game Pokemon go. You can e
 
 However, trading Pokemons in Pokemon go could be slightly tricky without having at least one close friend in the games who is also of a considerable level. Only then, you will be able to evolve your pokemon by trading.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136623/26400" target="_top" id="2136623">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136623" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136623/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 3: How to do the special trade?
 
 You need a Special Trade whenever you wish to trade a legendary Pokemon or a shiny Pokemon in Pokemon Go. These pokemon are very rare to find and hence you won’t want to trade these rare Pokemons very often, however, you can trade a rare Pokemon only once per day. To trade a rare Pokemon would also need to be a Great or Best friend, two of the highest levels of friendship in the game Pokemon go. To increase your friendship level you need to battle and trade more and more. It'll take quite a bit of time to reach that stature of a friendship level. This could cost as much as one million, this amount will however decrease with increasing friendship levels.
@@ -103,16 +110,10 @@ If you have been playing Pokemon PvP battle leagues, then you might already know
 ![pokemon go pvp tier list banner](https://images.wondershare.com/drfone/2020/pokemon-go-pvp-tier-list-banner.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1983549">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983549.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983549">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983549.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983549%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983549/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2118314/7443" target="_top" id="2118314">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118314" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118314/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 1: How are Pokemon Go PvP Tier Lists Evaluated?
@@ -133,31 +134,24 @@ Before you go through our carefully calculated great, ultra, and master league P
 
 Since Pokemon Go PvP matches are based on different leagues, I have also come up with Pokemon ultra, great, and master league tier lists to help you pick the most powerful Pokemon in every match.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettifr.pxf.io/c/5597632/2145082/17095" target="_top" id="2145082">
+  <img src="//a.impactradius-go.com/display-ad/17095-2145082" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145082/17095" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Pokemon Go Great League Tier List
 
 In Great League matches, the maximum CP of any Pokemon can be 1500. Considering this in mind, I have picked the following Pokemons from tier 1 (most powerful) to tier 5 (least powerful).
 
 <table><tbody><tr><td>Tier 1 (5/5 rating)</td><td>Altaria, Skarmory, Azumarill, and Glarian Stunfisk</td></tr></tbody><tbody><tr><td>Tier 2 (4.5/5 rating)</td><td>Umbreon, Swampert, Lanturn, Stunfisk, Dexoxys, Venusaur, Haunter, Jirachi, Lapras, Mew, and Whiscash</td></tr><tr><td>Tier 3 (4/5 rating)</td><td>Ivysaur, Uxie, Alolan Ninetales, Scrafty, Mawile, Wigglytuff, Clefable, Marshtomp, and Skuntank</td></tr><tr><td>Tier 4 (3.5/5 rating)</td><td>Qwilfish, Dustox, Glalie, Raichu, Dusclops, Serperior, Minun, Chandelure, Venomoth, Bayleef, and Golbat</td></tr><tr><td>Tier 5 (3/5 rating)</td><td>Pidgeot, Slowking, Garchomp, Golduck, Entei, Crobat, Jolteon, Duosion, Buterfree, and Sandslash</td></tr></tbody></table>
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005184/22899" target="_top" id="2005184">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005184" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005184/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Pokemon Go Ultra League Tier List
 
 You might already know that in the ultra league, we are allowed to pick Pokemons of up to 2500 CP. Therefore, you can pick Tier 1 and 2 Pokemons and avoid the low-level Tier 4 and 5 Pokemons.
 
 <table><tbody><tr><td>Tier 1 (5/5 rating)</td><td>Registeel and Giratina</td></tr></tbody><tbody><tr><td>Tier 2 (4.5/5 rating)</td><td>Snorlax, Alolan Muk, Togekiss, Poliwrath, Gyarados, Steelix, and Blastoise</td></tr><tr><td>Tier 3 (4/5 rating)</td><td>Regice, Ho-Oh, Meltmetal, Suicune, Kingdra, Primeape, Cloyster, Kangaskhan, Golem, and Virizion</td></tr><tr><td>Tier 4 (3.5/5 rating)</td><td>Crustle, Glaceon, Piloswine, Latios, Jolteon, Sawk, Leafeon, Braviary, and Mesprit</td></tr><tr><td>Tier 5 (3/5 rating)</td><td>Celebi, Scyther, Latias, Alomomola, Durant, Hypno, Muk, and Roserade</td></tr></tbody></table>
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528696/16446" target="_top" id="1528696">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528696" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528696/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Pokemon Go Master League Tier List
 
@@ -181,6 +175,13 @@ As you can see from the top tier Great league Pokemon Go list that the tier 1 an
 
 There you go! I’m sure that after going through this Pokemon Go PvP tier list, you would be able to pick the strongest Pokemons in every league match. If you don’t have Tier 1 and 2 Pokemons already, then I would recommend using Dr.Fone – Virtual Location (iOS). Using it, you can catch any Pokemon remotely from the comfort of your home without jailbreaking your device.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868495/19272" target="_top" id="1868495">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868495" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868495/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## The Best iSpoofer Alternative to Try On Apple iPhone 6s
 
 _**“Is iSpoofer for Pokemon Go not working anymore? Can someone tell me how to spoof my iPhone X location now when the iSpoofer tool is shut down?”**_
@@ -193,13 +194,6 @@ If you have been using iSpoofer for a while to change your Apple iPhone 6s locat
 
 Earlier, iSpoofer used to be one of the most popular apps to change our location on Pokemon Go. Sadly, the application is no longer working and you can’t even do iSpoofer download from its website.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137207/26400" target="_top" id="2137207">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137207" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137207/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Why did iSpoofer shutdown?
 
 - The use of iSpoofer for Pokemon Go is against the terms of the game (as it doesn’t allow the use of third-party apps).
@@ -209,6 +203,13 @@ Earlier, iSpoofer used to be one of the most popular apps to change our location
 
 ![pokemon go account warning](https://drfone.wondershare.com/2020/pokemon-go-account-warning.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049369/7443" target="_top" id="2049369">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049369" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049369/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Will iSpoofer work again?
 
 Most likely, the chances of iSpoofer working again are pretty bleak. This is because Pokemon Go users were the major target customers of the product. Since Niantic has blocklisted iSpoofer a while back, Pokemon Go players can no longer use it. Therefore, it is better to look for a reliable iSpoofer alternative instead.
@@ -216,10 +217,10 @@ Most likely, the chances of iSpoofer working again are pretty bleak. This is bec
 ![ispoofer not working](https://drfone.wondershare.com/2020/ispoofer-not-working.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915870/19272" target="_top" id="1915870">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2137412/7443" target="_top" id="2137412">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137412" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915870/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137412/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: The Best iSpoofer Alternative to Change your Apple iPhone 6s Location
@@ -294,13 +295,6 @@ That’s it! Now you can launch the mock location app and enter the address or c
 
 ![fake location on lexa](https://drfone.wondershare.com/2020/fake-location-on-lexa.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528688/16446" target="_top" id="1528688">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528688" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528688/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 There you go! After reading this post, I’m sure that you would be able to know about the iSpoofer use for Pokemon Go. Since iSpoofer has been shut down, you can no longer use it to change your Apple iPhone 6s location. Therefore, you can consider [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) (iOS & Android) as an ideal iSpoofer alternative for your device. In just a few clicks, you can change the location of your Apple iPhone 6s anywhere you like and that too without jailbreaking your phone.
 
 <ins class="adsbygoogle"
@@ -317,19 +311,21 @@ There you go! After reading this post, I’m sure that you would be able to know
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-in-2024-missing-icon-reclaim-your-facebook-watch-icon/"><u>[New] In 2024, Missing Icon? Reclaim Your Facebook Watch Icon</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-top-picks-streaming-tunes-directly-from-youtuberingtones/"><u>2024 Approved Top Picks Streaming Tunes Directly From YoutubeRingtones</u></a></li>
-<li><a href="https://blog-min.techidaily.com/adquiere-el-sistema-de-extraccion-y-copia-ultimate-de-winx-dvd-ripper-platinium-incluye-actualizaciones-periodicas-sin-coste-adicional/"><u>Adquiere El Sistema De Extracción Y Copia Ultimate De WinX DVD Ripper Platinium: Incluye Actualizaciones Periódicas Sin Coste Adicional</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/android-and-iphones-leading-facelift-technology/"><u>Android & iPhone's Leading Facelift Technology</u></a></li>
-<li><a href="https://win11.techidaily.com/circumnavigating-the-challenges-of-itunes-on-windows-pcs/"><u>Circumnavigating the Challenges of iTunes On Windows PCs</u></a></li>
-<li><a href="https://discover-exceptional.techidaily.com/free-administrative-ui-kit-with-react-and-material-ui-official-template-from-creative-tim-for-modern-web-apps/"><u>Free Administrative UI Kit with React & Material-UI - Official Template From Creative Tim for Modern Web Apps</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/how-can-i-catch-the-regional-pokemon-without-traveling-on-apple-iphone-12-drfone-by-drfone-virtual-ios/"><u>How Can I Catch the Regional Pokémon without Traveling On Apple iPhone 12 | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/how-to-fix-pokemon-go-route-not-working-on-apple-iphone-14-plus-drfone-by-drfone-virtual-ios/"><u>How to Fix Pokemon Go Route Not Working On Apple iPhone 14 Plus? | Dr.fone</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/how-to-fix-unresponsive-touch-screen-on-poco-f5-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Fix Unresponsive Touch Screen on Poco F5 5G | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-apple-iphone-13-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, 9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Apple iPhone 13 Pro | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/pokemon-go-error-12-failed-to-detect-location-on-apple-iphone-6s-plus-drfone-by-drfone-virtual-ios/"><u>Pokemon Go Error 12 Failed to Detect Location On Apple iPhone 6s Plus? | Dr.fone</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/quick-diy-tricks-for-professional-quality-homemade-films/"><u>Quick DIY Tricks for Professional-Quality Homemade Films</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/the-most-useful-tips-for-pokemon-go-ultra-league-on-apple-iphone-se-2020-drfone-by-drfone-virtual-ios/"><u>The Most Useful Tips for Pokemon Go Ultra League On Apple iPhone SE (2020) | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/ultimate-guide-to-get-the-meltan-box-pokemon-go-for-apple-iphone-6s-drfone-by-drfone-virtual-ios/"><u>Ultimate guide to get the meltan box pokemon go For Apple iPhone 6s | Dr.fone</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-step-by-step-journey-to-captivating-hdr-portraits/"><u>[New] 2024 Approved Step-by-Step Journey to Captivating HDR Portraits</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-mastering-iphones-vr-video-viewing/"><u>[New] Mastering iPhone's VR Video Viewing</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-mastering-motion-blur-aadobe-photoshop-tutorial/"><u>[New] Mastering Motion Blur AAdobe Photoshop Tutorial</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/new-wacky-world-of-webinars-top-10-hilarious-tiktok-challenges/"><u>[New] Wacky World of Webinars Top 10 Hilarious TikTok Challenges</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-the-key-to-combining-linktree-and-tiktok-biographies/"><u>[Updated] The Key to Combining Linktree and TikTok Biographies</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-slimmed-down-cloud-keeping-at-low-cost-high-space/"><u>2024 Approved Slimmed-Down Cloud Keeping at Low Cost, High Space</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/a-working-guide-for-pachirisu-pokemon-go-map-on-apple-iphone-6-drfone-by-drfone-virtual-ios/"><u>A Working Guide For Pachirisu Pokemon Go Map On Apple iPhone 6 | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-here-are-different-ways-to-find-pokemon-go-trainer-codes-to-add-to-your-account-on-apple-iphone-14-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, Here are Different Ways to Find Pokemon Go Trainer Codes to Add to Your Account On Apple iPhone 14 Plus | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-here-are-some-of-the-best-pokemon-discord-servers-to-join-on-apple-iphone-14-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, Here are Some of the Best Pokemon Discord Servers to Join On Apple iPhone 14 Plus | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-is-mega-mewtwo-the-strongest-pokemon-on-apple-iphone-6s-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, Is Mega Mewtwo The Strongest Pokémon On Apple iPhone 6s Plus? | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-mastering-android-device-manager-the-ultimate-guide-to-unlocking-your-infinix-smart-7-device-by-drfone-android/"><u>In 2024, Mastering Android Device Manager The Ultimate Guide to Unlocking Your Infinix Smart 7 Device</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-pokemon-go-error-12-failed-to-detect-location-on-apple-iphone-x-drfone-by-drfone-virtual-ios/"><u>In 2024, Pokemon Go Error 12 Failed to Detect Location On Apple iPhone X? | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/life360-circle-everything-you-need-to-know-on-honor-x50-drfone-by-drfone-virtual-android/"><u>Life360 Circle Everything You Need to Know On Honor X50 | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/most-asked-questions-about-pokemon-go-battle-league-rewards-on-apple-iphone-14-pro-max-drfone-by-drfone-virtual-ios/"><u>Most Asked Questions about Pokemon Go Battle League Rewards On Apple iPhone 14 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/pioneering-promotion-in-the-metaverse-for-2024/"><u>Pioneering Promotion in the Metaverse for 2024</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/repair-playback-android-videos/"><u>Repair Playback: Android Videos</u></a></li>
 </ul></div>
 
