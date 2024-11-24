@@ -1,7 +1,7 @@
 ---
 title: Will Pokémon Go Ban the Account if You Use PGSharp On Apple iPhone 7 Plus | Dr.fone
-date: 2024-11-12T02:21:18.872Z
-updated: 2024-11-14T17:52:38.571Z
+date: 2024-11-23T13:12:57.496Z
+updated: 2024-11-24T07:56:40.368Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -29,6 +29,10 @@ The Niantic, the developer of Pokémon Go, is particular about the safety of the
 
 ![pokemon go ban](https://images.wondershare.com/drfone/article/2023/05/pgsharp-ban.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 The following are the reasons that may cause to ban your account:
 
 - Engaging in harassment against any player in the game
@@ -54,19 +58,24 @@ Now, when it gets installed, you can opt for a free trial or paid option. For a 
 
 ![pgsharp plan](https://images.wondershare.com/drfone/article/2023/05/pgsharp-ban-1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 To get a free beta key, go to the official site of PGSharp and look for a beta key. You may see an “out of stock” message, which means that the server has been changed. Now, you have to check the site for the beta key again. It is quite difficult to find the beta key in the first attempt.
 
 ![drfone](https://images.wondershare.com/drfone/article/2020/09/PGSharp-ban-4.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Once you get the key, you can click on finish and can make payment in virtual currency. Also, you can fake your personal details as it is a beta key.
 
 ![drfone](https://images.wondershare.com/drfone/article/2020/09/PGSharp-ban-5.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137973/21526" target="_top" id="2137973">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137973" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137973/21526" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Now, once you got the beta key, fill it in the login details to use the PGSharp. Now, you are ready to spoof location with PGSharp on Pokémon Go.
@@ -101,9 +110,17 @@ To use it, you will need to install it on your device from the official site or 
 
 ![drfone](https://images.wondershare.com/drfone/article/2022/11/pgsharp-ban.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 Pokemon Go is a very interesting game and brings a lot of fun while playing. With reliable and trusted apps like PGsharp for android, you can spoof it without a ban. For iOS, [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) app is best for fake GPS without a ban. Try these apps now to get more fun in the game without getting a ban.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Which Pokémon can Evolve with a Moon Stone For Apple iPhone 7 Plus?
 
@@ -123,22 +140,12 @@ The simplest way to get a Moon Stone in Pokémon Sword and Shield is to go to La
 
 Moon Stone makes certain species of Pokémon evolve. To evolve a Pokémon using Moon Stone in Pokémon Sword and Shield, simply open the bag and go to the "Other Items" section. Finally, use Moon Stone in any of the following Pokémon.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880972/19272" target="_top" id="1880972">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880972" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880972/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 1\. Nidorina
 
 Nidorina is a poison type Pokémon that was introduced in Generation I. it looks like a rabbit with blue skin and dark spots around the body. Its natural abilities are poison point, rivalry, and hustle. As of level 16, Nidorona evolved from Nidoran. With the use of Moon Stone, Nidorina can evolve into Nidoqueen.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902289/19272" target="_top" id="1902289">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902289" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902289/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 2\. Nidorino
@@ -161,19 +168,6 @@ This is a normal type Pokémon that was introduced in Generation II. This Pokém
 
 Munna is a psychic-type Pokémon that was introduced in Generation V. It is a small Pokémon with a pink round body having purple flower painting on its back. With the use of Moon Stone, Munna evolves into a Musharna.
 
-<!-- affiliate ads begin -->
-<span id="1983473">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983473.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983473">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983473.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983473%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983473/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2. Tricks and Hacks to Get Moon Stone Pokémon
 
 As you have seen above, getting a Moon Stone is not an easy ride. It involves lots of trials and there is no guarantee to get it. But what tricks and hacks can you incorporate to make your hunt seamless? The following are some of the plausible tricks that you can use to easily grab a Moon Stone and add it to your Pokedex.
@@ -192,13 +186,6 @@ It goes without question that Dr. Fone Virtual Location is the best location spo
 
 ![virtual location 01](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896510/19272" target="_top" id="1896510">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896510" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896510/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 3.** The program will display a new page with three icons at the top-right. Click the third icon to take you to the teleport mode. Again enter the place you want to teleport to in the text field at the top-left of this same window and then hit "Go."
 
 ![virtual location 04](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
@@ -206,13 +193,6 @@ It goes without question that Dr. Fone Virtual Location is the best location spo
 **Step 4.** Click "Move Here" from the pop-up that follows to teleport to the location you provided.
 
 ![virtual location 05](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144282/7443" target="_top" id="2144282">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144282" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144282/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 2\. Use Android Spoofing Tool- Pgsharp
 
@@ -238,13 +218,6 @@ The Niantic, the developer of Pokémon Go, is particular about the safety of the
 
 ![pokemon go ban](https://images.wondershare.com/drfone/article/2023/05/pgsharp-ban.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006914/19272" target="_top" id="2006914">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006914" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006914/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 The following are the reasons that may cause to ban your account:
 
 - Engaging in harassment against any player in the game
@@ -254,6 +227,10 @@ The following are the reasons that may cause to ban your account:
 
 If you think your account may get terminated, you should keep the terms and conditions of the game in mind. However, you can spoof location smartly with safe fake GPS like PGSharp for Android and Dr.Fone virtual location iOS.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2: Thumb Rule for spoofing with PGSharp
 
 Once you decided to spoof Pokémon Go, you need to install a reliable and secure spoofing app. Also, you should not use your main account while spoofing. With PGSharp, you need to create a PTC account to safely spoof the game.
@@ -261,6 +238,10 @@ Once you decided to spoof Pokémon Go, you need to install a reliable and secure
 Do not spoof or change location frequently, as this may bring you in the radar of Niantic, and your account may get banned.
 
 Use an app with a real map-like interface that is difficult to notice from Niantic.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2.1 Spoof Pokémon with PGSharp without a ban
 
@@ -298,6 +279,10 @@ Spoofing is not legal, thus to spoof Pokemon Go, you need to use the PTC account
 
 Also, make sure to uninstall the official account to spoof the location to help you catch more Pokémon in less time.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 4: Why Opt Dr.Fone Virtual Location?
 
 Spoofing on the iPhone is a little more difficult than on Android. So, if you own an iPhone, you can use [Dr.Fone - Virtual Location app](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) to fake location. It is easy to use and easy to install. Further, this app is 100% safe to install on the iPhone as it causes no threat to your device or data.
@@ -309,19 +294,6 @@ Dr.Fone - Virtual Location also saves you from a ban and doesn’t require jailb
 To use it, you will need to install it on your device from the official site or click the "_Try It Free_" button below directly. Once installed, connect your Apple iPhone 7 Plus to your computer and click on get the started icon. Now you have the world map-like interface where you can search for any desired location to spoof. So, all in all, it is very easy to use for a novice too. The best part is that it causes no ban like other unsafe spoofing apps.
 
 ![drfone](https://images.wondershare.com/drfone/article/2022/11/pgsharp-ban.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1983552">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983552.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983552">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983552.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983552%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983552/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -341,20 +313,18 @@ Pokemon Go is a very interesting game and brings a lot of fun while playing. Wit
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-helps.techidaily.com/new-2024-approved-optimizing-display-youtubes-zoom-mastery/"><u>[New] 2024 Approved Optimizing Display YouTube's Zoom Mastery</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-2024-approved-uncover-your-photos-true-colors-with-picart/"><u>[New] 2024 Approved Uncover Your Photo's True Colors with PicArt</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-flashfreeze-video-cut-out-instruction/"><u>[New] In 2024, FlashFreeze Video Cut-Out Instruction</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-rookie-recommendations-simple-profitable-youtube-purchases/"><u>[Updated] In 2024, Rookie Recommendations Simple, Profitable YouTube Purchases</u></a></li>
-<li><a href="https://howto.techidaily.com/bricked-your-tecno-spark-go-2023-heres-a-full-solution-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Bricked Your Tecno Spark Go (2023)? Heres A Full Solution | Dr.fone</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-fix-xiaomi-14-find-my-friends-no-location-found-drfone-by-drfone-virtual-android/"><u>How to Fix Xiaomi 14 Find My Friends No Location Found? | Dr.fone</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-photos-from-infinix-note-30-vip-by-fonelab-android-recover-photos/"><u>How to recover deleted photos from Infinix Note 30 VIP.</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-apple-iphone-12-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, 9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Apple iPhone 12 Pro | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-apple-iphone-11-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, Can I use iTools gpx file to catch the rare Pokemon On Apple iPhone 11 Pro Max | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-apple-iphone-7-drfone-by-drfone-virtual-ios/"><u>In 2024, Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Apple iPhone 7 | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-list-of-pokemon-go-joysticks-on-apple-iphone-7-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, List of Pokémon Go Joysticks On Apple iPhone 7 Plus | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-what-pokemon-evolve-with-a-dawn-stone-for-apple-iphone-se-2022-drfone-by-drfone-virtual-ios/"><u>In 2024, What Pokémon Evolve with A Dawn Stone For Apple iPhone SE (2022)? | Dr.fone</u></a></li>
-<li><a href="https://win-answers.techidaily.com/seamlessly-embedding-youtube-content-in-powerpoint-slideshow-tips-and-techniques/"><u>Seamlessly Embedding YouTube Content in PowerPoint Slideshow - Tips & Techniques</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-apple-iphone-6s-drfone-by-drfone-virtual-ios/"><u>The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Apple iPhone 6s | Dr.fone</u></a></li>
-<li><a href="https://program-issues.techidaily.com/troubleshooting-complete-solutions-to-gta-lag-disruptions-and-enhancing-play-quality/"><u>Troubleshooting Complete: Solutions to GTA Lag, Disruptions & Enhancing Play Quality</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/2024-approved-free-to-use-vimeo-tips-to-master-your-videos/"><u>2024 Approved Free-to-Use Vimeo Tips to Master Your Videos</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/demystifying-chatgpt-and-its-impactful-applications-in-the-realm-of-generative-artificial-intelligence/"><u>Demystifying ChatGPT & Its Impactful Applications in the Realm of Generative Artificial Intelligence</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/detailed-guide-of-ispoofer-for-pogo-installation-on-apple-iphone-15-drfone-by-drfone-virtual-ios/"><u>Detailed guide of ispoofer for pogo installation On Apple iPhone 15 | Dr.fone</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/enhancing-visual-quests-hunt-for-pristine-pexels-images-for-2024/"><u>Enhancing Visual Quests Hunt for Pristine Pexels Images for 2024</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/failed-to-play-hevc-files-on-13-ultra-by-aiseesoft-video-converter-play-hevc-video-on-android/"><u>Failed to play HEVC files on 13 Ultra</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-fake-android-location-without-rooting-for-your-oppo-find-x7-drfone-by-drfone-virtual/"><u>In 2024, Fake Android Location without Rooting For Your Oppo Find X7 | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-apple-iphone-6-drfone-by-drfone-virtual-ios/"><u>In 2024, Here are Some Pro Tips for Pokemon Go PvP Battles On Apple iPhone 6 | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-apple-iphone-8-drfone-by-drfone-virtual-ios/"><u>In 2024, Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Apple iPhone 8 | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-preparation-to-beat-giovani-in-pokemon-go-for-apple-iphone-14-drfone-by-drfone-virtual-ios/"><u>In 2024, Preparation to Beat Giovani in Pokemon Go For Apple iPhone 14 | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-which-pokemon-can-evolve-with-a-moon-stone-for-apple-iphone-15-drfone-by-drfone-virtual-ios/"><u>In 2024, Which Pokémon can Evolve with a Moon Stone For Apple iPhone 15? | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-why-cant-i-install-the-ipogo-on-apple-iphone-xs-drfone-by-drfone-virtual-ios/"><u>In 2024, Why cant I install the ipogo On Apple iPhone XS | Dr.fone</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/top-10-premier-news-aggregator-platforms/"><u>Top 10 Premier News Aggregator Platforms</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/troubleshooting-steps-for-when-youtube-mp3-fails-to-work/"><u>Troubleshooting Steps for When YouTube-MP3 Fails to Work</u></a></li>
 </ul></div>
 

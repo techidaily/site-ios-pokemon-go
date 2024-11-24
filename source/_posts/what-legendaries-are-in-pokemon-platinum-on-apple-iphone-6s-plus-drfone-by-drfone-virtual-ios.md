@@ -1,7 +1,7 @@
 ---
 title: What Legendaries Are In Pokemon Platinum On Apple iPhone 6s Plus? | Dr.fone
-date: 2024-11-09T23:57:01.820Z
-updated: 2024-11-15T01:01:25.268Z
+date: 2024-11-20T00:43:55.295Z
+updated: 2024-11-24T09:01:21.053Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -63,6 +63,10 @@ There are about 18 platinum legendaries Pokemon that you can obtain per game car
 
 ![Platinum legendaries 6](https://images.wondershare.com/drfone/Platinum-legendaries-6.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **14\. Regice:** With Regigigas on your team, you can access to a special room located in Mt. Coronet. On the exit to Route 216, you will see a cave names Iceberg Ruins. Enter in the cave with Regigigas and reach out to Iceberg Ruins, where Regice will battle you. Regice is located at level 30.
 
 **15\. Registeel:** Located in the Iron Ruins cave on Iron Island, Registeel is accessible only if you have Regigigas on your team. Enter the cave with a Metal Coat, and as you go up to the statue in the cave, Registeel – the level 30 Pokemon – will attack.
@@ -87,6 +91,10 @@ Make sure you get these codes only from reliable websites or sources. Otherwise,
 
 ![Platinum legendaries 8](https://images.wondershare.com/drfone/Platinum-legendaries-8.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2.2 Location Spoofing with Dr. Fone Virtual Location
 
 [Dr.Fone - Virtual Location (iOS/Android)](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/). With this tool, you can teleport your Apple iPhone 6s Plus GPS to any other desired place worldwide with only a few clicks. This reliable application sets up a virtual GPS location. Therefore, all other location-based apps, including Pokemon Platinum Version, installed on your device, believe that you are actually there. Use this tool to capture platinum legendaries.
@@ -98,6 +106,10 @@ For this illustration, we will use using Dr.fone to see how to iPhone GPS spoofi
 **Step 1:** Load the app on your iOS device. For this purpose, you have to go to Dr.fone official website. Next, download and install the app on your smartphone. Next, connect your iOS device with your PC.
 
 ![Platinum legendaries 9](https://images.wondershare.com/drfone/guide/drfone-home.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 2:** Tap the ‘Virtual Location’ option at Dr.Fone home screen to change the location of your device. You will see another window opened up on your phone’s screen.
 
@@ -111,13 +123,6 @@ For this illustration, we will use using Dr.fone to see how to iPhone GPS spoofi
 
 ![Platinum legendaries 12](https://images.wondershare.com/drfone/guide/virtual-location-06.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068426/7443" target="_top" id="2068426">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068426" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068426/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 5:** For GPS location spoofing on your Apple iPhone 6s Plus map, open your current location. You will see that your virtual address is your current location now. It’s because Dr.Fone has successfully modified the location setting of your device, not just the game.
 
 ![Platinum legendaries 13](https://images.wondershare.com/drfone/guide/virtual-location-07.png)
@@ -125,10 +130,7 @@ For this illustration, we will use using Dr.fone to see how to iPhone GPS spoofi
 Now, enjoy playing Pokemon Platinum and capture more Legendary Pokemon to level up in the game.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2052059/7443" target="_top" id="2052059">
-  <img src="//a.impactradius-go.com/display-ad/7443-2052059" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052059/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3: How to get Mewtwo in Pokemon Platinum?
@@ -141,16 +143,13 @@ Frankly, Mewtwo can be located only in the Cerulean Cave that further locates in
 
 According to some users, you can get Mewtwo with Pokemon Fire Red or Leaf Green. With these in hand, you can obtain Mewtwo in cerulean cave once you have defeated the Elite 4.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915825/19272" target="_top" id="1915825">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915825" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915825/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Conclusion
 
 Hopefully, these comprehensive guides help you learn about all legendaries in Platinum. Advisably, using the location spoofing with a reliable app like [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) can be a great way to capture more legendary Pokemon in a much easier way.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Where Is the Best Place to Catch Dratini On Apple iPhone 6s Plus
 
@@ -196,6 +195,10 @@ If the Dratini nest migrates, it can still come back in the future. You should a
 
 Dratini nests will migrate on alternate Thursdays at midnight. The nest migrations are random, so make sure that you visit and hit them many times over the two weeks in order to get the most Dratini that you can.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 4: How to increase the possibility of earning Pokémon Go Dratini?
 
 As mentioned earlier, Dratini can be found in certain places around the world. If you live outside these regions, you cannot be able to get Dratini. The best way to go about getting Dratini in such cases is to virtually relocate your device. This means that you can take your device to Tokyo nest sites even if you live in Africa.
@@ -214,13 +217,6 @@ The best app to use for teleportation is [Dr.Fone - Virtual Location (iOS)](http
 On the official Dr.Fone page, download and install Dr.Fone on your computer or you can click the Download button below to download it directly. Launch it and then go to the Home screen and click on “Virtual Location”.
 
 ![drfone home](https://images.wondershare.com/drfone/guide/drfone-home.png)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135353/19272" target="_top" id="2135353">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135353" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135353/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 After entering the virtual location module, connect your iOS device to your computer using an original USB cable.
 
@@ -260,6 +256,10 @@ Dratini is one of the most friendly but rare Pokémon to get. It can evolve from
 
 When you need to, you can teleport your device to an area where Dratini is popular using [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) (iOS). Use the Dratini nest maps to find Dratini, and then visit the area or teleport there.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 4 solution to get rid of pokemon fail to detect location On Apple iPhone 6s Plus
 
 Pokémon go failed to detect location is an error that is frequently faced by the players and there are several reasons for it. From device to server-based all the reasons amount to the error and therefore the right solution must be applied to get the work done with ease and perfection. The location-based attribute of the game is something that has been one of the best features. It is the sole reason for which the game is not only popular but also one of the most downloaded games of all time. It is therefore important to overcome fail to detect location error in this game.
@@ -279,6 +279,10 @@ The two main and frequent errors that are related to the Pokémon are error 11 a
 1. The Mock location on the Apple iPhone 6s Plus device is enabled can lead to failed to detect location GPS joystick or error 12 on the Apple iPhone 6s Plus device. It is therefore advised to make sure that the location in question is disabled to get the gaming experience back on track.
 2. The other and the most common reason for the error 12 is the fact that the GPS signals are not received by the Apple iPhone 6s Plus device. It also leads to Pokémon failed to detect location error and will make sure that you get all the enjoyment for which the game has been downloaded.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2: 3 solutions to fix Pokémon fails to detect the location
 
 ### Solution 1: Turn on GPS
@@ -289,23 +293,9 @@ This is the most common method that can be applied to make sure that the game wo
 
 ![Pokemon failed to detect location 1](https://images.wondershare.com/drfone/2020/2020/Pokemon_failed_to_detect_location_1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151856/7443" target="_top" id="2151856">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151856" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151856/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **ii.** Click on the location to turn it ON.
 
 ![Pokemon failed to detect location 2](https://images.wondershare.com/drfone/2020/2020/Pokemon_failed_to_detect_location_2.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Solution 2: Setting Permissions for the application
 
@@ -314,13 +304,6 @@ If the right permissions are not given to the application then it can also lead 
 **i.** Go to Settings > Applications > Apps to access the permissions for the application.
 
 ![Pokemon failed to detect location3](https://images.wondershare.com/drfone/2020/2020/Pokemon_failed_to_detect_location_3.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012429/19272" target="_top" id="2012429">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012429" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012429/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **ii.** Go to Pokémon Go > Permissions > Turn on location to get the issue resolved.
 
@@ -343,6 +326,10 @@ If the right permissions are not given to the application then it can also lead 
 **iv.** Clear data and cache and restart the Apple iPhone 6s Plus device to get the issue fixed.
 
 ![Pokemon failed to detect location 8](https://images.wondershare.com/drfone/2020/2020/Pokemon_failed_to_detect_location_8.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3: Dr.Fone Virtual location change your location in one click
 
@@ -376,6 +363,10 @@ The third icon on the upper right corner is to be pressed to teleport. In the ba
 
 ![virtual location 04](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 5: Move to a teleported location**
 
 Click on move here to get to the location that has been selected.
@@ -387,13 +378,6 @@ Click on move here to get to the location that has been selected.
 Your iPhone will show the same location as on the program and this finishes the process.
 
 ![virtual location 06](https://images.wondershare.com/drfone/guide/virtual-location-06.png)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/1062450/7443" target="_top" id="1062450">
-  <img src="//a.impactradius-go.com/display-ad/7443-1062450" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062450/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -413,14 +397,18 @@ Dr. Fone's virtual location is the best and the most advanced program that will 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-approaches.techidaily.com/updated-trailblazing-technique-use-apple-watch-for-mac/"><u>[Updated] Trailblazing Technique Use Apple Watch for Mac</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-story-lore-who-are-the-premier-channels/"><u>2024 Approved Story Lore Who Are the Premier Channels?</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/here-are-different-ways-to-find-pokemon-go-trainer-codes-to-add-to-your-account-on-apple-iphone-8-drfone-by-drfone-virtual-ios/"><u>Here are Different Ways to Find Pokemon Go Trainer Codes to Add to Your Account On Apple iPhone 8 | Dr.fone</u></a></li>
-<li><a href="https://win-answers.techidaily.com/how-to-fix-discord-crashing/"><u>How To Fix Discord Crashing</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-pokemon-go-error-12-failed-to-detect-location-on-apple-iphone-14-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, Pokemon Go Error 12 Failed to Detect Location On Apple iPhone 14 Plus? | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-ultimate-guide-to-catch-the-regional-located-pokemon-for-apple-iphone-6-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, Ultimate Guide to Catch the Regional-Located Pokemon For Apple iPhone 6 Plus | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/ipogo-will-be-the-new-ispoofer-on-apple-iphone-x-drfone-by-drfone-virtual-ios/"><u>iPogo will be the new iSpoofer On Apple iPhone X? | Dr.fone</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/mastering-motion-blur-aadobe-photoshop-tutorial/"><u>Mastering Motion Blur AAdobe Photoshop Tutorial</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/ways-to-trade-pokemon-go-from-far-away-on-oppo-a56s-5g-drfone-by-drfone-virtual-android/"><u>Ways to trade pokemon go from far away On Oppo A56s 5G? | Dr.fone</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-in-depth-review-unveiling-bublcams-full-potential-for-2024/"><u>[Updated] In-Depth Review Unveiling Bublcam's Full Potential for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-pioneering-the-digital-universe-the-present-and-future-landscape/"><u>2024 Approved Pioneering the Digital Universe The Present & Future Landscape</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/direct-user-name-changes-for-w11-enthusiasts/"><u>Direct User Name Changes for W11 Enthusiasts</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-apple-iphone-11-pro-drfone-by-drfone-virtual-ios/"><u>Here are Some Pro Tips for Pokemon Go PvP Battles On Apple iPhone 11 Pro | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-pictures-files-from-tecno-phantom-v-flip-by-fonelab-android-recover-pictures/"><u>How To Restore Missing Pictures Files from Tecno Phantom V Flip.</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-apple-iphone-xs-drfone-by-drfone-virtual-ios/"><u>In 2024, 4 solution to get rid of pokemon fail to detect location On Apple iPhone XS | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-card-on-iphone-14-online-without-jailbreak-by-drfone-ios/"><u>In 2024, How to Unlock SIM Card on iPhone 14 online without jailbreak</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-instant-collage-creation-tips-for-social-media-posts/"><u>In 2024, Instant Collage Creation Tips for Social Media Posts</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-ipogo-will-be-the-new-ispoofer-on-apple-iphone-7-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, iPogo will be the new iSpoofer On Apple iPhone 7 Plus? | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-list-of-pokemon-go-joysticks-on-apple-iphone-xs-max-drfone-by-drfone-virtual-ios/"><u>In 2024, List of Pokémon Go Joysticks On Apple iPhone XS Max | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-pokemon-go-cooldown-chart-on-apple-iphone-13-drfone-by-drfone-virtual-ios/"><u>In 2024, Pokémon Go Cooldown Chart On Apple iPhone 13 | Dr.fone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-streamlining-your-drone-footage-with-advanced-techniques/"><u>In 2024, Streamlining Your Drone Footage with Advanced Techniques</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/list-of-pokemon-go-joysticks-on-apple-iphone-11-drfone-by-drfone-virtual-ios/"><u>List of Pokémon Go Joysticks On Apple iPhone 11 | Dr.fone</u></a></li>
 </ul></div>
 

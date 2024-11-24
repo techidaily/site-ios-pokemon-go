@@ -1,7 +1,7 @@
 ---
 title: "Overcoming Common Challenges: Solving Persistent Chivalry II Crash Errors"
-date: 2024-11-07T23:09:19.207Z
-updated: 2024-11-15T03:39:49.735Z
+date: 2024-11-21T07:45:56.256Z
+updated: 2024-11-23T22:50:34.627Z
 tags:
   - win11
   - win10
@@ -28,19 +28,6 @@ thumbnail: https://thmb.techidaily.com/6e815c1b64efb14276b71fc721777a9cc6b2edabd
 3. **[Verify game files](https://tools.techidaily.com/drivereasy/download/)**
 4. **[Edit registry](https://tools.techidaily.com/drivereasy/download/)**
 
-<!-- affiliate ads begin -->
-<span id="1975555">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975555.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975555">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975555.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975555%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975555/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Fix 1: Update the graphics driver
 
  This Engine error may occur if you are using the wrong graphics driver or it’s out of date. So you should update your graphics driver to see if it fixes your problem. If you don’t have the time, patience or skills to update the driver manually, you can do it automatically with **[Driver Easy](https://tools.techidaily.com/drivereasy/download/)**  .
@@ -55,13 +42,6 @@ thumbnail: https://thmb.techidaily.com/6e815c1b64efb14276b71fc721777a9cc6b2edabd
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/10/img_5bd0209829f51.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049363/7443" target="_top" id="2049363">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049363" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049363/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  3) Click**Update All** to automatically download and install the correct version of_ALL_ the drivers that are missing or out of date on your system (this requires the[**Pro version**](https://tools.techidaily.com/drivereasy/download/) – you’ll be prompted to upgrade when you click Update All).
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/10/img_5bd0204fe6005.jpg)
@@ -74,13 +54,6 @@ thumbnail: https://thmb.techidaily.com/6e815c1b64efb14276b71fc721777a9cc6b2edabd
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137208/26400" target="_top" id="2137208">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137208" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137208/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Fix 2: Run Apex Legends as an administrator
 
  This engine error may happen if the game does not have administrative privileges. So you should make sure to run Apex Legends as an administrator to see if it fixes the issue.
@@ -91,22 +64,23 @@ Here is how to grant administrative privileges to Apex Legends:
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/03/image-564.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  2) In File Explorer, right click on **Apex Legends .exe**  and click **Properties** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/03/image-565.png)
-
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1610918/18409" target="_top" id="1610918">
-  <img src="//a.impactradius-go.com/display-ad/18409-1610918" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1610918/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  3) Click the **Compatibility**  tab. Then check the box next to **Run this program as an administrator** , and click **Apply** .
 
  3) After granting APex Legends administrative privileges, you can run the game again to see if Apex Legends Engine Error still occurs. If it doesn’t, then great! If the issue remains, please move on to**Fix 2** , below.
 
 ---
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Fix 3: Verify game files
 
@@ -119,10 +93,7 @@ Here is how to verify game files:
 ![](https://images.drivereasy.com/wp-content/uploads/2019/08/image-439-1024x522.png)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2141683/17092" target="_top" id="2141683">
-  <img src="//a.impactradius-go.com/display-ad/17092-2141683" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141683/17092" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  2) Right-click on**Apex Legends** and click**Repair** .
@@ -132,6 +103,10 @@ Here is how to verify game files:
 3) Wait until the repair process finishes.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/03/image-343-1024x728.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  4) Once done, run Apex Legends and check if the engine error is fixed. If yes, then great! If the issue persists, please move on to**Fix 4** , below.
 
@@ -161,9 +136,17 @@ Windows Registry Editor Version 5.00
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/08/image-476.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  4) Save the file name as**fix.reg** and select the type as**All files** . then click Save.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/08/image-477.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  5) Click**Yes** once you’re prompted about the message.
 
@@ -191,15 +174,17 @@ Windows Registry Editor Version 5.00
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-design-marvels-japanese-homescape-in-mc-landscape/"><u>[New] 2024 Approved Design Marvels Japanese Homescape in MC Landscape</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/new-boost-your-visuals-video-enhance-pro-22-guide/"><u>[New] Boost Your Visuals - Video Enhance Pro 2.2 Guide</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-unparalleled-strategies-for-virtual-session-recording/"><u>[Updated] In 2024, Unparalleled Strategies for Virtual Session Recording</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-apple-iphone-se-drfone-by-drfone-virtual-ios/"><u>In 2024, 4 solution to get rid of pokemon fail to detect location On Apple iPhone SE | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-and-where-to-find-a-shiny-stone-pokemon-for-apple-iphone-6-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, How and Where to Find a Shiny Stone Pokémon For Apple iPhone 6 Plus? | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-apple-iphone-xr-drfone-by-drfone-virtual-ios/"><u>In 2024, How to get the dragon scale and evolution-enabled pokemon On Apple iPhone XR? | Dr.fone</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-iphone-8-with-a-mask-on-drfone-by-drfone-ios/"><u>In 2024, How to Unlock iPhone 8 with a Mask On | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-to-use-pokemon-emerald-master-ball-cheat-on-apple-iphone-14-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Use Pokémon Emerald Master Ball Cheat On Apple iPhone 14 Pro | Dr.fone</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-overcome-sound-absence-on-tweeted-film-rolls/"><u>In 2024, Overcome Sound Absence on Tweeted Film Rolls</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/revolutionize-your-analysis-with-these-6-techniques-for-using-chatgpt/"><u>Revolutionize Your Analysis with These 6 Techniques for Using ChatGPT</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-the-ethical-path-to-engaging-interviews-for-2024/"><u>[New] The Ethical Path to Engaging Interviews for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-enhance-your-music-library-top-6-free-ios-apps-for-audio-conversion/"><u>[Updated] 2024 Approved Enhance Your Music Library Top 6 Free iOS Apps for Audio Conversion</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-apple-iphone-6s-drfone-by-drfone-virtual-ios/"><u>9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Apple iPhone 6s | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/does-honor-magic-6-pro-have-find-my-friends-drfone-by-drfone-virtual-android/"><u>Does Honor Magic 6 Pro Have Find My Friends? | Dr.fone</u></a></li>
+<li><a href="https://games-able.techidaily.com/ensuring-continuous-ps4-connections-tips-for-windows-users/"><u>Ensuring Continuous PS4 Connections: Tips for Windows Users</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/1721413720208-exiting-the-gpt-world-now/"><u>Exiting the GPT World – Now</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/hp-printer-software-upgrade-find-and-install-latest-drivers-for-windows-10-and-11/"><u>HP Printer Software Upgrade: Find and Install Latest Drivers for Windows 10 & 11</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-to-come-up-with-the-best-pokemon-team-on-apple-iphone-se-2020-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Come up With the Best Pokemon Team On Apple iPhone SE (2020)? | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-the-best-ispoofer-alternative-to-try-on-apple-iphone-15-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, The Best iSpoofer Alternative to Try On Apple iPhone 15 Plus | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/planning-to-use-a-pokemon-go-joystick-on-apple-iphone-13-mini-drfone-by-drfone-virtual-ios/"><u>Planning to Use a Pokemon Go Joystick on Apple iPhone 13 mini? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/seize-share-of-facebooks-massive-725m-settlement-fund/"><u>Seize Share of Facebook's Massive $725M Settlement Fund</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/top-11-ferramentas-de-edicao-de-video-mais-eficientes-para-produtores-em-2024/"><u>Top 11 Ferramentas De Edição De Vídeo Mais Eficientes Para Produtores Em 2024</u></a></li>
 </ul></div>
 

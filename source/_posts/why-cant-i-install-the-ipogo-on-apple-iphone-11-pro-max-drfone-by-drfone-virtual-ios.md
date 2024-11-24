@@ -1,7 +1,7 @@
 ---
 title: Why cant I install the ipogo On Apple iPhone 11 Pro Max | Dr.fone
-date: 2024-11-08T22:17:38.766Z
-updated: 2024-11-14T22:50:55.215Z
+date: 2024-11-18T03:03:45.232Z
+updated: 2024-11-23T20:35:46.185Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -103,13 +103,6 @@ You now need to get your iPgone plugged with PC via a USB cord. Once you do this
 
 ![virtual location 01](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135369/19272" target="_top" id="2135369">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135369" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135369/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 3: Check Location Accuracy**
 
 A new window will appear indicating the actual location on the map. If the location does not appear to be accurate hit on “Centre on” icon at the lower right part to get an accurate location.
@@ -117,16 +110,7 @@ A new window will appear indicating the actual location on the map. If the locat
 ![virtual location 03](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
 
 <!-- affiliate ads begin -->
-<span id="1975503">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975503.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975503">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975503.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975503%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975503/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 4: Turn on Teleport Mode**
@@ -134,6 +118,10 @@ A new window will appear indicating the actual location on the map. If the locat
 By clicking on the Corresponding icon in the upper right activates “Teleport Mode”. Now mention the place you want to teleport in the upper left field. Click “Go” (consider a Rome in Italy as an example)
 
 ![virtual location 04](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 5: Start Spoof**
 
@@ -143,16 +131,13 @@ After selecting it, the system will understand the desired place in Rome and hit
 
 Finally, the location has been changed to Rome now. Whatever you do whether you click on “centre on” icon or try to relocate yourself on iPhone ROM is the fixed location that will appear, and in all the location app as well Rome is the fixed place.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Conclusion
 
 Here, we have agreed to do to the conclusion that if iPogo won’t install there is nothing for you to worry about because certain other solutions are there that help you to switch the locations without any hassle.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Can I use iTools gpx file to catch the rare Pokemon On Apple iPhone 11 Pro Max
 
@@ -204,16 +189,13 @@ With ThinkSky, you can add gpx file to iTools and fake your gps location. This a
 
 ![Click the confirm button](https://images.wondershare.com/drfone/2020/2020/confirm-group-name.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037359/7443" target="_top" id="2037359">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037359" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037359/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 - Lastly, input the coordinates names and group name and then export your favorite location list.
 
 ![click=](https://images.wondershare.com/drfone/2020/2020/import-location.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3：Is there any safer tool to spoof Pokemon with iTools file?
 
@@ -239,6 +221,10 @@ You can also add your favorite iSpoofer gpx routes. To add any spot into your fa
 
 ![Enter address and click Go](https://images.wondershare.com/drfone/guide/search-favorites.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **The Bottom Line**
 
 Being a first timer, you may find it very complicated to fake your gps location. But Pokemon map creator makes it easy. Dr. Fone virtual location works seamlessly with your iOS device to take you virtually to any place in the world, from the comfort of your living room.
@@ -248,13 +234,6 @@ Being a first timer, you may find it very complicated to fake your gps location.
 Pokémon Go is a viral game; hence many people try to cheat to achieve high scores and invade others' privacy. The good news is that the Pokémon company is very responsive to preventing and combating such attacks. Cooldown Pokémon go another such feature to deter cheating. So let us discuss what cooldown means.
 
 What is a cooldown? Cooldown Time restricts to stop a player from repeating multiple actions at different locations in a specified period.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997662/19272" target="_top" id="1997662">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997662" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997662/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 1: What does Soft Banned & Cooldown Mean?
 
@@ -267,6 +246,10 @@ What does cool down mean? Cooldown is the time a player has to wait after comple
 When you get a soft ban, its duration is about 12 hours. In this period, any Pokémon you catch during the ban period will leave even if you use any ball type or berries. It also restricts you from winning gym fights and looting Pokéstops. You can still keep playing Pokémon, though, as it is the most lenient form of ban.
 
 ## Part 3: Cooldown Rules and How to Avoid Soft Ban in Pokémon Go?
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 1\. How long does it take for a Pokémon to Cool Down?
 
@@ -287,13 +270,6 @@ The cooldown time is proportional to the distance covered by the player. So, whe
 | 750 km | 1 hour 20 minutes |
 | 1000 km | 1 hour 30 minutes |
 | \>1500 km | 2 hour |
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934142/19272" target="_top" id="1934142">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934142" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934142/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 2\. How long must I wait to avoid a softban?
 
@@ -345,6 +321,10 @@ On the other hand, some actions that do not trigger a cooldown in Pokémon Go;
 
 When you break the cooldown Pokémon go, you are bound to face a soft ban. How do you know if you're soft-banned Pokémon go? If you attempt to take any action in the game and receive a "Try Again Later" error message, it means you are soft banned.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 4: The Safest Way to Teleport in Pokémon GO Without Getting Banned?
 
 As we already discussed, teleport does not trigger soft ban or cooldown restrictions. So, it is a valid method of moving on without any risks. While location spoofers and using VPNs can be risky, and you may get banned and lose your records, we recommend using a safe application that is Dr.Fone Virtual location, to elevate your game and fun.
@@ -358,13 +338,6 @@ It is a very simple-to-use application and provides robust results if you follow
 
 Dr.Fone - Virtual Location (iOS/Android) is an easy and reliable teleporting method for Android and iOS. So let us visit how to teleport using this software step by step.
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129041/19576" target="_top" id="2129041">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129041" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129041/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 5: How to Teleport in Pokémon Go Using Dr. Fone - Virtual Location
 
 Looking for a Pokémon Go Spoofer that's still working? Or thinking about [how to teleport in Pokémon Go](https://drfone.wondershare.com/virtual-location/teleport-in-pokemon-go.html) safely? Meet Dr.Fone - Virtual Location! This powerful GPS location spoofing software lets you use a fake location without risking a ban. No jailbreak is required. Unlock the Pokémon Go map in restricted areas, and enjoy keyboard and joystick modes for seamless movement.
@@ -372,6 +345,10 @@ Looking for a Pokémon Go Spoofer that's still working? Or thinking about [how t
 **Step 1:** Launch the Dr.Fone app and open the "Virtual Location" feature.
 
 ![drfone-home](https://images.wondershare.com/drfone/guide/drfone-home.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Connect your phone to the system and click on the "Get Started" button to start the process.
 
@@ -383,6 +360,10 @@ In the new screen, navigate to the teleport option on the menu in the top-right 
 
 ![virtual-location](https://images.wondershare.com/drfone/guide/virtual-location-03.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Now, you can choose the location by entering its name in the search bar or coordinates if you want to be more precise. Then, you can see the desired location on the map on the screen.
 
 ![virtual-location](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
@@ -393,18 +374,15 @@ When you reach the target location and move your pin, click the "Move Here" butt
 
 ![virtual-location](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528688/16446" target="_top" id="1528688">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528688" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528688/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Voila! You have teleported your location to the desired place.
 
 ![virtual-location](https://images.wondershare.com/drfone/guide/virtual-location-07.png)
 
 When you want to stop this teleporting, simply click the "Stop Simulation" button and your real location will take effect.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Conclusion
 
@@ -424,16 +402,24 @@ Pokémon Go is a viral and fantastic game. However, sometimes players get into t
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/ime-warp-in-media-youtube-content-upside-down-for-2024/"><u>[New] Time Warp in Media YouTube Content Upside Down for 2024</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-entry-into-the-world-of-google-meet-webinars/"><u>[Updated] Entry Into the World of Google Meet Webinars</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-in-2024-step-by-step-guide-invert-playback-videos-android/"><u>[Updated] In 2024, Step-by-Step Guide Invert Playback Videos Android</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/easy-steps-to-recover-deleted-photos-from-galaxy-a14-5g-by-fonelab-android-recover-photos/"><u>Easy steps to recover deleted photos from Galaxy A14 5G.</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/full-guide-to-catch-100-iv-pokemon-using-a-map-on-apple-iphone-13-pro-drfone-by-drfone-virtual-ios/"><u>Full Guide to Catch 100 IV Pokémon Using a Map On Apple iPhone 13 Pro | Dr.fone</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/how-to-record-tv-shows-on-windows-with-free-video-recording-software-for-2024/"><u>How to Record TV Shows on Windows with Free Video Recording Software for 2024</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-the-magnificent-art-of-pokemon-go-streaming-on-apple-iphone-se-2022-drfone-by-drfone-virtual-ios/"><u>In 2024, The Magnificent Art of Pokemon Go Streaming On Apple iPhone SE (2022)? | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-top-15-augmented-reality-games-like-pokemon-go-to-play-on-apple-iphone-14-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, Top 15 Augmented Reality Games Like Pokémon GO To Play On Apple iPhone 14 Pro | Dr.fone</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-unleashing-creativity-essential-angles-in-mobile-shooting/"><u>In 2024, Unleashing Creativity Essential Angles in Mobile Shooting</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-unlocking-an-icloud-locked-ipad-and-apple-iphone-13-by-drfone-ios/"><u>In 2024, Unlocking an iCloud Locked iPad and Apple iPhone 13</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/planning-to-use-a-pokemon-go-joystick-on-apple-iphone-se-drfone-by-drfone-virtual-ios/"><u>Planning to Use a Pokemon Go Joystick on Apple iPhone SE? | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-groundbreaking-footage-starts-here-basics-for-novice-filmmakers-for-2024/"><u>[New] Groundbreaking Footage Starts Here Basics for Novice Filmmakers for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-inclusive-insight-easeus-professional-analysis-for-2024/"><u>[New] Inclusive Insight EaseUS Professional Analysis for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-is-revenue-derived-from-evaluating-products-in-2024/"><u>[New] Is Revenue Derived From Evaluating Products, In 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-2024-approved-dissecting-wirecast-a-comprehensive-breakdown-and-comparisons/"><u>[Updated] 2024 Approved Dissecting WireCast A Comprehensive Breakdown & Comparisons</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-exclusive-access-to-the-best-7-vids/"><u>[Updated] In 2024, Exclusive Access to the Best 7 Vids</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/comprehensive-tutorial-for-installing-llama-2-on-a-pc-or-laptop/"><u>Comprehensive Tutorial for Installing LLAMA 2 on a PC or Laptop</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/expert-recommendations-top-5-windows-screen-cutting-apps/"><u>Expert Recommendations Top 5 Windows Screen Cutting Apps</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-unfortunately-settings-has-stopped-on-xiaomi-redmi-13c-5g-quickly-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Unfortunately Settings Has Stopped on Xiaomi Redmi 13C 5G Quickly | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/in-2024-advanced-techniques-for-pip-integration-in-edge-browser/"><u>In 2024, Advanced Techniques for PIP Integration in Edge Browser</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-does-the-stardust-trade-cost-in-pokemon-go-on-apple-iphone-xs-drfone-by-drfone-virtual-ios/"><u>In 2024, How does the stardust trade cost In pokemon go On Apple iPhone XS? | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-to-come-up-with-the-best-pokemon-team-on-apple-iphone-8-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Come up With the Best Pokemon Team On Apple iPhone 8? | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-ipogo-will-be-the-new-ispoofer-on-apple-iphone-7-drfone-by-drfone-virtual-ios/"><u>In 2024, iPogo will be the new iSpoofer On Apple iPhone 7? | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-top-15-augmented-reality-games-like-pokemon-go-to-play-on-apple-iphone-14-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, Top 15 Augmented Reality Games Like Pokémon GO To Play On Apple iPhone 14 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-what-pokemon-evolve-with-a-dawn-stone-for-apple-iphone-12-drfone-by-drfone-virtual-ios/"><u>In 2024, What Pokémon Evolve with A Dawn Stone For Apple iPhone 12? | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-apple-iphone-12-drfone-by-drfone-virtual-ios/"><u>Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Apple iPhone 12 | Dr.fone</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/updated-in-2024-a-comparative-review-of-top-6-chrome-devices-offering-advanced-voice-manipulation-features-filmmagicworkshop/"><u>Updated In 2024, A Comparative Review of Top 6 Chrome Devices Offering Advanced Voice Manipulation Features - FilmMagicWorkshop</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/ways-to-trade-pokemon-go-from-far-away-on-apple-iphone-7-plus-drfone-by-drfone-virtual-ios/"><u>Ways to trade pokemon go from far away On Apple iPhone 7 Plus? | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/why-does-the-pokemon-go-battle-league-not-available-on-apple-iphone-15-pro-max-drfone-by-drfone-virtual-ios/"><u>Why does the pokemon go battle league not available On Apple iPhone 15 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-apple-iphone-6-plus-drfone-by-drfone-virtual-ios/"><u>Will Pokémon Go Ban the Account if You Use PGSharp On Apple iPhone 6 Plus | Dr.fone</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: What Legendaries Are In Pokemon Platinum On Apple iPhone 15? | Dr.fone
-date: 2024-11-10T01:58:24.697Z
-updated: 2024-11-14T17:54:00.646Z
+date: 2024-11-17T20:59:32.128Z
+updated: 2024-11-24T09:13:14.641Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -26,6 +26,10 @@ In this post, we will learn about all legendaries in Platinum version. You will 
 ## Part 1: What Legendaries are in Pokemon Platinum?
 
 ![Platinum legendaries 2](https://images.wondershare.com/drfone/Platinum-legendaries-2.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 There are about 18 platinum legendaries Pokemon that you can obtain per game cartridge. These include even Pokemon as well. You can catch them while playing the video game. Here is the list of legendary Pokemon in Pokemon Platinum Version:
 
@@ -76,10 +80,7 @@ There are about 18 platinum legendaries Pokemon that you can obtain per game car
 **18\. Arceus:** Arceus, the level 80 Pokemon, is also an event-only Pokemon who is accessible with the Azure Flute obtained from Nintendo Event. At the Spear Pillar, you will be asked if you want to play the flute. If yes, the flute is played and a huge staircase appears. Climb up the staircase and you will find the Pokemon resting there. Go up and battle him.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134240/18498" target="_top" id="2134240">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134240" border="0" alt="https://techidaily.com" width="540" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134240/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: How do you catch the legendary Pokemon in platinum?
@@ -94,6 +95,10 @@ Make sure you get these codes only from reliable websites or sources. Otherwise,
 
 ![Platinum legendaries 8](https://images.wondershare.com/drfone/Platinum-legendaries-8.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2.2 Location Spoofing with Dr. Fone Virtual Location
 
 [Dr.Fone - Virtual Location (iOS/Android)](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/). With this tool, you can teleport your Apple iPhone 15 GPS to any other desired place worldwide with only a few clicks. This reliable application sets up a virtual GPS location. Therefore, all other location-based apps, including Pokemon Platinum Version, installed on your device, believe that you are actually there. Use this tool to capture platinum legendaries.
@@ -105,13 +110,6 @@ For this illustration, we will use using Dr.fone to see how to iPhone GPS spoofi
 **Step 1:** Load the app on your iOS device. For this purpose, you have to go to Dr.fone official website. Next, download and install the app on your smartphone. Next, connect your iOS device with your PC.
 
 ![Platinum legendaries 9](https://images.wondershare.com/drfone/guide/drfone-home.png)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134247/18498" target="_top" id="2134247">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134247" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134247/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 2:** Tap the ‘Virtual Location’ option at Dr.Fone home screen to change the location of your device. You will see another window opened up on your phone’s screen.
 
@@ -168,14 +166,11 @@ The pokemon go dragon scale is one of the new evolution objects that can be empl
 
 ![seadra evolving to kingdra](https://images.wondershare.com/drfone/2020/seadra-evolving-to-kingdra.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Once receiving a Dragon Scale, a player can only use it to evolve Seadra. Any other Pokemon will not evolve with it or even need it to evolve.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2：Fast way to get the exclusive Pokémon?
 
@@ -187,16 +182,13 @@ Pokemon Go can be played without requiring movement, using Dr. Fone's toolkit. T
 
 ![drfone home](https://images.wondershare.com/drfone/guide/drfone-home.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 You can click the ‘Get Started’ button to initiate the action as soon as your phone gets detected.
 
 ![virtual location 01](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
-
-<!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576477/17382" target="_top" id="1576477">
-  <img src="//a.impactradius-go.com/display-ad/17382-1576477" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576477/17382" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 2: Mirroring Motion amid steps:**
 
@@ -215,16 +207,7 @@ The change location will act as genuine for the Pokémon Go application, and it 
 ![virtual location 11](https://images.wondershare.com/drfone/guide/virtual-location-11.png)
 
 <!-- affiliate ads begin -->
-<span id="1834903">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1834903.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1834903">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834903.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834903%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834903/16836" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 3: Movement Simulation between more than two spots:**
@@ -235,11 +218,19 @@ To let the system duplicate flow by choosing the accurate choices, press the 'Ma
 
 ![virtual location 12](https://images.wondershare.com/drfone/guide/virtual-location-12.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 3: How to get the dragon scale on Pokémon Go?
 
 Pokemon go dragon scale can be obtained by taking charge of Gyms and spinning, waiting for the Pokestops to give you free dragon scales, but the chances are extremely low. PokeStops are symbolized by little blue box images on the map and usually can be observed in places of recreation such as a train station, a landmark, or even a regional post office. When your avatar is near to entering a PokeStop, the blue box image changes into a disc shape. The next thing you need to do is tap the disc, and it will exhibit a picture of the landmark, which is a chance to get a few free products.
 
 You can get your hands on a dragon scale by spinning a specific Pokestop seven days in a row to get the required streak bonus. This won't ensure you a dragon scale; however, it will give you the possibility of achieving other evolutionary objects such as the Sun Stone, Upgrade, Sinnoh Stone, Unova Stone, Metal Coat, and King's Rock.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -250,13 +241,6 @@ Specific Pokémon in Pokémon GO now call for rare evolution items such as a ste
 If you have been playing Pokemon games (like Sun/Moon or Sword/Shield), then you must be familiar with their team building. To succeed, players are encouraged to create teams of their Pokemons that they have to use to complete missions. Though, it might take a while to master how you create a winning team. To help you, I have come up with some smart tips that would let you come up with some amazing Pokemon teams.
 
 ![Pokemon Team Building Banner](https://images.wondershare.com/drfone/2020/202010/how-to-build-pokemon-team-1.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 1: What are Some Good Pokemon Team Examples?
 
@@ -276,13 +260,6 @@ Based on these different types of Pokemons, you can come up with the following t
 ### 1\. 2x Physical Sweeper, 2x Special Sweeper, Tanker, and Annoyer
 
 If you want to have an attacking team, then this would be the perfect combination. While the annoyer and tanker would drain the HP of the opponents, your sweeper Pokemons can finish them with their high attacking stats.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2132162/7443" target="_top" id="2132162">
-  <img src="//a.impactradius-go.com/display-ad/7443-2132162" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132162/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 2\. 3x Sweepers (Physical/Special/Mixed), Tanker, Wall, and Annoyer
 
@@ -304,6 +281,10 @@ Even if you don’t have a lot of experience in the game, you can try this power
 
 ![Attacking Pokemon Teams](https://images.wondershare.com/drfone/2020/202010/how-to-build-pokemon-team-4.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2: Things to Consider while Creating your Pokemon Team
 
 Since there could be so many ways for coming up with a Pokemon team, I would recommend following these suggestions:
@@ -320,13 +301,6 @@ Needless to say, if you have all attacking or all defensive Pokemons in your tea
 
 It is always recommended to have a diverse team so that your opponent can’t harass you. For instance, if two or more Pokemons have the same type of weakness, then your opponent can easily win by counter-picking Pokemons.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915805/19272" target="_top" id="1915805">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915805" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915805/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Tip 4: Practice and alter your team
 
 Even if you have a decent team, it doesn’t mean that it would excel in all scenarios. It is always recommended to keep practicing with your team every now and team. Also, feel free to edit your team by swapping Pokemons. We have discussed how to edit Pokemon teams in the next section.
@@ -334,6 +308,10 @@ Even if you have a decent team, it doesn’t mean that it would excel in all sce
 ### Fix 5: Research and pick rare Pokemons
 
 Most importantly, keep looking up for Pokemon team suggestions by experts online and via other Pokemon-related communities. Also, a lot of players suggest picking rare or legendary Pokemons as they have limited weaknesses, making them harder to be countered.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3: How to Edit your Pokemon Team in the Game?
 
@@ -359,20 +337,18 @@ There you go! By following these tips, you would be able to come up with a winni
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-master-10-social-media-movies/"><u>[New] 2024 Approved Master 10 Social-Media Movies</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/new-in-2024-immersive-film-experience-photography-plus-music/"><u>[New] In 2024, Immersive Film Experience Photography + Music</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-capturing-the-cosmos-mastering-editing-techniques-for-starry-images/"><u>[Updated] 2024 Approved Capturing the Cosmos Mastering Editing Techniques for Starry Images</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-strategies-for-broadcasting-social-media-happenings/"><u>[Updated] Strategies for Broadcasting Social Media Happenings</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/best-pokemons-for-pvp-matches-in-pokemon-go-for-apple-iphone-15-drfone-by-drfone-virtual-ios/"><u>Best Pokemons for PVP Matches in Pokemon Go For Apple iPhone 15 | Dr.fone</u></a></li>
-<li><a href="https://windows11.techidaily.com/constructing-a-contextual-update-prompt-mechanism/"><u>Constructing a Contextual Update Prompt Mechanism</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/1722791997060-extension-headers-in-ipv6-must-be-carefully-managed-and-inspected-as-they-could-potentially-be-exploited-for-malicious-purposes/"><u>Extension Headers in IPv6 Must Be Carefully Managed and Inspected as They Could Potentially Be Exploited for Malicious Purposes</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/how-can-i-get-more-stardust-in-pokemon-go-on-apple-iphone-xs-max-drfone-by-drfone-virtual-ios/"><u>How can I get more stardust in pokemon go On Apple iPhone XS Max? | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-can-i-catch-the-regional-pokemon-without-traveling-on-apple-iphone-6-drfone-by-drfone-virtual-ios/"><u>In 2024, How Can I Catch the Regional Pokémon without Traveling On Apple iPhone 6 | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-apple-iphone-xs-max-drfone-by-drfone-virtual-ios/"><u>In 2024, What is the best Pokemon for pokemon pvp ranking On Apple iPhone XS Max? | Dr.fone</u></a></li>
-<li><a href="https://win-help.techidaily.com/responding-to-facebook-security-breach-a-guide-with-5-key-actions/"><u>Responding to Facebook Security Breach: A Guide with 5 Key Actions</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/the-best-ispoofer-alternative-to-try-on-apple-iphone-14-pro-max-drfone-by-drfone-virtual-ios/"><u>The Best iSpoofer Alternative to Try On Apple iPhone 14 Pro Max | Dr.fone</u></a></li>
-<li><a href="https://techtrends.techidaily.com/the-ins-and-outs-of-bass-management-systems-explained/"><u>The Ins and Outs of Bass Management Systems Explained</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-apple-iphone-8-drfone-by-drfone-virtual-ios/"><u>Unova Stone Pokémon Go Evolution List and How Catch Them For Apple iPhone 8 | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-apple-iphone-6-plus-drfone-by-drfone-virtual-ios/"><u>What is the best Pokemon for pokemon pvp ranking On Apple iPhone 6 Plus? | Dr.fone</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/nvesting-5-yields-hundreds-of-new-viewers-now-in-2024/"><u>[New] Investing $5 Yields Hundreds of New Viewers Now, In 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/complete-tutorial-to-use-gps-joystick-to-fake-gps-location-on-motorola-moto-g13-drfone-by-drfone-virtual-android/"><u>Complete Tutorial to Use GPS Joystick to Fake GPS Location On Motorola Moto G13 | Dr.fone</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/discovering-wintoys-a-brief-dive-into-a-formidable-windows-feature/"><u>Discovering WinToys: A Brief Dive Into a Formidable Windows Feature</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/ease-up-end-flashing-in-win11/"><u>Ease Up: End Flashing in Win11</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/heres-everything-you-should-know-about-pokemon-stops-in-detail-on-apple-iphone-7-plus-drfone-by-drfone-virtual-ios/"><u>Heres Everything You Should Know About Pokemon Stops in Detail On Apple iPhone 7 Plus | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/how-and-where-to-find-a-shiny-stone-pokemon-for-apple-iphone-xs-max-drfone-by-drfone-virtual-ios/"><u>How and Where to Find a Shiny Stone Pokémon For Apple iPhone XS Max? | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/how-to-use-pokemon-emerald-master-ball-cheat-on-apple-iphone-7-drfone-by-drfone-virtual-ios/"><u>How to Use Pokémon Emerald Master Ball Cheat On Apple iPhone 7 | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-to-enter-the-ispoofer-discord-server-on-apple-iphone-xs-drfone-by-drfone-virtual-ios/"><u>In 2024, How to enter the iSpoofer discord server On Apple iPhone XS | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-ipogo-will-be-the-new-ispoofer-on-apple-iphone-12-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, iPogo will be the new iSpoofer On Apple iPhone 12 Pro? | Dr.fone</u></a></li>
+<li><a href="https://fox-that.techidaily.com/iphone-silent-mode-malfunction-a-step-by-step-guide-to-workaround-solutions/"><u>IPhone Silent Mode Malfunction: A Step-by-Step Guide to Workaround Solutions</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/most-asked-questions-about-pokemon-go-battle-league-rewards-on-apple-iphone-6s-drfone-by-drfone-virtual-ios/"><u>Most Asked Questions about Pokemon Go Battle League Rewards On Apple iPhone 6s | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-perfect-blend-stylish-form-with-crystal-clear-sound/"><u>The Perfect Blend: Stylish Form with Crystal Clear Sound</u></a></li>
+<li><a href="https://article-posts.techidaily.com/wordsmith-whispers-picks-for-the-best-transcription-programs/"><u>Wordsmith Whispers Picks for the Best Transcription Programs</u></a></li>
 </ul></div>
 

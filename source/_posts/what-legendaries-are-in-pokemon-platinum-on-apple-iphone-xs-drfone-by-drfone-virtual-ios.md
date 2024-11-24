@@ -1,7 +1,7 @@
 ---
 title: What Legendaries Are In Pokemon Platinum On Apple iPhone XS? | Dr.fone
-date: 2024-11-12T21:37:02.522Z
-updated: 2024-11-15T00:01:38.627Z
+date: 2024-11-20T18:52:22.401Z
+updated: 2024-11-24T07:22:30.130Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -45,6 +45,10 @@ There are about 18 platinum legendaries Pokemon that you can obtain per game car
 
 ![Platinum legendaries 4](https://images.wondershare.com/drfone/Platinum-legendaries-4.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **7\. Heatran:** Found inside a cave around Stark Mountain, Heatran appears as you come back to the place where Charon was arrested. When you try to enter the Mountain, you team up with Buck, another trainer. You follow him and speak to his grandfather. You catch the Level 50 Heatran once you return to Stark Mountain.
 
 **8\. Regigigas:** Found on the basement of Snowpoint Temple, Regigigas Platinum does not require HM moves to be reachable. Resolving puzzles on each floor, you arrive at the Temple, bringing Regirock, Regice, and Registeel. You will need them to battle with this Level 1 Pokemon and capture him. Regigigas is found asleep on the floor.
@@ -79,6 +83,10 @@ There are about 18 platinum legendaries Pokemon that you can obtain per game car
 
 There are a few cheats to capture platinum legendaries in Pokemon. In addition to the official methods discusses above, you can use action replay codes or try location spoofing.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2.1 Action Replay Codes
 
 There are many action replay codes available on the Internet. Using these codes, you can easily capture legendary Pokemon available with the Pokemon Platinum Version.
@@ -86,13 +94,6 @@ There are many action replay codes available on the Internet. Using these codes,
 Make sure you get these codes only from reliable websites or sources. Otherwise, you may get banned from playing this game permanently.
 
 ![Platinum legendaries 8](https://images.wondershare.com/drfone/Platinum-legendaries-8.png)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 2.2 Location Spoofing with Dr. Fone Virtual Location
 
@@ -110,13 +111,6 @@ For this illustration, we will use using Dr.fone to see how to iPhone GPS spoofi
 
 ![Platinum legendaries 10](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047406/19272" target="_top" id="2047406">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047406" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047406/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 3:** Next, click on ‘Get Started’ and select the desired fake location on the map you see on the Dr.Fone app. At the top-right corner of the window, there are three icons. Click on the third icon - Teleport. Next, tap on the desired location or enter the name of the location in the search box you see on the left side.
 
 ![Platinum legendaries 11](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
@@ -124,13 +118,6 @@ For this illustration, we will use using Dr.fone to see how to iPhone GPS spoofi
 **Step 4:** You have set your virtual location in the Dr.Fone map view. In case you find any controversy in that location, you have to go back and change your location again to be on the safe side.
 
 ![Platinum legendaries 12](https://images.wondershare.com/drfone/guide/virtual-location-06.png)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886073/19272" target="_top" id="1886073">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886073" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886073/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 5:** For GPS location spoofing on your Apple iPhone XS map, open your current location. You will see that your virtual address is your current location now. It’s because Dr.Fone has successfully modified the location setting of your device, not just the game.
 
@@ -159,10 +146,7 @@ If you are a huge Pokemon fan and loves to play pokemon go, you will definitely 
 ![meltan mystery box](https://images.wondershare.com/drfone/2020/meltan-mystery-box.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100533/7443" target="_top" id="2100533">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100533" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100533/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1: What is the meltan box and how does it work?
@@ -176,13 +160,6 @@ The meltan box is actually a mystery box that you cannot receive through the tra
 1. The first and foremost thing you need to do is deport a Pokemon from Pokemon Go to Pokemon Let’s Go. You don’t have to transfer it to your own copy of Let’s Go. A friend’s copy would come in great help here.
 2. For making the transfer, you will get a mystery box in Pokemon Go. This box will allow the meltan to run into the wild for about 30 minutes. It gives you the chance to latch the pokemon.
 3. If you cannot catch meltan in 30 minutes, you will have to wait and repeat the above process again. As the mystery box will close after 30 minutes, and meltan will vanish from the wild.
-
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2136536/16384" target="_top" id="2136536">
-  <img src="//a.impactradius-go.com/display-ad/16384-2136536" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136536/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 2: How to connect pokemon go to pokemon switch
 
@@ -228,6 +205,10 @@ After the pairing is complete, you are now ready to send your Pokemon to the Go 
 
 ![bring pokemon](https://images.wondershare.com/drfone/2020/bring-pokemon.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 3:** Open Pokemon Go.
 
 **Step 4:** In the map view, tap on the button “Main menu”.
@@ -244,20 +225,21 @@ After the pairing is complete, you are now ready to send your Pokemon to the Go 
 
 Following the aforementioned steps will allow you to get the pokemon go mystery box.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 3: Tips to get more meltan boxes
 
 There is a lot of confusion among the Pokemon trainers regarding how to get meltan in pokemon go. Here, we share a few tips for doing the same and reducing your confusion to zero.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Tip No.1: Transfer Pokemon to Win a Mystery Box
 
 With the help of pairing and connecting your Pokemon Go to the Nintendo Switch, you can actually get the opportunity to transfer the Pokemon and win a mystery box for yourself.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047346/19272" target="_top" id="2047346">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047346" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047346/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Tip No.2: Transfer Pokemon to Friend’s Switch
 
@@ -276,13 +258,6 @@ It is well-known that Pokemon Go is a location-based game that offers several se
 ## Conclusion
 
 Resolving your query about getting meltan box and offering you a detailed guide and assistance, we aim to help you continue your fun-experience with the game. Play, look for and find all the meltan! You can then evolve your meltan into a formidable Melmetal. You will need around 400 meltan candy to evolve into Melmetal, so be sure to catch as many as possible and enjoy!
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972670/19272" target="_top" id="1972670">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972670" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972670/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Preparation to Beat Giovani in Pokemon Go For Apple iPhone XS
 
@@ -334,7 +309,15 @@ After completing the quest above, Giovani Special Research or Looming in the Sha
 
 ![a troubling situation task](https://images.wondershare.com/drfone/2020/a-troubling-situation-task.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 On completing one research step, you will be given a reward called the Super Rocket Radar. Like the Rocket Radar, the Super Rocket Radar can be equipped and unequipped from your Bag. This reward doesn't only show Giovani’s hideout, it also shows some of his Grunts hideouts.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2. What does the Pokemon Go Giovani Counter Contain?
 
@@ -364,13 +347,6 @@ Now you know the best Giovani Pokemon Go counters to use against each lineup of 
 
 ![giovani](https://images.wondershare.com/drfone/2020/giovani.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130869/7443" target="_top" id="2130869">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130869" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130869/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Just as you did against Team Go Rocket Leaders, Arlo, Cliff, and Sierra, you need a Pokemon stronger than two of Giovani’s. With that, you can use the same Pokemon twice, thereby keeping your choice for Legendary Shadow Pokemon safe till you need it to beat Giovani.
 
 Mind you, the big bad boss, Giovani has two Protect Shields at his disposal so you have to be careful while fighting against the monster. We implore you to start your game with a Pokemon that has a Charged move so you can charge as fast as possible.
@@ -397,6 +373,10 @@ Click on Get Started to change your location.
 
 ![virtual location 01](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 3:** Your current location will appear on the PC screen. Switch location by entering the name or address of the place in the field at the upper left corner of the application.
 
 ![virtual location 04](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
@@ -404,6 +384,10 @@ Click on Get Started to change your location.
 **Step 4:** The interface below will pop up on your screen. Click on the Move Here icon to teleport to your chosen location.
 
 ![virtual location 05](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 And now you are good to have one of the strongest Pokemon on your team when fighting against Giovani. Leverage the Dr.Fone- Virtual Location program as it will help you ease the stress of catching stronger Pokemon remotely on your device without jailbreaking it.
 
@@ -421,19 +405,16 @@ And now you are good to have one of the strongest Pokemon on your team when figh
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-files.techidaily.com/new-2024-approved-expert-methods-for-flipping-image-colors/"><u>[New] 2024 Approved Expert Methods for Flipping Image Colors</u></a></li>
-<li><a href="https://fox-access.techidaily.com/new-in-2024-top-5-homemade-shot-strategies-the-fastest-hacks-you-need/"><u>[New] In 2024, Top 5 Homemade Shot Strategies – The Fastest Hacks You Need</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/beat-apple-vision-pro-fomo-with-affordable-xr-alternatives-find-your-perfect-tech-match-today/"><u>Beat Apple Vision Pro FOMO with Affordable XR Alternatives – Find Your Perfect Tech Match Today!</u></a></li>
-<li><a href="https://win-popular.techidaily.com/exploring-the-variety-of-export-options-available-in-flip-office-pro-a-comprehensive-guide-flipbuildercom/"><u>Exploring the Variety of Export Options Available in Flip Office Pro - A Comprehensive Guide [FlipBuilder.com]</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/how-to-come-up-with-the-best-pokemon-team-on-apple-iphone-15-plus-drfone-by-drfone-virtual-ios/"><u>How to Come up With the Best Pokemon Team On Apple iPhone 15 Plus? | Dr.fone</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-sign-xltx-document-with-digital-signature-tutorial-by-ldigisigner-sign-a-excel-sign-a-excel/"><u>How to Sign .xltx document with Digital Signature - (Tutorial)</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-apple-iphone-x-drfone-by-drfone-virtual-ios/"><u>In 2024, 15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Apple iPhone X | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-best-pokemons-for-pvp-matches-in-pokemon-go-for-apple-iphone-12-drfone-by-drfone-virtual-ios/"><u>In 2024, Best Pokemons for PVP Matches in Pokemon Go For Apple iPhone 12 | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-can-i-catch-the-regional-pokemon-without-traveling-on-apple-iphone-8-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, How Can I Catch the Regional Pokémon without Traveling On Apple iPhone 8 Plus | Dr.fone</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-iphone-12-pro-max-without-passcode-4-easy-methods-drfone-by-drfone-ios/"><u>In 2024, How To Unlock iPhone 12 Pro Max Without Passcode? 4 Easy Methods | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-the-most-useful-tips-for-pokemon-go-ultra-league-on-apple-iphone-14-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, The Most Useful Tips for Pokemon Go Ultra League On Apple iPhone 14 Pro | Dr.fone</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/into-the-humor-hub-of-the-world-wide-web-metaverse-memes-101/"><u>Into the Humor Hub of the World Wide Web - Metaverse Memes 101</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/play-store-stuck-on-downloading-of-infinix-smart-8-plus-7-ways-to-resolve-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Play Store Stuck on Downloading Of Infinix Smart 8 Plus? 7 Ways to Resolve | Dr.fone</u></a></li>
-<li><a href="https://win-wonderful.techidaily.com/windows-file-recovery-fixing-the-error-in-command-analysis/"><u>Windows File Recovery: Fixing the Error in Command Analysis</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-fb-livestream-success-on-television-four-pathways/"><u>[New] FB Livestream Success on Television Four Pathways</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-dreamlands-choice-ultimate-10-affordable-rpg-games/"><u>[New] In 2024, Dreamland's Choice Ultimate 10 Affordable RPG Games</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-professional-screenshot-taker-apowersoft-screen-recorder/"><u>[New] Professional Screenshot Taker Apowersoft Screen Recorder</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-expertly-crafted-images-with-lut-techniques-in-photoshop-cs6/"><u>[Updated] Expertly Crafted Images with LUT Techniques in Photoshop CS6</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/all-you-need-to-know-about-mega-greninja-for-apple-iphone-x-drfone-by-drfone-virtual-ios/"><u>All You Need To Know About Mega Greninja For Apple iPhone X | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-apple-iphone-14-pro-drfone-by-drfone-virtual-ios/"><u>Can I use iTools gpx file to catch the rare Pokemon On Apple iPhone 14 Pro | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-apple-iphone-11-pro-drfone-by-drfone-virtual-ios/"><u>Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Apple iPhone 11 Pro | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/how-does-the-stardust-trade-cost-in-pokemon-go-on-apple-iphone-14-drfone-by-drfone-virtual-ios/"><u>How does the stardust trade cost In pokemon go On Apple iPhone 14? | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-what-pokemon-evolve-with-a-dawn-stone-for-apple-iphone-14-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, What Pokémon Evolve with A Dawn Stone For Apple iPhone 14 Pro Max? | Dr.fone</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/the-ultimate-no-cost-win-for-podcast-enthusiasts/"><u>The Ultimate No-Cost Win for Podcast Enthusiasts</u></a></li>
+<li><a href="https://win-blog.techidaily.com/1722993045184-unlock-the-full-potential-of-your-gaming-rig-by-boosting-frames-per-second-in-ring-of-elysium-best-tips-inside/"><u>Unlock the Full Potential of Your Gaming Rig by Boosting Frames Per Second in Ring of Elysium – Best Tips Inside!</u></a></li>
 </ul></div>
 

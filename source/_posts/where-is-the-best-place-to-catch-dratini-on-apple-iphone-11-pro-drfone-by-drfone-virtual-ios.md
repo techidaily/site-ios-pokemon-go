@@ -1,7 +1,7 @@
 ---
 title: Where Is the Best Place to Catch Dratini On Apple iPhone 11 Pro | Dr.fone
-date: 2024-11-09T16:15:27.768Z
-updated: 2024-11-14T19:36:01.725Z
+date: 2024-11-16T21:29:03.039Z
+updated: 2024-11-24T05:23:46.998Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -27,6 +27,10 @@ Dratini undergoes two different evolutions
 
 The first un-evolved version is the serpentine Dratini that looks like a snake and continues shedding its skin as it grows. When you get to level 30, Dratini evolves into Dragonair, and at level 55 it becomes Dragonite
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Dragonair
 
 This is an evolution of Dratini, which has a long scaly serpent-like body. It still retails the blue body with a white underside. The white bump on the forehead now becomes a white horn. The budding wings on the side of the head have now grown into full wings. It also carries three crystal orbs, with one on the neck and the other two on the tail.
@@ -34,10 +38,7 @@ This is an evolution of Dratini, which has a long scaly serpent-like body. It st
 Dragonair has the ability to stretch its wings so it can fly. It has a huge amount of energy in the body and can discharge the energy through the crystals. The energy that it releases has the ability to change the weather wherever it is. Dragonair can be found in seas and lakes.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975816/19272" target="_top" id="1975816">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975816" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975816/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Dragonite
@@ -84,10 +85,7 @@ On the official Dr.Fone page, download and install Dr.Fone on your computer or y
 ![drfone home](https://images.wondershare.com/drfone/guide/drfone-home.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135406/19272" target="_top" id="2135406">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135406" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 After entering the virtual location module, connect your iOS device to your computer using an original USB cable.
@@ -106,13 +104,6 @@ The image below shows an example of coordinates entered for Rome, Italy.
 
 ![virtual location 04](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902273/19272" target="_top" id="1902273">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902273" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902273/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Once you have successfully teleported your device, you will be able to navigate to the area where the Dratini nest has been found. You can use the joystick feature for this. You should also click on “Move here” so your location is permanently moved to that place.
 
 You may now camp and keep hitting the Dratini nest so you can farm as many as possible within the two weeks before the nest migrates to another location.
@@ -120,6 +111,10 @@ You may now camp and keep hitting the Dratini nest so you can farm as many as po
 Camping and looking for other Pokémon in the area will help you cool down and therefore avoid being banned from the game for spoofing your iOS device.
 
 ![virtual location 05](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 This is how your location will be viewed on the map.
 
@@ -130,10 +125,7 @@ This is how your location will be viewed on another iPhone device.
 ![virtual location 07](https://images.wondershare.com/drfone/guide/virtual-location-07.png)
 
 <!-- affiliate ads begin -->
-<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1584040/17916" target="_top" id="1584040">
-  <img src="//a.impactradius-go.com/display-ad/17916-1584040" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1584040/17916" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## In conclusion
@@ -141,13 +133,6 @@ This is how your location will be viewed on another iPhone device.
 Dratini is one of the most friendly but rare Pokémon to get. It can evolve from a small serpentine worm, into a might, good-hearted dragon. This is one of the Pokémon that people love to farm for trading and taking part in raids and such events.
 
 When you need to, you can teleport your device to an area where Dratini is popular using [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) (iOS). Use the Dratini nest maps to find Dratini, and then visit the area or teleport there.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047406/19272" target="_top" id="2047406">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047406" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047406/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Ways to trade pokemon go from far away On Apple iPhone 11 Pro?
 
@@ -173,6 +158,10 @@ Firstly you need to install the Dr.Fone - Virtual Location setter on your phone.
 
 ![drfone home](https://images.wondershare.com/drfone/guide/drfone-home.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 2: Connect Device**
 
 Now, you need to take your Apple iPhone 11 Pro’s cable and use it to connect your Apple iPhone 11 Pro to the PC. Wait until the program detects it. Maybe you need to trust the PC if you are plugging the Apple iPhone 11 Pro device for the first time.
@@ -195,20 +184,6 @@ Upon clicking on "go", a pop-up will appear showing you the distance of the loca
 
 ![virtual location 05](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137212/26400" target="_top" id="2137212">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137212" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137212/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006928/19272" target="_top" id="2006928">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006928" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006928/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2: Which pokemon can you evolve with trading?
 
 Evolution is one of the most important aspects of the game Pokemon go. You can evolve several pokemons just by trading them. There are several pokemon that you can evolve using trading. Given below is the list of the different pokemon that can benefit from evolution.
@@ -224,16 +199,13 @@ Evolution is one of the most important aspects of the game Pokemon go. You can e
 
 However, trading Pokemons in Pokemon go could be slightly tricky without having at least one close friend in the games who is also of a considerable level. Only then, you will be able to evolve your pokemon by trading.
 
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1172027/12108" target="_top" id="1172027">
-  <img src="//a.impactradius-go.com/display-ad/12108-1172027" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1172027/12108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 3: How to do the special trade?
 
 You need a Special Trade whenever you wish to trade a legendary Pokemon or a shiny Pokemon in Pokemon Go. These pokemon are very rare to find and hence you won’t want to trade these rare Pokemons very often, however, you can trade a rare Pokemon only once per day. To trade a rare Pokemon would also need to be a Great or Best friend, two of the highest levels of friendship in the game Pokemon go. To increase your friendship level you need to battle and trade more and more. It'll take quite a bit of time to reach that stature of a friendship level. This could cost as much as one million, this amount will however decrease with increasing friendship levels.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Final Words
 
@@ -262,7 +234,15 @@ The pokemon go dragon scale is one of the new evolution objects that can be empl
 
 ![seadra evolving to kingdra](https://images.wondershare.com/drfone/2020/seadra-evolving-to-kingdra.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Once receiving a Dragon Scale, a player can only use it to evolve Seadra. Any other Pokemon will not evolve with it or even need it to evolve.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2：Fast way to get the exclusive Pokémon?
 
@@ -287,6 +267,10 @@ Unfold the top right area of the initial option before reaching Dr. Fone's GUI, 
 To begin the replication, you will be required to make a movement and traverse the 'March' button to reach it multiple times. By default, the action is set to one but can be outweighed by the user, and the plan will change correspondingly.
 
 ![virtual location 09](https://images.wondershare.com/drfone/guide/virtual-location-09.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 The change location will act as genuine for the Pokémon Go application, and it will presume that the player is moving in between the two points you chose on the Dr. Fone GUI screen. At the foot of the screen, the rate of motion can also be modified, making use of the gliding menu. By following these steps, you can use the fake motion of the position of Dr. Virtual Fone without needing to understand it, and your app will not be banned.
 
@@ -326,20 +310,17 @@ Specific Pokémon in Pokémon GO now call for rare evolution items such as a ste
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-in-2024-ultimate-software-guide-for-video-game-shows/"><u>[New] In 2024, Ultimate Software Guide for Video Game Shows</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-leading-edge-group-chat-apps-on-android-5plus-users/"><u>[Updated] 2024 Approved Leading Edge Group Chat Apps on Android (5+ Users)</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/3-ways-for-android-pokemon-go-spoofing-on-itel-a60s-drfone-by-drfone-virtual-android/"><u>3 Ways for Android Pokemon Go Spoofing On Itel A60s | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/a-working-guide-for-pachirisu-pokemon-go-map-on-apple-iphone-15-drfone-by-drfone-virtual-ios/"><u>A Working Guide For Pachirisu Pokemon Go Map On Apple iPhone 15 | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-apple-iphone-13-drfone-by-drfone-virtual-ios/"><u>Can I use iTools gpx file to catch the rare Pokemon On Apple iPhone 13 | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/how-to-enter-the-ispoofer-discord-server-on-apple-iphone-13-drfone-by-drfone-virtual-ios/"><u>How to enter the iSpoofer discord server On Apple iPhone 13 | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/how-to-enter-the-ispoofer-discord-server-on-apple-iphone-7-drfone-by-drfone-virtual-ios/"><u>How to enter the iSpoofer discord server On Apple iPhone 7 | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-does-the-stardust-trade-cost-in-pokemon-go-on-apple-iphone-15-drfone-by-drfone-virtual-ios/"><u>In 2024, How does the stardust trade cost In pokemon go On Apple iPhone 15? | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-most-asked-questions-about-pokemon-go-battle-league-rewards-on-apple-iphone-6-drfone-by-drfone-virtual-ios/"><u>In 2024, Most Asked Questions about Pokemon Go Battle League Rewards On Apple iPhone 6 | Dr.fone</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/24-setup-essentials-prepping-for-a-thriving-youtube-channel/"><u>In 2024, Setup Essentials Prepping for a Thriving YouTube Channel</u></a></li>
-<li><a href="https://fox-that.techidaily.com/overcome-iphone-app-glitches-the-ultimate-guide-with-9-proven-chatgpt-fixes/"><u>Overcome iPhone App Glitches: The Ultimate Guide with 9 Proven ChatGPT Fixes</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/resolving-the-constant-shutdown-problem-in-cod-modern-warfare-3-on-pc/"><u>Resolving the Constant Shutdown Problem in COD: Modern Warfare 3 on PC</u></a></li>
-<li><a href="https://fox-that.techidaily.com/solving-siri-issues-top-7-fixes-for-when-it-wont-work-on-your-ios-device/"><u>Solving Siri Issues: Top 7 Fixes for When It Won't Work on Your iOS Device</u></a></li>
-<li><a href="https://techtrends.techidaily.com/top-6-must-have-journaling-apps-for-creative-minds/"><u>Top 6 Must-Have Journaling Apps for Creative Minds</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/what-legendaries-are-in-pokemon-platinum-on-apple-iphone-12-pro-drfone-by-drfone-virtual-ios/"><u>What Legendaries Are In Pokemon Platinum On Apple iPhone 12 Pro? | Dr.fone</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-evaluating-the-value-of-sns-hdr-in-a-crowded-market/"><u>[New] In 2024, Evaluating the Value of SNS HDR in a Crowded Market</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-solo-strategies-making-your-podcast-sensational/"><u>[New] Solo Strategies Making Your Podcast Sensational</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-the-ultimate-directory-top-10-sources-for-free-graphics/"><u>[Updated] In 2024, The Ultimate Directory Top 10 Sources for Free Graphics</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-top-360-live-streaming-cameras-for-youtube-and-facebook-you-should-know-for-2024/"><u>[Updated] Top 360 Live Streaming Cameras for Youtube and Facebook You Should Know for 2024</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/11-best-pokemon-go-spoofers-for-gps-spoofing-on-apple-iphone-15-pro-drfone-by-drfone-virtual-ios/"><u>11 Best Pokemon Go Spoofers for GPS Spoofing on Apple iPhone 15 Pro | Dr.fone</u></a></li>
+<li><a href="https://win11.techidaily.com/accelerate-productivity-with-essential-windows-11-methods/"><u>Accelerate Productivity with Essential Windows 11 Methods</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/correcting-the-error-what-to-do-when-you-cant-find-d3dx926dll/"><u>Correcting the Error: What to Do When You Can't Find D3DX9_26.dll</u></a></li>
+<li><a href="https://fox-http.techidaily.com/how-to-navigate-virtual-realities-without-nausea-for-2024/"><u>How to Navigate Virtual Realities without Nausea for 2024</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-heres-everything-you-should-know-about-pokemon-stops-in-detail-on-apple-iphone-13-drfone-by-drfone-virtual-ios/"><u>In 2024, Heres Everything You Should Know About Pokemon Stops in Detail On Apple iPhone 13 | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/reasons-why-pokemon-gps-does-not-work-on-apple-iphone-11-pro-drfone-by-drfone-virtual-ios/"><u>Reasons why Pokémon GPS does not Work On Apple iPhone 11 Pro? | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-apple-iphone-xs-drfone-by-drfone-virtual-ios/"><u>What is the best Pokemon for pokemon pvp ranking On Apple iPhone XS? | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-apple-iphone-7-drfone-by-drfone-virtual-ios/"><u>Will Pokémon Go Ban the Account if You Use PGSharp On Apple iPhone 7 | Dr.fone</u></a></li>
 </ul></div>
 

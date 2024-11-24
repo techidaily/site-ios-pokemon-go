@@ -1,7 +1,7 @@
 ---
 title: Ways to trade pokemon go from far away On Apple iPhone 14? | Dr.fone
-date: 2024-11-12T17:31:04.335Z
-updated: 2024-11-14T17:22:40.476Z
+date: 2024-11-19T10:24:49.214Z
+updated: 2024-11-23T17:51:22.462Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -17,6 +17,10 @@ thumbnail: https://thmb.techidaily.com/0bfbb82ab5214d9df42dfb4686963b4575f40401c
 
 If you're a regular Pokemon go player then the title of this article would have truly intrigued you. Pokemon go is one of the most exciting and interesting virtual reality games which has been doing rounds in the gamers community. The game needs you to go around from place to place. One cannot play the game indoors. Trading in Pokemon go is one of the essential features. However, according to Pokemon go trading rules, a player needs to travel around. However, there are some extremely useful hacks using which you needn't travel around for Pokemon go trading. You can do it remotely all by sitting at your home!
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: Trade pokemon go from far away
 
 One of the most convenient ways for Pokemon go trading without having to travel is by using some virtual location servers just like discord servers. Next, you need to make friends with other Pokemon go players who stay in far-off places. Remember, that these friends must be on your virtual location server. Only then, you can do Pokemon go trading with them. Hence, make sure to have your friends on your server. One of the most popular and easy-to-use virtual location servers is the Dr.Fone - Virtual Location. Using this you can shift your location to any location in the world. Dr. Fone is highly user-friendly and can easily change your location, let us learn to use the [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/), shall we?
@@ -28,19 +32,6 @@ Dr.Fone - Virtual Location, easy-to-use software that will enable you to set any
 - **Tweak your location:** Using Dr.Fone - Virtual Location, you can change your location very easily. You can use this feature while playing virtual reality games and also to stay undercover from nosy relatives.
 - **Set the speed to mock GPS location:** While playing virtual reality location-based games, you can also set the pace of movement of your GPS. This will help you to become better at the game!
 - **Joystick simulated motion:** you can use the in-app joystick for simulating motion and moving around on the map.
-
-<!-- affiliate ads begin -->
-<span id="1983582">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983582.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983582">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983582.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983582%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983582/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Step-by-step Tutorial
 
@@ -59,19 +50,6 @@ Now, you need to take your Apple iPhone 14’s cable and use it to connect your 
 Now on the interface, you'd see a map with your location highlighted on it. If your location is incorrectly displayed then click on the "center on" option. Now the location displayed would be accurate.
 
 ![virtual location 03](https://images.wondershare.com/drfone/guide/virtual-location-03.png)
-
-<!-- affiliate ads begin -->
-<span id="1982499">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982499.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982499">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982499.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982499%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982499/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 4: Activate Teleport Mode**
 
@@ -103,6 +81,10 @@ However, trading Pokemons in Pokemon go could be slightly tricky without having 
 ## Part 3: How to do the special trade?
 
 You need a Special Trade whenever you wish to trade a legendary Pokemon or a shiny Pokemon in Pokemon Go. These pokemon are very rare to find and hence you won’t want to trade these rare Pokemons very often, however, you can trade a rare Pokemon only once per day. To trade a rare Pokemon would also need to be a Great or Best friend, two of the highest levels of friendship in the game Pokemon go. To increase your friendship level you need to battle and trade more and more. It'll take quite a bit of time to reach that stature of a friendship level. This could cost as much as one million, this amount will however decrease with increasing friendship levels.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Final Words
 
@@ -145,13 +127,14 @@ That’s it! You can now select Lure Module from the Pokemon Module options and 
 ![Lure Module Installed on Pokestop](https://images.wondershare.com/drfone/2020/202010/everything-about-pokemon-stops-5.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148771/18498" target="_top" id="2148771">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148771" border="0" alt="https://techidaily.com" width="350" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148771/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 For the next 30 minutes, the nearby Pokemons will automatically come to the designated Pokemon Go stop. This will benefit you and any other trainer who would visit the Pokemon Go stop until the allocated time.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3: How Can You Make Pokestops into Farming Spots in the Game?
 
@@ -187,6 +170,10 @@ Once your Apple iPhone 14 is detected by the interface, its present location wou
 
 ![launch the Virtual Location](https://images.wondershare.com/drfone/guide/virtual-location-03.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Now, you can go to the search options on the top-left side and enter the address or exact coordinates of the Pokestop. You can find the location of a Pokestop from several freely available online sources.
 
 ![virtual location 04](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
@@ -208,6 +195,10 @@ _**“I have been trying to catch Pachirisu for a while now, but I can’t seem 
 If you are also planning to catch this electric-type Pokemon, then you can have a similar query as well. Since Pachirisu is a region-specific Pokemon, chances are that you might not see it spawning everywhere. Though, if you use the right Pokemon Go Pachirisu map, then you can easily locate it. In this post, I’m going to suggest some working Pachirisu regional maps so that you can catch this Pokemon like a pro.
 
 ## Part 1: Things You Should Know About Pachirisu
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### What are Pokemon GO Pachirisu Features?
 
@@ -231,6 +222,10 @@ As for providing specific coordinates for Pachirisu locations, it is important t
 
 To increase your chances of finding Pachirisu, it is recommended to visit areas with a higher likelihood of spawning regional exclusives, such as parks, tourist attractions, or areas with a diverse range of Pokémon spawns. Additionally, participating in Pokémon Go events or connecting with local Pokémon Go communities can provide valuable information on Pachirisu sightings in your region.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2: Pachirisu Pokemon Go Regional Maps to Help You
 
 Since Pachirisu is mostly spawned in Alaska, Canada, and Russia, you might need to take some extra measures to locate it. I would recommend these Pachirisu Pokemon Go spawn maps to assist you.
@@ -241,18 +236,15 @@ The Silph Road is the biggest crowd-sourced Pokemon Go map that will let you kno
 
 **Website:** [https://thesilphroad.com/](https://thesilphroad.com/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2\. Poke Map
 
 If you are looking for an active Pachirisu Pokemon Go map, then you can head to this freely available website. You can know the active regions where the Pokemon has been found recently. Not just that, it will also let you know about other details of the game like raids, Pokestops, gyms, etc.
 
 **Website:** [https://www.pokemap.net/](https://www.pokemap.net/)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886069/19272" target="_top" id="1886069">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886069" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886069/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 3\. PoGo Map
 
@@ -269,23 +261,7 @@ PokeHunter is a well-known Pokemon GO tracker that provides exact information on
 ![pokehunter pokemon go map](https://images.wondershare.com/drfone/article/2024/01/pachirisu-pokemon-go-1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934188/19272" target="_top" id="1934188">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934188" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934188/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<span id="1531882">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1531882.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1531882">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531882.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531882%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531882/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3: How to Catch Pachirisu on Pokemon Go from Home?
@@ -306,6 +282,10 @@ After when your device is detected, Dr.Fone will automatically display its exact
 
 ![virtual location 03](https://images.wondershare.com/drfone/guide/virtual-location-03.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Now, go to the search bar and just enter the address of the target location or its coordinates that you can get from a Pachirisu Pokemon Go map.
 
 ![virtual location 04](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
@@ -320,23 +300,9 @@ Furthermore, you can even simulate your device movement to ensure that you visit
 
 ![virtual location 12](https://images.wondershare.com/drfone/guide/virtual-location-12.png)
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657395/16446" target="_top" id="1657395">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657395" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657395/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 If you want to move naturally, then you can use the GPS joystick that would be enabled at the bottom of the screen. You can use your keyboard shortcuts or the mouse pointer to move in any route realistically.
 
 ![virtual location 15](https://images.wondershare.com/drfone/guide/virtual-location-15.png)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137214/26400" target="_top" id="2137214">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137214" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137214/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## FAQs about Pachirisu Pokémon GO Maps and Locations
 
@@ -366,19 +332,16 @@ There you go! After getting to know about these Pokemon Go regional maps for Pac
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-direct.techidaily.com/new-in-2024-simplify-your-life-with-time-lapsing-on-samsung-gear/"><u>[New] In 2024, Simplify Your Life with Time-Lapsing on Samsung Gear</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-unlocking-the-power-of-social-medias-fb-covers/"><u>[Updated] 2024 Approved Unlocking the Power of Social Media's FB Covers</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-internets-icons-global-youtuber-subscriber-winners/"><u>[Updated] In 2024, Internet's Icons Global YouTuber Subscriber Winners</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-saving-your-iphone-screen-a-step-by-step-approach/"><u>[Updated] In 2024, Saving Your iPhone Screen A Step-by-Step Approach</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-thrifty-computer-solutions-through-perfect-obs-arrangement/"><u>[Updated] In 2024, Thrifty Computer Solutions Through Perfect OBS Arrangement</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/additional-tips-about-sinnoh-stone-for-infinix-smart-8-pro-drfone-by-drfone-virtual-android/"><u>Additional Tips About Sinnoh Stone For Infinix Smart 8 Pro | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/how-to-come-up-with-the-best-pokemon-team-on-apple-iphone-11-pro-max-drfone-by-drfone-virtual-ios/"><u>How to Come up With the Best Pokemon Team On Apple iPhone 11 Pro Max? | Dr.fone</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-sign-xlsx-by-digital-signature-by-ldigisigner-sign-a-excel-sign-a-excel/"><u>How to sign .xlsx by digital signature</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-stop-life360-from-tracking-you-on-motorola-razr-40-drfone-by-drfone-virtual-android/"><u>How to Stop Life360 from Tracking You On Motorola Razr 40? | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-apple-iphone-xs-drfone-by-drfone-virtual-ios/"><u>In 2024, Can I use iTools gpx file to catch the rare Pokemon On Apple iPhone XS | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-here-are-different-ways-to-find-pokemon-go-trainer-codes-to-add-to-your-account-on-apple-iphone-14-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, Here are Different Ways to Find Pokemon Go Trainer Codes to Add to Your Account On Apple iPhone 14 Pro | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-can-i-catch-the-regional-pokemon-without-traveling-on-apple-iphone-14-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, How Can I Catch the Regional Pokémon without Traveling On Apple iPhone 14 Pro | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-apple-iphone-8-plus-drfone-by-drfone-virtual-ios/"><u>Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Apple iPhone 8 Plus | Dr.fone</u></a></li>
-<li><a href="https://win-able.techidaily.com/overcome-failed-connection-restore-communication-between-your-computer-and-steam-client/"><u>Overcome 'Failed Connection' – Restore Communication Between Your Computer and Steam Client</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-motivating-hr-chronicles-the-best-ten-vids/"><u>[New] Motivating HR Chronicles - The Best Ten Vids</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-2024-approved-unveiling-the-truth-apples-face-id-against-samsung-writers-face-matching/"><u>[Updated] 2024 Approved Unveiling the Truth Apple's Face ID Against Samsung’ Writers' Face-Matching</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-behind-the-scenes-mastering-the-craft-of-streaming-archiving-for-2024/"><u>[Updated] Behind the Scenes Mastering the Craft of Streaming Archiving for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-channel-acquisition-101-maximizing-youtubers-earnings/"><u>[Updated] In 2024, Channel Acquisition 101 Maximizing Youtubers' Earnings</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-apple-iphone-13-drfone-by-drfone-virtual-ios/"><u>15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Apple iPhone 13 | Dr.fone</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/choosing-the-best-ai-companion-gemini-vs-chatgpt-plus/"><u>Choosing the Best AI Companion: Gemini Vs. ChatGPT Plus</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/hacks-to-do-pokemon-go-trainer-battles-for-apple-iphone-13-mini-drfone-by-drfone-virtual-ios/"><u>Hacks to do pokemon go trainer battles For Apple iPhone 13 mini | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-to-come-up-with-the-best-pokemon-team-on-apple-iphone-12-mini-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Come up With the Best Pokemon Team On Apple iPhone 12 mini? | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-apple-iphone-11-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, What is the best Pokemon for pokemon pvp ranking On Apple iPhone 11 Pro Max? | Dr.fone</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/tackle-windows-camera-problems-with-expert-tips/"><u>Tackle Windows Camera Problems with Expert Tips</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/unlocking-value-in-smartphones-is-motorola-one-as-good-as-an-iphone-at-half-the-price/"><u>Unlocking Value in Smartphones - Is Motorola One as Good as an iPhone, at Half The Price?</u></a></li>
 </ul></div>
 

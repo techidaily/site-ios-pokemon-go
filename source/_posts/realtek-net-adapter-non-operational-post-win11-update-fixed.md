@@ -1,7 +1,7 @@
 ---
 title: Realtek Net Adapter Non-Operational Post Win11 Update (Fixed)
-date: 2024-11-10T01:00:35.343Z
-updated: 2024-11-15T03:35:25.739Z
+date: 2024-11-16T21:31:29.951Z
+updated: 2024-11-24T08:05:13.828Z
 tags:
   - win11
   - win10
@@ -45,6 +45,10 @@ netsh int ip reset c:\resetlog.txt
 
 ![](https://images.drivereasy.com/wp-content/uploads/2017/01/img_587de2ea5a2ef.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  This will help you reset your TCP/IP (Transmission Control Protocol/Internet Protocol). To make it easier to understand, TCP/IP is the language that your computer uses to communicate with the outside world. Reseting TCP/IP will help you revert your Internet settings to the stage where it still works.
 
 ---
@@ -60,27 +64,17 @@ netsh int ip reset c:\resetlog.txt
 
 ![](https://images.drivereasy.com/wp-content/uploads/2017/01/img_587de65b229a9.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  4) Go to**Advanced** tab, then choose**Speed & Duplex** option on the left side of the pane.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2017/01/img_587de6ed4d026.png)
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1061528/11832" target="_top" id="1061528">
-  <img src="//a.impactradius-go.com/display-ad/11832-1061528" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1061528/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  5) On the**Value** bar, change the default Auto Negotiation to **100 Mbps Full Duplex**  or some other options accordingly. We chose**100 Mbps Full Duplex** here, but yours could be different.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2017/01/img_587deb007e7e1.png)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137225/26400" target="_top" id="2137225">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137225" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137225/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  6) Now on the left side of the pane, choose**Energy Efficient Ethernet** option, then change the Value to**Disabled** . After the changes, hit**OK** to save.
 
@@ -92,40 +86,31 @@ netsh int ip reset c:\resetlog.txt
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135393/19272" target="_top" id="2135393">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135393" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135393/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### **Option Three:** **Reinstall or Rollback Realtek Adapter Driver**
 
  1) Press**Windows key** and**X** at the same time, then choose**Device Manager** .
 ![](https://images.drivereasy.com/wp-content/uploads/2017/01/img_587de5537df74.png)
  2) Locate and click the arrow to expand the category**Network adapters** .
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![](https://images.drivereasy.com/wp-content/uploads/2017/01/img_587de66c519eb.png)
  3) Then right-click click**Realtek PCIe GBE Family Controller** option and then choose**Uninstall** .
-
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826">
-  <img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2017/01/img_587dee15b99f3.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144289/7443" target="_top" id="2144289">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144289" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144289/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Hit**OK** to continue.
 ![](https://images.drivereasy.com/wp-content/uploads/2017/01/img_587dee50286a0.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  4) Go to the menu bar on the top and click the button for **Scan for hardware changes** .  
 ![](https://images.drivereasy.com/wp-content/uploads/2017/01/img_587dee9a707c2.png)
@@ -135,13 +120,6 @@ netsh int ip reset c:\resetlog.txt
  If you clearly remember that your Ethernet stops working after you update to a certain version of the driver, it is suggested that you roll it back to the stage where it was working well.
 
 ---
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130869/7443" target="_top" id="2130869">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130869" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130869/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### **Option Four: Update the Realtek Driver**
 
@@ -159,11 +137,19 @@ netsh int ip reset c:\resetlog.txt
 
 ![](https://images.drivereasy.com/wp-content/uploads/2023/03/Driver-Easy-download-needed-1200x900.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  3) Click the **Update** button next to the Realtek PCIe driver to automatically download the correct version of this driver, then you can manually install it (you can do this with the FREE version).
 
  Or click **Update All**  to automatically download and install the correct version of _all_   the drivers that are missing or out of date on your system (this requires the Pro version – you’ll be prompted to upgrade when you click Update All).
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/11/update-network-adapter-driver.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Hopefully the tips above help you fix the Realtek Ethernet Controller driver not working issue. If you have any questions or ideas, feel free to leave your comments below, please.
 
@@ -184,15 +170,18 @@ netsh int ip reset c:\resetlog.txt
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-revolutionary-recording-techniques-for-ipads-for-2024/"><u>[Updated] Revolutionary Recording Techniques for iPads for 2024</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/a-detailed-pokemon-go-pvp-tier-list-to-make-you-a-pro-trainer-for-apple-iphone-6-drfone-by-drfone-virtual-ios/"><u>A Detailed Pokemon Go PvP Tier List to Make you a Pro Trainer For Apple iPhone 6 | Dr.fone</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209776255-9781644110355-ancestral-healing-for-your-spiritual-and-genetic-families/"><u>Ancestral Healing for Your Spiritual and Genetic Families | Free Book</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/bez-povoleni-jak-snaset-hledatelne-setkani-na-zoom-rozhodnutelne-recepty/"><u>Bez Povolení Jak Snášet Hledatelné Setkání Na Zoom: Rozhodnutelné Recepty</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/catchemall-celebrate-national-pokemon-day-with-virtual-location-on-apple-iphone-8-drfone-by-drfone-virtual-ios/"><u>CatchEmAll Celebrate National Pokémon Day with Virtual Location On Apple iPhone 8 | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/elite-5-screen-grab-for-fb-movies/"><u>Elite 5 Screen Grab for FB Movies</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-best-pokemons-for-pvp-matches-in-pokemon-go-for-apple-iphone-14-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, Best Pokemons for PVP Matches in Pokemon Go For Apple iPhone 14 Plus | Dr.fone</u></a></li>
-<li><a href="https://fox-place.techidaily.com/install-microsoft-windows-11-sur-un-nouveau-disque-dur-decouvrez-deux-methodes-faciles-a-suivre/"><u>Install Microsoft Windows 11 Sur Un Nouveau Disque Dur : Découvrez Deux Méthodes Faciles À Suivre</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/the-best-ispoofer-alternative-to-try-on-apple-iphone-6s-drfone-by-drfone-virtual-ios/"><u>The Best iSpoofer Alternative to Try On Apple iPhone 6s | Dr.fone</u></a></li>
-<li><a href="https://audio-editing.techidaily.com/updated-audio-integration-in-motion-picture-editing-a-step-by-step-approach/"><u>Updated Audio Integration in Motion Picture Editing A Step-by-Step Approach</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-maximize-mobile-viewing-sharper-chromebook-and-phone-videos/"><u>[New] In 2024, Maximize Mobile Viewing Sharper Chromebook and Phone Videos</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/our-content-anytime-anywhere-choose-from-these-best-free-and-online-downloads/"><u>[New] Your Content, Anytime, Anywhere Choose From These Best Free & Online Downloads</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-mycam-reviewed-how-it-meets-expectations-for-home-recorders/"><u>[Updated] In 2024, MyCam Reviewed How It Meets Expectations for Home Recorders</u></a></li>
+<li><a href="https://howto.techidaily.com/calls-on-nokia-c110-go-straight-to-voicemail-12-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Calls on Nokia C110 Go Straight to Voicemail? 12 Fixes | Dr.fone</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/cutting-edge-choices-best-6-mac-video-grabber-apps/"><u>Cutting-Edge Choices Best 6 Mac Video Grabber Apps</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/effortless-guide-turning-excels-rows-into-columns-with-tips-and-tricks/"><u>Effortless Guide: Turning Excel's Rows Into Columns with Tips and Tricks</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/fixing-windows-silent-auditory-alerts/"><u>Fixing Windows' Silent Auditory Alerts</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/get-ahead-of-the-curve-with-apples-new-799-m2-macbook-air-before-octobers-prime-day-rush-tech-insights-by-zdnet/"><u>Get Ahead of the Curve with Apple's New $799 M2 MacBook Air Before October’s Prime Day Rush | Tech Insights by ZDNet</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-apple-iphone-se-drfone-by-drfone-virtual-ios/"><u>In 2024, Here are Some Pro Tips for Pokemon Go PvP Battles On Apple iPhone SE | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-to-enter-the-ispoofer-discord-server-on-apple-iphone-12-mini-drfone-by-drfone-virtual-ios/"><u>In 2024, How to enter the iSpoofer discord server On Apple iPhone 12 mini | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-preparation-to-beat-giovani-in-pokemon-go-for-apple-iphone-6s-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, Preparation to Beat Giovani in Pokemon Go For Apple iPhone 6s Plus | Dr.fone</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-quick-musical-notes-understanding-youtube-shorts/"><u>In 2024, Quick Musical Notes Understanding YouTube Shorts</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-apple-iphone-7-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, Unova Stone Pokémon Go Evolution List and How Catch Them For Apple iPhone 7 Plus | Dr.fone</u></a></li>
 </ul></div>
 

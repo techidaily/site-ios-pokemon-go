@@ -1,7 +1,7 @@
 ---
 title: Where Is the Best Place to Catch Dratini On Apple iPhone XS | Dr.fone
-date: 2024-11-08T22:49:48.282Z
-updated: 2024-11-14T19:02:48.650Z
+date: 2024-11-17T07:20:05.000Z
+updated: 2024-11-23T18:08:22.086Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -21,6 +21,10 @@ Dratini is one of the Pokémon creatures that resemble a snake. It has an elonga
 
 Dratini has an energy level that is constantly increasing, which makes it grow and can reach a length of more than 6 feet. It sheds its skin every time it has to grow, and usually hide behind a waterfall when shedding. The colony of Dratini lives underwater, living at the bottom feeding on food that falls from the upper levels. Outrage is the signature move for this Pokémon creature.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: What’s the evolution of Dratini?
 
 Dratini undergoes two different evolutions
@@ -39,6 +43,10 @@ This is a Pokémon character that truly resembles a dragon and is the second evo
 
 Dragonite can fly at very high speeds despite its bulky appearance. It is a kindhearted Pokémon, which is as intelligent as a human being. It has been found to have tendencies to save humans from disasters, such as saving those who have come from a capsized ship on the high seas. It lives near the sea and is extremely rare in the Pokémon world.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2: Where can I find the Dratini nest?
 
 Dratini is a Pokémon that lives in the water. Since it loves lakes and seas, you can find it when you visit areas that are near water. For example, in the United States, the most famous nests for Dratini are found in North Eastern San Francisco, Pier 39 and Pier 15. You will always find Dratini at these sites and they are famous for people who want to farm Dratini.
@@ -48,6 +56,10 @@ You may also g West to Squirtle Nest where you can get a lot of Dratini.
 Dratini has a 5% spawning chance every day, so if you have the time, you can spend it on these sites as you enjoy the watery view and wait for it to appear.
 
 Dratini nests can also be found in other parts of the world, such as Tokyo, Japan; Sydney and New South Wales, Australia; Paris, France and others.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3: Are the Dratini nest and spawn spot in the same place?
 
@@ -82,29 +94,19 @@ Next, click on “Get Started”; you will now be able to start the spoofing pro
 
 ![virtual location 01](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118312/7443" target="_top" id="2118312">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118312" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118312/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Looking at the map, you can now see the actual location of your device. If the coordinates are not the correct ones, go to the bottom of your computer screen and click on the “Current Virtual location” icon. This will instantly point to the current virtual location of your device.
 
 ![virtual location 03](https://images.wondershare.com/drfone/guide/virtual-location-03.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Now go to the top side of your computer screen and click on the third icon on the bar. This instantly puts you in “teleport” mode. Now enter the coordinates of the Dratini nest that you have located. Hit the “Go” button and your device will instantly be teleported to the coordinates you entered.
 
 The image below shows an example of coordinates entered for Rome, Italy.
 
 ![virtual location 04](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135415/19272" target="_top" id="2135415">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135415" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135415/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Once you have successfully teleported your device, you will be able to navigate to the area where the Dratini nest has been found. You can use the joystick feature for this. You should also click on “Move here” so your location is permanently moved to that place.
 
@@ -114,13 +116,6 @@ Camping and looking for other Pokémon in the area will help you cool down and t
 
 ![virtual location 05](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118319/7443" target="_top" id="2118319">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118319" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118319/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 This is how your location will be viewed on the map.
 
 ![virtual location 06](https://images.wondershare.com/drfone/guide/virtual-location-06.png)
@@ -129,31 +124,25 @@ This is how your location will be viewed on another iPhone device.
 
 ![virtual location 07](https://images.wondershare.com/drfone/guide/virtual-location-07.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902278/19272" target="_top" id="1902278">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902278" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902278/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111967/7443" target="_top" id="2111967">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111967" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111967/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## In conclusion
 
 Dratini is one of the most friendly but rare Pokémon to get. It can evolve from a small serpentine worm, into a might, good-hearted dragon. This is one of the Pokémon that people love to farm for trading and taking part in raids and such events.
 
 When you need to, you can teleport your device to an area where Dratini is popular using [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) (iOS). Use the Dratini nest maps to find Dratini, and then visit the area or teleport there.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How and Where to Find a Shiny Stone Pokémon For Apple iPhone XS?
 
 Shiny Stone Pokémon is an important evolution item in Pokémon Sword and Shield. If you are a Pokémon player, you understand how great it is to capture a Shiny Stone. However, the Shiny Stone is a rare item, and you will have to put more work to grab one. In this article, we will to explain to you everything you ought to know about Shiny Stone Pokémon, including how to get them with less effort. Let’s get started.
 
 ## Part 1. Shiny Stone Pokémon
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### What is Shiny Stone Evolution?
 
@@ -164,13 +153,6 @@ A Shiny Stone is an item in Pokémon Go that is used to evolve certain Pokémon.
 ### How and where to find a Shiny Stone evolution
 
 In Pokémon Sword and Shield, the easiest way to get any evolution stone, including Shiny Stone, is by completing poke jobs. When you earn a water badge and then the gym badge, you can access the third tier poke jobs. Everything further will depend on whether your Pokémon perform great in their assigned jobs. If it performs great, you will be rewarded with an evolution stone that could be a Shiny Stone. If you want your Pokémon to do a great job, make sure you meticulously read through the summary of every given poke job. This is vital because it provides you a clue of what Pokémon you should pick.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012420/19272" target="_top" id="2012420">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012420" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012420/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Shiny Stone Evolution
 
@@ -226,6 +208,10 @@ If you are just starting with Pokemon Go, then you might see Pokemon stops all a
 
 ![Pokemon Go Stops Guide](https://images.wondershare.com/drfone/2020/202010/everything-about-pokemon-stops-1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: What are Pokemon Stops in Pokemon Go?
 
 In nutshell, Pokemon Go stops are dedicated places in the Pokemon Go map that can be visited to collect valuable items. For instance, you can obtain eggs, Poke balls, potions, and other game-related items from a Pokemon Go stop near you. At times, even a Pokemon can be found roaming nearby a Pokemon Go stop.
@@ -235,10 +221,7 @@ Mostly, Pokemon stops are located at important buildings, monuments, art install
 ![Exploring Pokemon Go Stops](https://images.wondershare.com/drfone/2020/202010/everything-about-pokemon-stops-2.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036486/19272" target="_top" id="2036486">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036486" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036486/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: How to use Lure Modules on Poke Stops in Pokemon Go?
@@ -293,22 +276,23 @@ Subsequently, also connect your Apple iPhone XS to the system using a working ca
 
 ![launch the Virtual Location](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ****Step 2: Enter the Details of the Target Location****
 
 Once your Apple iPhone XS is detected by the interface, its present location would be displayed with other details. To spoof the location of your Apple iPhone XS on Pokemon Go, you can click on the Teleport Mode icon from the top.
 
 ![launch the Virtual Location](https://images.wondershare.com/drfone/guide/virtual-location-03.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094418/7443" target="_top" id="2094418">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094418" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094418/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Now, you can go to the search options on the top-left side and enter the address or exact coordinates of the Pokestop. You can find the location of a Pokestop from several freely available online sources.
 
 ![virtual location 04](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ****Step 3: Spoof your Apple iPhone XS Location to a Pokemon stop****
 
@@ -334,21 +318,18 @@ I’m sure that after reading this post, you would be able to know about Poke st
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-approaches.techidaily.com/2024-approved-instantaneous-windows-photo-explorer/"><u>2024 Approved Instantaneous Windows Photo Explorer</u></a></li>
-<li><a href="https://win-answers.techidaily.com/1726027954865-2024/"><u>最高の音楽編集ソフトを選ぶには？【2024年版リコメンデーション】</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/best-app-for-gamers-fraps-vs-obs-studio-review/"><u>Best App for Gamers Fraps Vs. OBS Studio Review</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/chatgpt-plugins-galore-vital-enhancements-for-next-gen-user-engagement/"><u>ChatGPT Plugins Galore: Vital Enhancements for Next-Gen User Engagement</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/how-to-unlock-iphone-14-plus-without-passcode-or-face-id-by-drfone-ios/"><u>How to Unlock iPhone 14 Plus without Passcode or Face ID</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-best-pokemons-for-pvp-matches-in-pokemon-go-for-apple-iphone-8-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, Best Pokemons for PVP Matches in Pokemon Go For Apple iPhone 8 Plus | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-to-enter-the-ispoofer-discord-server-on-apple-iphone-15-drfone-by-drfone-virtual-ios/"><u>In 2024, How to enter the iSpoofer discord server On Apple iPhone 15 | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-to-enter-the-ispoofer-discord-server-on-apple-iphone-xr-drfone-by-drfone-virtual-ios/"><u>In 2024, How to enter the iSpoofer discord server On Apple iPhone XR | Dr.fone</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-reset-a-vivo-v29-pro-phone-that-is-locked-by-drfone-android/"><u>In 2024, How to Reset a Vivo V29 Pro Phone that is Locked?</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-to-use-pokemon-emerald-master-ball-cheat-on-apple-iphone-11-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Use Pokémon Emerald Master Ball Cheat On Apple iPhone 11 Pro | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-to-use-pokemon-go-joystick-on-apple-iphone-12-mini-drfone-by-drfone-virtual-ios/"><u>In 2024, How to use Pokemon Go Joystick on Apple iPhone 12 mini? | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-why-cant-i-install-the-ipogo-on-apple-iphone-se-drfone-by-drfone-virtual-ios/"><u>In 2024, Why cant I install the ipogo On Apple iPhone SE | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-why-does-the-pokemon-go-battle-league-not-available-on-apple-iphone-se-drfone-by-drfone-virtual-ios/"><u>In 2024, Why does the pokemon go battle league not available On Apple iPhone SE | Dr.fone</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/innovative-tech-for-live-video-recording-webcam-with-vlc/"><u>Innovative Tech for Live Video Recording – Webcam with VLC</u></a></li>
-<li><a href="https://video-ai-editor.techidaily.com/top-10-video-editing-software-options-beyond-final-cut-pro-x/"><u>Top 10 Video Editing Software Options Beyond Final Cut Pro X</u></a></li>
-<li><a href="https://games-able.techidaily.com/transform-your-computer-gaming-experience-through-steam-deck/"><u>Transform Your Computer Gaming Experience Through Steam Deck</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-fine-tune-video-quality-for-instagram-excellence/"><u>[Updated] Fine-Tune Video Quality for Instagram Excellence</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/2024-approved-the-ultimate-guide-for-pc-based-tiktok-livestreams/"><u>2024 Approved The Ultimate Guide for PC-Based TikTok Livestreams</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/best-pokemons-for-pvp-matches-in-pokemon-go-for-apple-iphone-se-2020-drfone-by-drfone-virtual-ios/"><u>Best Pokemons for PVP Matches in Pokemon Go For Apple iPhone SE (2020) | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/decoding-ig-analytics-mastering-the-art-of-social-media-insights-for-2024/"><u>Decoding IG Analytics Mastering the Art of Social Media Insights for 2024</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/how-to-use-pokemon-emerald-master-ball-cheat-on-apple-iphone-7-plus-drfone-by-drfone-virtual-ios/"><u>How to Use Pokémon Emerald Master Ball Cheat On Apple iPhone 7 Plus | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-a-detailed-pokemon-go-pvp-tier-list-to-make-you-a-pro-trainer-for-apple-iphone-15-drfone-by-drfone-virtual-ios/"><u>In 2024, A Detailed Pokemon Go PvP Tier List to Make you a Pro Trainer For Apple iPhone 15 | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-revolutionize-your-views-non-xplit-applications/"><u>In 2024, Revolutionize Your Views Non-Xplit Applications</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-why-is-ipogo-not-working-on-apple-iphone-12-pro-max-fixed-drfone-by-drfone-virtual-ios/"><u>In 2024, Why is iPogo not working On Apple iPhone 12 Pro Max? Fixed | Dr.fone</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/in-depth-evaluation-why-the-linksys-wrt1ebylinksyswrt1900acsopensourcerouter-is-a-top-choice/"><u>In-Depth Evaluation: Why the Linksys WRT1ebyLinksysWRT1900ACS_Open_Source_Router Is a Top Choice</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/resolving-the-gsdldll32dll-missing-file-effective-troubleshooting-steps/"><u>Resolving the 'gsdldll32.dll' Missing File: Effective Troubleshooting Steps</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/troubleshooting-tips-successfully-enabling-safe-mode-in-windows-10-when-f8-isnt-responding/"><u>Troubleshooting Tips: Successfully Enabling Safe Mode in Windows 10 When F8 Isn't Responding</u></a></li>
+<li><a href="https://fake-location.techidaily.com/which-is-the-best-fake-gps-joystick-app-on-apple-iphone-7-drfone-by-drfone-virtual-ios/"><u>Which is the Best Fake GPS Joystick App On Apple iPhone 7? | Dr.fone</u></a></li>
+<li><a href="https://games-able.techidaily.com/will-xboxs-alliance-with-activision-benefit-gamers/"><u>Will Xbox's Alliance with Activision Benefit Gamers?</u></a></li>
 </ul></div>
 

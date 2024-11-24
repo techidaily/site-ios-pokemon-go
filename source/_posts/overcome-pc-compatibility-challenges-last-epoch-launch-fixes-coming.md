@@ -1,7 +1,7 @@
 ---
 title: "Overcome PC Compatibility Challenges: Last Epoch Launch Fixes Coming"
-date: 2024-11-08T17:57:46.429Z
-updated: 2024-11-15T02:26:21.065Z
+date: 2024-11-21T19:30:47.770Z
+updated: 2024-11-23T20:10:20.618Z
 tags:
   - win11
   - win10
@@ -45,16 +45,13 @@ thumbnail: https://thmb.techidaily.com/c563864243d3f7e3fd56bac1818e569ba605d41e0
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/03/image-585-1024x582.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  3\. Wait until you see the following message. Then click**Close** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/03/image-586.png)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997648/19272" target="_top" id="1997648">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997648" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997648/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  4\. Run Apex Legends to see if you can pass the loading screen. If not, or there was no new game patch available, try the next fix, below.
 
@@ -79,26 +76,20 @@ thumbnail: https://thmb.techidaily.com/c563864243d3f7e3fd56bac1818e569ba605d41e0
 ![](https://images.drivereasy.com/wp-content/uploads/2019/03/image-581.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111981/7443" target="_top" id="2111981">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111981" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111981/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  3\. Click **Update** next to your device to automatically download the correct version of its driver, then you can install it manually. Or click **Update All** to automatically download and install the correct version of _all_ the drivers that are missing or out of date on your system (This requires the **[Pro version](https://tools.techidaily.com/drivereasy/download/)**  – you’ll be prompted to upgrade when you click **Update All.**  You get **full support** and a **30-day money back** guarantee).
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/03/image-582.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  You can do it for free if you like, but it’s partly manual.
 
  If you need assistance, please contact **Driver Easy’s support team** at **[support@drivereasy.com](https://tools.techidaily.com/drivereasy/download/)**  .
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012401/19272" target="_top" id="2012401">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012401" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012401/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Fix 3: Flush your DNS
 
@@ -108,16 +99,13 @@ thumbnail: https://thmb.techidaily.com/c563864243d3f7e3fd56bac1818e569ba605d41e0
 
 ![](https://www.supereasy.com/wp-content/uploads/2018/09/1-2.png)
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484910/16446" target="_top" id="1484910">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484910" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484910/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  2\. Type the command line **ipconfig /flushdns**  and press **Enter**  on your keyboard.
 
 ![](https://www.supereasy.com/wp-content/uploads/2018/09/Snap361-2.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  3\. Launch Apex Legends to see if you resolved this issue. If not, don’t worry. Try the next fix, below.
 
@@ -154,6 +142,10 @@ thumbnail: https://thmb.techidaily.com/c563864243d3f7e3fd56bac1818e569ba605d41e0
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/03/image-591-1024x582.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 3\. Wait until the verifying process completes.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/03/image-343-1024x728.png)
@@ -161,10 +153,7 @@ thumbnail: https://thmb.techidaily.com/c563864243d3f7e3fd56bac1818e569ba605d41e0
  4\. Launch Apex Legends when the verifying progress completes to see if this issue is resolved. If this issue reappears, try the next fix, below.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144298/7443" target="_top" id="2144298">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144298" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144298/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Fix 6: Play with VPN
@@ -188,26 +177,20 @@ thumbnail: https://thmb.techidaily.com/c563864243d3f7e3fd56bac1818e569ba605d41e0
 ![](https://images.drivereasy.com/wp-content/uploads/2019/01/snap000383.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105860/7443" target="_top" id="2105860">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105860" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105860/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  4\. Click**Quick connect** to automatically connect to the server recommended for you. If you want to connect to another VPN server in a specific country, just select the server you want to connect to on the left panel, or click on the country pin on the map.
 
 ![This image has an empty alt attribute; its file name is Snap915.png](https://images.drivereasy.com/wp-content/uploads/2019/01/Snap915.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094479/7443" target="_top" id="2094479">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094479" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094479/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 5\. Launch Apex Legends and enjoy the game with your friends.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/03/image-590.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Fix 7: Reinstall Apex Legends
 
@@ -240,18 +223,18 @@ thumbnail: https://thmb.techidaily.com/c563864243d3f7e3fd56bac1818e569ba605d41e0
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/rofit-potential-unveiled-comparing-content-platforms-strategies/"><u>[New] Profit Potential Unveiled Comparing Content Platforms' Strategies</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-save-your-android-and-mac-snapchat-footage-effectively-for-2024/"><u>[New] Save Your Android & Mac Snapchat Footage Effectively for 2024</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-in-2024-boost-your-buzz-telegram-tactics-for-impactful-promotion/"><u>[Updated] In 2024, Boost Your Buzz Telegram Tactics for Impactful Promotion</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/a-detailed-pokemon-go-pvp-tier-list-to-make-you-a-pro-trainer-for-apple-iphone-7-plus-drfone-by-drfone-virtual-ios/"><u>A Detailed Pokemon Go PvP Tier List to Make you a Pro Trainer For Apple iPhone 7 Plus | Dr.fone</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/ace-google-meet-selecting-ideal-video-call-bgs/"><u>Ace Google Meet Selecting Ideal Video Call BGs</u></a></li>
-<li><a href="https://apple-account.techidaily.com/can-i-remove-the-apple-watch-activation-lock-by-iphone-12-pro-without-the-previous-owner-by-drfone-ios/"><u>Can I Remove the Apple Watch Activation Lock By iPhone 12 Pro without the Previous Owner?</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/how-to-use-pokemon-emerald-master-ball-cheat-on-apple-iphone-xs-drfone-by-drfone-virtual-ios/"><u>How to Use Pokémon Emerald Master Ball Cheat On Apple iPhone XS | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-apple-iphone-6s-drfone-by-drfone-virtual-ios/"><u>In 2024, 4 solution to get rid of pokemon fail to detect location On Apple iPhone 6s | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-planning-to-use-a-pokemon-go-joystick-on-apple-iphone-8-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, Planning to Use a Pokemon Go Joystick on Apple iPhone 8 Plus? | Dr.fone</u></a></li>
-<li><a href="https://games-able.techidaily.com/mastering-stealth-minimize-your-digital-footprints/"><u>Mastering Stealth: Minimize Your Digital Footprints</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/ultimate-guide-to-catch-the-regional-located-pokemon-for-apple-iphone-11-drfone-by-drfone-virtual-ios/"><u>Ultimate Guide to Catch the Regional-Located Pokemon For Apple iPhone 11 | Dr.fone</u></a></li>
-<li><a href="https://fox-http.techidaily.com/unveiling-the-top-10-timing-apps-for-weddings-on-smartphones-for-2024/"><u>Unveiling the Top 10 Timing Apps for Weddings on Smartphones for 2024</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/ways-to-trade-pokemon-go-from-far-away-on-apple-iphone-13-mini-drfone-by-drfone-virtual-ios/"><u>Ways to trade pokemon go from far away On Apple iPhone 13 mini? | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-the-ultimate-tutorial-for-adding-gifs-and-emojis-in-instagram-stories/"><u>[New] The Ultimate Tutorial for Adding GIFs & Emojis in Instagram Stories</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-2024-approved-best-image-safekeepers-online/"><u>[Updated] 2024 Approved Best Image Safekeepers Online</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-how-youtube-really-measures-your-contents-popularity/"><u>[Updated] How YouTube Really Measures Your Content's Popularity</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-synchronizing-with-instagram-perfect-video-integration/"><u>2024 Approved Synchronizing With Instagram Perfect Video Integration</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/available-now-microsoft-copilotplus-devices-your-guide-to-the-latest-snapdragon-elite-x-series/"><u>Available Now: Microsoft Copilot+ Devices - Your Guide to the Latest Snapdragon Elite X Series</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/boost-productivity-with-split-screen-features-on-your-ipad-why-its-a-must-try-according-to-zdnet-experts/"><u>Boost Productivity with Split-Screen Features on Your iPad | Why It's a Must-Try According to ZDNet Experts</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-full-guide-to-catch-100-iv-pokemon-using-a-map-on-apple-iphone-15-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, Full Guide to Catch 100 IV Pokémon Using a Map On Apple iPhone 15 Pro | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-can-i-catch-the-regional-pokemon-without-traveling-on-apple-iphone-14-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, How Can I Catch the Regional Pokémon without Traveling On Apple iPhone 14 Plus | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-pokemon-go-error-12-failed-to-detect-location-on-apple-iphone-15-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, Pokemon Go Error 12 Failed to Detect Location On Apple iPhone 15 Plus? | Dr.fone</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/optimizing-your-gmail-experience-through-effective-message-sorting-and-address-expansion/"><u>Optimizing Your Gmail Experience Through Effective Message Sorting and Address Expansion</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/the-most-useful-tips-for-pokemon-go-ultra-league-on-apple-iphone-12-pro-max-drfone-by-drfone-virtual-ios/"><u>The Most Useful Tips for Pokemon Go Ultra League On Apple iPhone 12 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-apple-iphone-14-pro-max-drfone-by-drfone-virtual-ios/"><u>Unova Stone Pokémon Go Evolution List and How Catch Them For Apple iPhone 14 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://games-able.techidaily.com/x-overhaul-transforms-gaming-console-experience/"><u>X Overhaul Transforms Gaming Console Experience</u></a></li>
 </ul></div>
 

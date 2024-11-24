@@ -1,7 +1,7 @@
 ---
 title: Troubleshooting Microsoft Teams Microphone Problems on Windows 11/10 Devices
-date: 2024-11-12T17:22:37.667Z
-updated: 2024-11-15T03:32:53.316Z
+date: 2024-11-20T04:07:04.954Z
+updated: 2024-11-24T04:13:31.846Z
 tags:
   - win11
   - win10
@@ -30,10 +30,7 @@ Before you start, make sure your headset is working properly.
 5. [**Repair system files**](https://tools.techidaily.com/drivereasy/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129740/7443" target="_top" id="2129740">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129740" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129740/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Fix 1: Enable Enhance audio
@@ -44,6 +41,10 @@ Before you start, make sure your headset is working properly.
 2. Go to**System > Sound > All sound devices** and choose your device.  
 ![](https://images.drivereasy.com/wp-content/uploads/2022/01/sound1.jpg)
 3. Scroll down to find**Enhance audio** . Turn Enhance audio on and then back off.  
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2022/01/sound2.jpg)
 4. Check your PC sound, it should be back to normal.
@@ -61,23 +62,13 @@ If this trick doesn’t work for you, please move to the next fix.
 ![](https://www.drivereasy.com/wp-content/uploads/2020/10/6_0_scan-now.jpg)
 3. Click**Update All** to automatically download and install the correct version of all the drivers that are missing or out of date on your system.  
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880944/19272" target="_top" id="1880944">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880944" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880944/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  (This requires the **[Pro version](https://tools.techidaily.com/drivereasy/download/)**  which comes with **full support**  and a **30-day money-back**  guarantee. You’ll be prompted to upgrade when you click Update All. If you’re not ready to buy the Pro version, Driver Easy offers a 7-day free trial which includes access to all the Pro features such as high-speed download and one-click install. You won’t be charged anything until your 7-day trial has ended.)  
 
 ![](https://www.drivereasy.com/wp-content/uploads/2024/05/Realtek-High-Definition-Audio.jpg)
 4. Restart your computer for the changes to take effect.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118320/7443" target="_top" id="2118320">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118320" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118320/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **The Pro version of Driver Easy** comes with _full technical support_ . If you need assistance, please contact **Driver Easy’s support team** at **[support@drivereasy.com](https://tools.techidaily.com/drivereasy/download/) .**
@@ -96,33 +87,11 @@ If this fix doesn’t help, move to the next fix.
 3. Click**Browse my computer for drivers** .  
 
 <!-- affiliate ads begin -->
-<span id="1982461">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982461.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982461">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982461.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982461%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982461/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2022/01/sound5.jpg)
 4. Click**Let me pick from a list of available drivers on my computer** .  
-
-<!-- affiliate ads begin -->
-<span id="1983575">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983575.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983575">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983575.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983575%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983575/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2022/01/sound6.jpg)
 5. Check**Show compatible hardware** . Then click**High Definition Audio Device** \>**Next** .  
@@ -132,13 +101,6 @@ If this fix doesn’t help, move to the next fix.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2022/01/sound8.jpg)
 7. Restart your PC for the changes to take effect.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886015/19272" target="_top" id="1886015">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886015" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886015/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 8. Check the sound on your PC.
 
@@ -151,7 +113,15 @@ If this fix doesn’t help, move to the next fix.
 ![](https://images.drivereasy.com/wp-content/uploads/2022/01/sound9.jpg)
 3. Windows will check the latest available updates for you. If you have available updates, Windows 11 will download and install them automatically.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 4. After the whole process, restart your PC and check the effect.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Fix 5: Repair system files
 
@@ -168,14 +138,11 @@ If this fix doesn’t help, move to the next fix.
 ![](https://images.drivereasy.com/wp-content/uploads/2022/01/fortect-2.jpg)
 4. Once done, you’ll see a detailed report of all the issues on your PC. To fix them automatically, click**START REPAIR** . This requires you to purchase the full version. But don’t worry. If Fortect doesn’t solve the issue, you can request a refund within 60 days.  
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/994842/11832" target="_top" id="994842">
-  <img src="//a.impactradius-go.com/display-ad/11832-994842" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/994842/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![](https://images.drivereasy.com/wp-content/uploads/2022/01/fortect-3.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  The Pro version of Fortect comes with 24/7 technical support. If you need any assistance, please contact Fortect support:  
  Email: **<support@fortect.com>**
@@ -197,22 +164,24 @@ If this fix doesn’t help, move to the next fix.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-capture.techidaily.com/new-2024-approved-truescreenpro-windows-10s-choice/"><u>[New] 2024 Approved TrueScreenPro Windows 10'S Choice</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-explore-the-limitless-potential-of-fb-vr-upload-tips/"><u>[Updated] 2024 Approved Explore the Limitless Potential of FB VR Upload Tips</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-how-to-send-large-video-files-from-iphone-to-iphonepcmac/"><u>[Updated] 2024 Approved How to Send Large Video Files From iPhone to iPhone/PC/Mac</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-the-power-of-quantum-hdr-in-visual-arts/"><u>[Updated] The Power of Quantum HDR in Visual Arts</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-top-10-free-youtube-subtitle-extractors-and-downloaders/"><u>[Updated] Top 10 Free YouTube Subtitle Extractors & Downloaders</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-how-to-fade-in-and-fade-out-video-clips/"><u>2024 Approved How to Fade-In and Fade-Out Video Clips</u></a></li>
-<li><a href="https://extra-information.techidaily.com/best-7-macos-video-player-selections-for-2024/"><u>Best 7 MacOS Video Player Selections for 2024</u></a></li>
-<li><a href="https://location-social.techidaily.com/does-xiaomi-redmi-k70-have-find-my-friends-drfone-by-drfone-virtual-android/"><u>Does Xiaomi Redmi K70 Have Find My Friends? | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/here-are-some-of-the-best-pokemon-discord-servers-to-join-on-apple-iphone-11-pro-drfone-by-drfone-virtual-ios/"><u>Here are Some of the Best Pokemon Discord Servers to Join On Apple iPhone 11 Pro | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-apple-iphone-14-pro-drfone-by-drfone-virtual-ios/"><u>Here are Some Pro Tips for Pokemon Go PvP Battles On Apple iPhone 14 Pro | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-apple-iphone-11-pro-drfone-by-drfone-virtual-ios/"><u>How PGSharp Save You from Ban While Spoofing Pokemon Go On Apple iPhone 11 Pro? | Dr.fone</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/how-to-ensure-ai-systems-adhere-to-human-values-and-intentions/"><u>How to Ensure AI Systems Adhere to Human Values and Intentions</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/how-to-use-pokemon-go-joystick-on-apple-iphone-xs-drfone-by-drfone-virtual-ios/"><u>How to use Pokemon Go Joystick on Apple iPhone XS? | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-11-best-pokemon-go-spoofers-for-gps-spoofing-on-apple-iphone-se-drfone-by-drfone-virtual-ios/"><u>In 2024, 11 Best Pokemon Go Spoofers for GPS Spoofing on Apple iPhone SE | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-a-working-guide-for-pachirisu-pokemon-go-map-on-apple-iphone-15-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, A Working Guide For Pachirisu Pokemon Go Map On Apple iPhone 15 Pro Max | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/is-mega-mewtwo-the-strongest-pokemon-on-apple-iphone-se-2022-drfone-by-drfone-virtual-ios/"><u>Is Mega Mewtwo The Strongest Pokémon On Apple iPhone SE (2022)? | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/most-asked-questions-about-pokemon-go-battle-league-rewards-on-apple-iphone-se-2020-drfone-by-drfone-virtual-ios/"><u>Most Asked Questions about Pokemon Go Battle League Rewards On Apple iPhone SE (2020) | Dr.fone</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-in-2024-6-best-video-grabbers-for-mac/"><u>[Updated] In 2024, 6 Best Video Grabbers for Mac</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-apple-iphone-xs-drfone-by-drfone-virtual-ios/"><u>15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Apple iPhone XS | Dr.fone</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/2024-approved-streamlining-online-recording-of-webcamplusscreen/"><u>2024 Approved Streamlining Online Recording of Webcam+Screen</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/detailed-guide-of-ispoofer-for-pogo-installation-on-apple-iphone-6-drfone-by-drfone-virtual-ios/"><u>Detailed guide of ispoofer for pogo installation On Apple iPhone 6 | Dr.fone</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/how-to-download-audiocasts-without-paying-tips-for-extracting-sound-from-social-media-clips/"><u>How to Download Audiocasts without Paying: Tips for Extracting Sound From Social Media Clips</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/how-to-fix-pokemon-go-route-not-working-on-apple-iphone-14-pro-max-drfone-by-drfone-virtual-ios/"><u>How to Fix Pokemon Go Route Not Working On Apple iPhone 14 Pro Max? | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/how-to-get-and-use-pokemon-go-promo-codes-on-apple-iphone-6-drfone-by-drfone-virtual-ios/"><u>How to Get and Use Pokemon Go Promo Codes On Apple iPhone 6 | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-unlock-iphone-15-pro-max-when-we-dont-have-apple-id-or-password-by-drfone-ios/"><u>How to Unlock iPhone 15 Pro Max When We Dont Have Apple ID or Password?</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-do-you-get-sun-stone-evolutions-in-pokemon-for-apple-iphone-11-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, How Do You Get Sun Stone Evolutions in Pokémon For Apple iPhone 11 Pro Max? | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-is-mega-mewtwo-the-strongest-pokemon-on-apple-iphone-6-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, Is Mega Mewtwo The Strongest Pokémon On Apple iPhone 6 Plus? | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-is-pgsharp-legal-when-you-are-playing-pokemon-on-honor-x9a-drfone-by-drfone-virtual-android/"><u>In 2024, Is pgsharp legal when you are playing pokemon On Honor X9a? | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-planning-to-use-a-pokemon-go-joystick-on-apple-iphone-11-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, Planning to Use a Pokemon Go Joystick on Apple iPhone 11 Pro? | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-7-phone-number-locators-to-track-honor-magic-vs-2-location-drfone-by-drfone-virtual-android/"><u>In 2024, Top 7 Phone Number Locators To Track Honor Magic Vs 2 Location | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-apple-iphone-6-drfone-by-drfone-virtual-ios/"><u>In 2024, Will Pokémon Go Ban the Account if You Use PGSharp On Apple iPhone 6 | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/reasons-why-pokemon-gps-does-not-work-on-apple-iphone-se-2020-drfone-by-drfone-virtual-ios/"><u>Reasons why Pokémon GPS does not Work On Apple iPhone SE (2020)? | Dr.fone</u></a></li>
+<li><a href="https://win-forum.techidaily.com/step-by-step-guide-to-sort-and-organize-android-apps-via-revo-uninstaller/"><u>Step-by-Step Guide to Sort and Organize Android Apps via Revo Uninstaller</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/top-5-high-performance-coolers-reviewed-insights-from-zdnet/"><u>Top 5 High-Performance Coolers Reviewed - Insights From ZDNet</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/watch-dvds-on-windows-10-top-10-free-player-software-for-2024/"><u>Watch DVDs on Windows 10 Top 10 Free Player Software for 2024</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/1726221662369-vobasf-movavi/"><u>무료 VOB/ASF 변환기: 원근 오픈 소스를 사용한 쉽고 효과적인 통합 방법 - Movavi</u></a></li>
 </ul></div>
 

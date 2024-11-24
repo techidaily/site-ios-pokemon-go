@@ -1,7 +1,7 @@
 ---
 title: Where Is the Best Place to Catch Dratini On Apple iPhone 12 | Dr.fone
-date: 2024-11-08T01:44:47.195Z
-updated: 2024-11-14T18:52:59.449Z
+date: 2024-11-23T04:46:13.534Z
+updated: 2024-11-23T16:11:47.637Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -27,38 +27,17 @@ Dratini undergoes two different evolutions
 
 The first un-evolved version is the serpentine Dratini that looks like a snake and continues shedding its skin as it grows. When you get to level 30, Dratini evolves into Dragonair, and at level 55 it becomes Dragonite
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484909/16446" target="_top" id="1484909">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484909" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484909/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Dragonair
 
 This is an evolution of Dratini, which has a long scaly serpent-like body. It still retails the blue body with a white underside. The white bump on the forehead now becomes a white horn. The budding wings on the side of the head have now grown into full wings. It also carries three crystal orbs, with one on the neck and the other two on the tail.
 
 Dragonair has the ability to stretch its wings so it can fly. It has a huge amount of energy in the body and can discharge the energy through the crystals. The energy that it releases has the ability to change the weather wherever it is. Dragonair can be found in seas and lakes.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997635/19272" target="_top" id="1997635">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997635" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997635/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Dragonite
 
 This is a Pokémon character that truly resembles a dragon and is the second evolution of Dratini. It has a yellow thick body, and a couple of antennae that come out of its forehead. It has a striated underbelly. The body is quite large when compared to the small wings.
 
 Dragonite can fly at very high speeds despite its bulky appearance. It is a kindhearted Pokémon, which is as intelligent as a human being. It has been found to have tendencies to save humans from disasters, such as saving those who have come from a capsized ship on the high seas. It lives near the sea and is extremely rare in the Pokémon world.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006960/19272" target="_top" id="2006960">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006960" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006960/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 2: Where can I find the Dratini nest?
 
@@ -77,13 +56,6 @@ This is quite a common question for those who are new to the Pokémon universe. 
 If the Dratini nest migrates, it can still come back in the future. You should always keep an eye at the spawn point where you first encountered your first Dratini Nest; it may come back once more and you can continue farming Dratini.
 
 Dratini nests will migrate on alternate Thursdays at midnight. The nest migrations are random, so make sure that you visit and hit them many times over the two weeks in order to get the most Dratini that you can.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130886/7443" target="_top" id="2130886">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130886" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130886/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 4: How to increase the possibility of earning Pokémon Go Dratini?
 
@@ -104,6 +76,10 @@ On the official Dr.Fone page, download and install Dr.Fone on your computer or y
 
 ![drfone home](https://images.wondershare.com/drfone/guide/drfone-home.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 After entering the virtual location module, connect your iOS device to your computer using an original USB cable.
 
 Next, click on “Get Started”; you will now be able to start the spoofing process.
@@ -120,6 +96,10 @@ The image below shows an example of coordinates entered for Rome, Italy.
 
 ![virtual location 04](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Once you have successfully teleported your device, you will be able to navigate to the area where the Dratini nest has been found. You can use the joystick feature for this. You should also click on “Move here” so your location is permanently moved to that place.
 
 You may now camp and keep hitting the Dratini nest so you can farm as many as possible within the two weeks before the nest migrates to another location.
@@ -132,23 +112,9 @@ This is how your location will be viewed on the map.
 
 ![virtual location 06](https://images.wondershare.com/drfone/guide/virtual-location-06.png)
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528703/16446" target="_top" id="1528703">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528703" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528703/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 This is how your location will be viewed on another iPhone device.
 
 ![virtual location 07](https://images.wondershare.com/drfone/guide/virtual-location-07.png)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925484/19272" target="_top" id="1925484">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925484" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925484/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## In conclusion
 
@@ -161,6 +127,10 @@ When you need to, you can teleport your device to an area where Dratini is popul
 If you are an avid Pokemon Go player, you might have come across the name ‘iSpoofer’ at least once. It’s a GPS manipulation tool for iOS that’s designed to help users change their GPS location on an iPhone/iPad and access geo-restricted content. However, players mainly use it to virtually explore different cities in Pokemon Go and collect a wide variety of Pokemon. With a single click, you can change your current location and catch rare Pokemon without an effort.
 
 But, since iSpoofer does not meet Apple’s verification measures, it frequently gets banned from the App Store. This is when you need iSpoofer Discord servers. These discord servers will keep you updated as soon as iSpoofer’s current version gets banned or when there’s a new version of the app in the market. Read this guide to understand what the iSpoofer discord server does and how you can enter such a discord channel to stay up-to-date with iSpoofer.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 1: What does the iSpoofer discord do?
 
@@ -182,6 +152,10 @@ The easiest way to find working discord server links is to head to [Discord Serv
 
 [PokeNemo](https://discordservers.me/servers/701923235188441239) is among the most useful iSpoofer discord channels. While it’s not a dedicated iSpoofer server, it’ll keep you updated about everything about the app. In addition to this, you can also find relevant information about other spoofing tools, informative tutorials, specific coordinates for different Pokemon characters, etc.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2\. ShinyQuest
 
 ![shinyquest](https://images.wondershare.com/drfone/2020/2020/shinyquest.PNG)
@@ -202,6 +176,10 @@ Let us walk you through the step-by-step process of using Dr.Fone - Virtual Loca
 
 ![drfone home](https://images.wondershare.com/drfone/guide/drfone-home.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 2 -** Now, connect your iDevice to the PC via lighting cable and click “Get Started”. If you’re using an iPad, simply grab the USB Type-C cable to connect it and wait for Dr.Fone to recognize the Apple iPhone 12 device.
 
 ![virtual location 01](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
@@ -212,22 +190,23 @@ Let us walk you through the step-by-step process of using Dr.Fone - Virtual Loca
 
 ![virtual location 04](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 5 -** Finally, select the location and click “Move Here” to select it as your current GPS location.
 
 ![virtual location 05](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 That’s how quick and easy it is to change GPS location on an iDevice using Dr.Fone - Virtual Location (iOS).
 
 ## Conclusion
 
 iSpoofer is widely used as a “Pokemon Go hack” by many players and that’s why people always want to join working iSpoofer discord channels. However, since you can’t rely on iSpoofer every time, it would be better to use a more reliable alternative such as Dr.Fone - Virtual Location (iOS). If you are also looking for a simpler solution than iSpoofer, make sure to install Dr.Fone right now.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134246/18498" target="_top" id="2134246">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134246" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134246/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Here’s Everything You Should Know About Pokemon Stops in Detail On Apple iPhone 12
 
@@ -242,6 +221,10 @@ In nutshell, Pokemon Go stops are dedicated places in the Pokemon Go map that ca
 Mostly, Pokemon stops are located at important buildings, monuments, art installations, and other vital areas. On your map, you can see Pokemon stops near me depicted by a blue triangle icon. As you would approach the Pokemon stop, it will change to a disc icon and you can obtain various features by tapping on it in the game.
 
 ![Exploring Pokemon Go Stops](https://images.wondershare.com/drfone/2020/202010/everything-about-pokemon-stops-2.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: How to use Lure Modules on Poke Stops in Pokemon Go?
 
@@ -295,22 +278,23 @@ Subsequently, also connect your Apple iPhone 12 to the system using a working ca
 
 ![launch the Virtual Location](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014857/22899" target="_top" id="2014857">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014857" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014857/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ****Step 2: Enter the Details of the Target Location****
 
 Once your Apple iPhone 12 is detected by the interface, its present location would be displayed with other details. To spoof the location of your Apple iPhone 12 on Pokemon Go, you can click on the Teleport Mode icon from the top.
 
 ![launch the Virtual Location](https://images.wondershare.com/drfone/guide/virtual-location-03.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Now, you can go to the search options on the top-left side and enter the address or exact coordinates of the Pokestop. You can find the location of a Pokestop from several freely available online sources.
 
 ![virtual location 04](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ****Step 3: Spoof your Apple iPhone 12 Location to a Pokemon stop****
 
@@ -336,20 +320,17 @@ I’m sure that after reading this post, you would be able to know about Poke st
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-files.techidaily.com/new-2024-approved-pathway-to-accessing-fb-videos-via-windowsmacos/"><u>[New] 2024 Approved Pathway to Accessing FB Videos via Windows/macOS</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-small-spaces-big-flavor-6-miniature-east-asian-houses-for-2024/"><u>[New] Small Spaces, Big Flavor 6 Miniature East Asian Houses for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/approved-become-a-youtube-gif-wizard-your-complete-online-transformation-tutorial/"><u>2024 Approved Become a Youtube Gif Wizard Your Complete Online Transformation Tutorial</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/additional-tips-about-sinnoh-stone-for-apple-iphone-11-pro-drfone-by-drfone-virtual-ios/"><u>Additional Tips About Sinnoh Stone For Apple iPhone 11 Pro | Dr.fone</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/-to-video-bridge-easy-3-step-guide-for-mp3-to-youtube-uploads-for-2024/"><u>Audio-to-Video Bridge Easy 3-Step Guide for MP3 to YouTube Uploads for 2024</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/complete-investigation-into-razers-kiyo-webcam/"><u>Complete Investigation Into Razer's Kiyo Webcam</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/discovering-apples-unconventional-choice-no-exclamation-marks-on-their-site-insights-revealed-zdnet/"><u>Discovering Apple's Unconventional Choice: No Exclamation Marks on Their Site - Insights Revealed | ZDNet</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/how-and-where-to-find-a-shiny-stone-pokemon-for-apple-iphone-15-plus-drfone-by-drfone-virtual-ios/"><u>How and Where to Find a Shiny Stone Pokémon For Apple iPhone 15 Plus? | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/how-can-i-catch-the-regional-pokemon-without-traveling-on-apple-iphone-8-drfone-by-drfone-virtual-ios/"><u>How Can I Catch the Regional Pokémon without Traveling On Apple iPhone 8 | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-fixing-foneazy-mockgo-not-working-on-poco-x6-drfone-by-drfone-virtual-android/"><u>In 2024, Fixing Foneazy MockGo Not Working On Poco X6 | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-to-fix-pokemon-go-route-not-working-on-apple-iphone-8-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Fix Pokemon Go Route Not Working On Apple iPhone 8? | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-the-best-ispoofer-alternative-to-try-on-apple-iphone-6-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, The Best iSpoofer Alternative to Try On Apple iPhone 6 Plus | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-apple-iphone-7-drfone-by-drfone-virtual-ios/"><u>In 2024, Will Pokémon Go Ban the Account if You Use PGSharp On Apple iPhone 7 | Dr.fone</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/is-the-compact-new-mac-mini-with-m4-chipset-a-match-for-your-needs-unveiling-its-capabilities-zdnet/"><u>Is the Compact New Mac Mini with M4 Chipset a Match for Your Needs? Unveiling Its Capabilities | ZDNet</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/pokemon-go-no-gps-signal-heres-every-possible-solution-on-apple-iphone-11-pro-drfone-by-drfone-virtual-ios/"><u>Pokemon Go No GPS Signal? Heres Every Possible Solution On Apple iPhone 11 Pro | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-unlock-the-potential-of-dslr-with-facebook-live-compatible-pcsmacs/"><u>[Updated] 2024 Approved Unlock the Potential of DSLR with Facebook LIVE, Compatible PCs/Macs</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-in-2024-photo-to-motion-the-musical-layer/"><u>[Updated] In 2024, Photo to Motion The Musical Layer</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/best-pokemons-for-pvp-matches-in-pokemon-go-for-apple-iphone-15-pro-max-drfone-by-drfone-virtual-ios/"><u>Best Pokemons for PVP Matches in Pokemon Go For Apple iPhone 15 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/gpt-evolution-explained-the-top-five-contrasts-between-generative-pre-trained-transformer-4-and-35-models/"><u>GPT Evolution Explained: The Top Five Contrasts Between Generative Pre-Trained Transformer 4 and 3.5 Models</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-full-guide-to-unlock-your-samsung-galaxy-m14-4g-by-drfone-android/"><u>In 2024, Full Guide to Unlock Your Samsung Galaxy M14 4G</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-do-you-get-sun-stone-evolutions-in-pokemon-for-apple-iphone-15-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, How Do You Get Sun Stone Evolutions in Pokémon For Apple iPhone 15 Plus? | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-do-you-get-sun-stone-evolutions-in-pokemon-for-apple-iphone-15-drfone-by-drfone-virtual-ios/"><u>In 2024, How Do You Get Sun Stone Evolutions in Pokémon For Apple iPhone 15? | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/preparation-to-beat-giovani-in-pokemon-go-for-apple-iphone-se-2020-drfone-by-drfone-virtual-ios/"><u>Preparation to Beat Giovani in Pokemon Go For Apple iPhone SE (2020) | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/rootjunky-apk-to-bypass-google-frp-lock-for-realme-narzo-n53-by-drfone-android/"><u>Rootjunky APK To Bypass Google FRP Lock For Realme Narzo N53</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/secrets-revealed-mastering-minecraft-recordings-on-a-macbook-pro-for-2024/"><u>Secrets Revealed Mastering Minecraft Recordings on a MacBook Pro for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/what-is-geo-blocking-and-how-to-bypass-it-on-tecno-phantom-v-fold-drfone-by-drfone-virtual-android/"><u>What is Geo-Blocking and How to Bypass it On Tecno Phantom V Fold? | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-apple-iphone-6s-drfone-by-drfone-virtual-ios/"><u>What is the best Pokemon for pokemon pvp ranking On Apple iPhone 6s? | Dr.fone</u></a></li>
 </ul></div>
 

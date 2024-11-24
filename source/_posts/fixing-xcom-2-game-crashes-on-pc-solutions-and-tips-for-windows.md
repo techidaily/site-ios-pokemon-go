@@ -1,7 +1,7 @@
 ---
 title: Fixing XCOM 2 Game Crashes on PC – Solutions and Tips for Windows
-date: 2024-11-09T16:52:36.574Z
-updated: 2024-11-14T17:31:12.115Z
+date: 2024-11-19T09:48:39.267Z
+updated: 2024-11-24T00:31:53.213Z
 tags:
   - win11
   - win10
@@ -18,6 +18,10 @@ thumbnail: https://thmb.techidaily.com/a0bc606d13bf5b4bb98db38e302e2de3fccfa94f7
 ![](https://images.drivereasy.com/wp-content/uploads/2017/10/img_59e455fa8c637.png)
 
  You might feel confused and even frustrated when your**games fails to launch on Steam** . Don’t worry;this tutorial is here to help you fix your problem. You can be able to fix it with this guide by yourself before you ask a local technician to help you.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Fixes for ‘Steam games not launching’
 
@@ -46,6 +50,10 @@ Check for Windows update on your Windows 10:
 
 **Note:**  If Windows tells you **Your device is up to date**  after checking, please try our next method.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Method 2: Update your video card driver
 
  This problem could be also due to an old or corrupted driver, particularly your video card driver. You could solve it through updating your device driver.
@@ -63,13 +71,6 @@ Check for Windows update on your Windows 10:
 ![](https://images.drivereasy.com/wp-content/uploads/2023/07/driver-easy-update.jpg)
 4. Reboot your Windows and try to run your game on Steam to see if it works.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130890/7443" target="_top" id="2130890">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130890" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130890/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Method 3: Verify your game cache files
 
  An corrupted game cache file can also prevent your games from launching properly.
@@ -81,30 +82,18 @@ Follow these to verify your game cache files:
 ![](https://images.drivereasy.com/wp-content/uploads/2017/10/img_59e46fdf19866.jpg)
 3. Click **VERIFY INTEGRITY OF GAME FILES…**  in **LOCAL FILES** .  
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![](https://images.drivereasy.com/wp-content/uploads/2017/10/img_59e47001401be.png)
 4. It should then begin validating your Steam files and you will see this small window after several minutes:  
-
-<!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="864" height="1296" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2017/10/img_59e4712ae8e78.png)
 5. Reboot your Windows and try to run your game on Steam to see if it works.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136613/26400" target="_top" id="2136613">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136613" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136613/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Method 4: Close unnecessary programs
@@ -112,19 +101,6 @@ Follow these to verify your game cache files:
  Some programs running on your Windows 10 may interfere the performance of Steam. Try to close those unnecessary programs. Then reboot your Windows and try to run your game on Steam to see if it works.
 
  If you’re not sure about which programs you should close, you can take [Programs Which May Interfere with Steam](https://support.steampowered.com/kb%5Farticle.php?ref=9828-SFLZ-9289) from official Steam website as a reference.
-
-<!-- affiliate ads begin -->
-<span id="1975562">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975562.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975562">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975562.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975562%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975562/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Method 5: Check for damaged system files
 
@@ -137,14 +113,15 @@ Follow these to verify your game cache files:
 ![](https://images.drivereasy.com/wp-content/uploads/2022/01/fortect-1.jpg)
 3. Fortect will scan your computer thoroughly. This may take a few minutes.  
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![](https://images.drivereasy.com/wp-content/uploads/2022/01/fortect-2.jpg)
 4. Once done, you’ll see a detailed report of all the issues on your PC. To fix them automatically, click**START REPAIR** . This requires you to purchase the full version. But don’t worry. If Fortect doesn’t solve the issue, you can request a refund within 60 days.  
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123733/7443" target="_top" id="2123733">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123733" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123733/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2022/01/fortect-3.jpg)
@@ -168,20 +145,17 @@ Follow these to verify your game cache files:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-hovers.techidaily.com/new-2024-approved-superior-strategies-for-unrestricted-space-allocation/"><u>[New] 2024 Approved Superior Strategies for Unrestricted Space Allocation</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-downloading-your-youtube-watch-lists-step-by-step-for-2024/"><u>[New] Downloading Your YouTube Watch Lists Step by Step for 2024</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-survival-in-shambles-selecting-the-top-8-zombie-classics/"><u>[Updated] 2024 Approved Survival in Shambles Selecting the Top 8 Zombie Classics</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-flipping-fun-facts-into-memes-with-kinemaster/"><u>[Updated] Flipping Fun Facts Into Memes with KineMaster</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/a-comprehensive-guide-to-mastering-ipogo-for-pokemon-go-on-apple-iphone-12-mini-drfone-by-drfone-virtual-ios/"><u>A Comprehensive Guide to Mastering iPogo for Pokémon GO On Apple iPhone 12 mini | Dr.fone</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/control-screen-size-with-swift-iphone-adjustments-for-2024/"><u>Control Screen Size with Swift iPhone Adjustments for 2024</u></a></li>
-<li><a href="https://program-issues.techidaily.com/1723005827510-fix-your-total-war-warhammer-ii-glitches-with-these-proven-methods/"><u>Fix Your TOTAL WAR: WARHAMMER II Glitches with These Proven Methods</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-a-working-guide-for-pachirisu-pokemon-go-map-on-apple-iphone-7-drfone-by-drfone-virtual-ios/"><u>In 2024, A Working Guide For Pachirisu Pokemon Go Map On Apple iPhone 7 | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-can-i-get-more-stardust-in-pokemon-go-on-apple-iphone-6-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, How can I get more stardust in pokemon go On Apple iPhone 6 Plus? | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-do-you-get-sun-stone-evolutions-in-pokemon-for-apple-iphone-14-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, How Do You Get Sun Stone Evolutions in Pokémon For Apple iPhone 14 Pro? | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-pokemon-go-error-12-failed-to-detect-location-on-apple-iphone-xs-drfone-by-drfone-virtual-ios/"><u>In 2024, Pokemon Go Error 12 Failed to Detect Location On Apple iPhone XS? | Dr.fone</u></a></li>
-<li><a href="https://article-tips.techidaily.com/navigating-windows-color-rich-video-landscape/"><u>Navigating Windows' Color-Rich Video Landscape</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/pokemon-go-cooldown-chart-on-apple-iphone-6-plus-drfone-by-drfone-virtual-ios/"><u>Pokémon Go Cooldown Chart On Apple iPhone 6 Plus | Dr.fone</u></a></li>
-<li><a href="https://article-tips.techidaily.com/streamlined-process-for-upgrading-macos-sierra/"><u>Streamlined Process for Upgrading macOS Sierra</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/why-cant-i-install-the-ipogo-on-apple-iphone-11-pro-drfone-by-drfone-virtual-ios/"><u>Why cant I install the ipogo On Apple iPhone 11 Pro | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-artistic-arenas-of-2022s-olympians/"><u>[Updated] 2024 Approved Artistic Arenas of 2022'S Olympians</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-the-art-of-revisiting-your-private-snap-history/"><u>[Updated] In 2024, The Art of Revisiting Your Private Snap History</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/a-working-guide-for-pachirisu-pokemon-go-map-on-apple-iphone-xr-drfone-by-drfone-virtual-ios/"><u>A Working Guide For Pachirisu Pokemon Go Map On Apple iPhone XR | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-apple-iphone-11-pro-max-drfone-by-drfone-virtual-ios/"><u>Here are Some Pro Tips for Pokemon Go PvP Battles On Apple iPhone 11 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://games-able.techidaily.com/high-fidelity-horizons-and-hurdles-the-story-of-pimax-crystal/"><u>High-Fidelity Horizons and Hurdles: The Story of Pimax Crystal</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/how-does-the-stardust-trade-cost-in-pokemon-go-on-apple-iphone-se-drfone-by-drfone-virtual-ios/"><u>How does the stardust trade cost In pokemon go On Apple iPhone SE? | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-do-you-get-sun-stone-evolutions-in-pokemon-for-apple-iphone-11-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, How Do You Get Sun Stone Evolutions in Pokémon For Apple iPhone 11 Pro? | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-the-top-picks-for-hd-video-playback-on-your-android-device/"><u>In 2024, The Top Picks for HD Video Playback on Your Android Device</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/ipogo-will-be-the-new-ispoofer-on-nokia-g22-drfone-by-drfone-virtual-android/"><u>iPogo will be the new iSpoofer On Nokia G22? | Dr.fone</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/revolutionize-your-ios-experience-correct-techniques-for-holding-iphones-and-airpods-insider-tips/"><u>Revolutionize Your iOS Experience: Correct Techniques for Holding iPhones & AirPods | Insider Tips</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/trustworthy-and-resilient-an-in-depth-review-of-the-portable-kensun-tire-inflator/"><u>Trustworthy and Resilient – An In-Depth Review of the Portable Kensun Tire Inflator</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/uncomplicated-guide-to-smooth-easy-to-create-nfts/"><u>Uncomplicated Guide To Smooth, Easy-to-Create NFTs</u></a></li>
 </ul></div>
 

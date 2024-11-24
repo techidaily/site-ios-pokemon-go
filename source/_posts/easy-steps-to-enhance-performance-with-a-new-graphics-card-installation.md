@@ -1,7 +1,7 @@
 ---
 title: Easy Steps to Enhance Performance with a New Graphics Card Installation
-date: 2024-11-11T00:21:48.477Z
-updated: 2024-11-14T22:27:35.761Z
+date: 2024-11-22T06:30:29.318Z
+updated: 2024-11-23T16:54:11.742Z
 categories:
   - BestProducts
 description: This Article Describes Easy Steps to Enhance Performance with a New Graphics Card Installation
@@ -37,13 +37,6 @@ Lifewire / Andrew Hayward
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137224/26400" target="_top" id="2137224">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137224" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137224/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## TopMate C302 Laptop Cooling Pad
 
 ![TopMate C302 Laptop Cooling Pad](https://www.lifewire.com/thmb/Um5K58ex8qVMnW5PlEtqzPi9c-4=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TopMate_C302_HeroSquare-53c92cb3074b41d9b696fd9f6fa1a64e.jpg)
@@ -70,6 +63,10 @@ Lifewire / Andrew Hayward
 
  The TopMate C302 is a strong example of the latter. It’s affordable and solidly effective, but the plastic design feels a bit flimsy. I wouldn’t bet on it lasting for the long haul without gentle handling, but given the price, you might not worry about it too much.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Design: Light and a little flimsy
 
  The C302 measures just over 14 inches wide and is designed for laptops with screens up to 15.6 inches diagonal. It’s primarily made of lightweight plastic, with a thin metal grate on the top above the two 4.9-inch fans to help dissipate heat.
@@ -77,6 +74,10 @@ Lifewire / Andrew Hayward
  The entire pad weighs only 1.1 pounds, but the downside to it being so lightweight is that it feels a bit flimsy and rickety. It’ll do just fine holding your laptop and sitting on a desk, but I wouldn’t bet on it surviving a hard fall without some damage.
 
 ![TopMate C302 Laptop Cooling Pad](https://www.lifewire.com/thmb/3qjwZzxQ2KVhmQJOdD2R9jBegvI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TopMate_C302_03-ed7074949b6f4e4794ce30be2d582058.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Andrew Hayward
 
@@ -88,25 +89,11 @@ Lifewire / Andrew Hayward
 
  The C302 has a little bit of accent lighting via a pair of blue lights beneath each fan, but it doesn’t emanate a significant glow, nor is it customizable in any way.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144273/7443" target="_top" id="2144273">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144273" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144273/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Setup Process: Plug and play
 
  The C302 is a purely plug-and-play accessory with no flashy perks or settings to deal with, nor any need for software on your computer. Simply place it under your laptop, adjust the feet and holding nubs as desired, and plug the USB port into your computer to power on the pad. The fans will then activate and run at the only available speed, and you can unplug it when you’re done or don’t need it anymore.
 
 ![TopMate C302 Laptop Cooling Pad](https://www.lifewire.com/thmb/xhFp_B4P4BG8gb4dtJAGBbXPAlw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TopMate_C302_05-4ce850d84f4a4e1d931588e23f39cb82.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2141676/17091" target="_top" id="2141676">
-  <img src="//a.impactradius-go.com/display-ad/17091-2141676" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141676/17091" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Andrew Hayward
 
@@ -124,18 +111,15 @@ Lifewire / Andrew Hayward
 
 ![TopMate C302 Laptop Cooling Pad](https://www.lifewire.com/thmb/Xs71AyeThjZwy-vZJ9LfxIhuXJc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TopMate_C302_04-eadbaf270b874af9bb8843b95efe8ca7.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130530/26400" target="_top" id="2130530">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130530" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130530/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire / Andrew Hayward
 
  Lastly, UNIGINE’s Heaven Benchmark hit 162 degrees internally and 109 degrees externally on the Razer Blade 15 alone, and dropped to 154 degrees internally and 105 degrees externally when using the C302\. All told, this lightweight and affordable pad delivered solid cooling power that helped cut down on both the internal and external temperature of the laptop while under significant stress.
 
  Depending on test, the results were roughly comparable to or better than more expensive cooling pads, like the Kootek Laptop Cooling Pad and Thermaltake Massive TM, which have some added features onboard. It’s also pretty quiet in use—certainly quieter than the Razer Blade 15’s own internal fans.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Price: It’s very affordable
 
@@ -143,7 +127,15 @@ Lifewire / Andrew Hayward
 
 ![TopMate C302 Laptop Cooling Pad](https://www.lifewire.com/thmb/3hXx9Tb9omnQS0YyIXmv97Lunr0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TopMate_C302_02-8fc1ac2169044c0a82b61a80f63ef089.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Lifewire / Andrew Hayward
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## TopMate C302 vs. Kootek Laptop Cooling Pad
 
@@ -154,13 +146,6 @@ Lifewire / Andrew Hayward
 **An ideal entry-level pick.**
 
  Durability questions aside, the TopMate C302 Laptop Cooling Pad ultimately worked about as well as the other, pricier pads I tested, helping to offset some of the heat generated by a very hot gaming laptop. If you’re concerned about long-term damage or performance degradation from an overheating laptop, the C302 is a cost-efficient way to help keep your notebook from reaching extreme heat peaks.
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139116/17108" target="_top" id="2139116">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139116" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139116/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
 
@@ -196,22 +181,19 @@ Lifewire / Andrew Hayward
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/oost-your-earnings-on-youtube-shorts-a-guide/"><u>[New] Boost Your Earnings on YouTube Shorts A Guide</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/new-in-2024-mastering-the-art-of-financial-forecasting-a-deep-dive-into-budgeting-strategies/"><u>[New] In 2024, Mastering the Art of Financial Forecasting A Deep Dive Into Budgeting Strategies</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-masterclass-in-real-time-twitvid-engagement-for-2024/"><u>[Updated] Masterclass in Real-Time TwitVid Engagement for 2024</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-best-mac-options-to-replace-bandicam/"><u>2024 Approved Best Mac Options to Replace Bandicam</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/2024-approved-step-up-your-gaming-with-advanced-ps4-capture-techniques/"><u>2024 Approved Step Up Your Gaming with Advanced PS4 Capture Techniques</u></a></li>
-<li><a href="https://video-capture.techidaily.com/in-2024-effortless-film-logging-how-to-use-devices-like-pros/"><u>In 2024, Effortless Film Logging How to Use Devices Like Pros</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-can-i-get-more-stardust-in-pokemon-go-on-apple-iphone-14-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, How can I get more stardust in pokemon go On Apple iPhone 14 Pro? | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-to-enter-the-ispoofer-discord-server-on-apple-iphone-x-drfone-by-drfone-virtual-ios/"><u>In 2024, How to enter the iSpoofer discord server On Apple iPhone X | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-apple-iphone-xs-max-drfone-by-drfone-virtual-ios/"><u>In 2024, Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Apple iPhone XS Max | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-reasons-why-pokemon-gps-does-not-work-on-apple-iphone-7-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, Reasons why Pokémon GPS does not Work On Apple iPhone 7 Plus? | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-reasons-why-pokemon-gps-does-not-work-on-apple-iphone-8-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, Reasons why Pokémon GPS does not Work On Apple iPhone 8 Plus? | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-the-magnificent-art-of-pokemon-go-streaming-on-apple-iphone-xs-max-drfone-by-drfone-virtual-ios/"><u>In 2024, The Magnificent Art of Pokemon Go Streaming On Apple iPhone XS Max? | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-top-15-augmented-reality-games-like-pokemon-go-to-play-on-apple-iphone-14-drfone-by-drfone-virtual-ios/"><u>In 2024, Top 15 Augmented Reality Games Like Pokémon GO To Play On Apple iPhone 14 | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/most-asked-questions-about-pokemon-go-battle-league-rewards-on-apple-iphone-13-drfone-by-drfone-virtual-ios/"><u>Most Asked Questions about Pokemon Go Battle League Rewards On Apple iPhone 13 | Dr.fone</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/new-in-2024-get-the-right-tone-5-free-online-generators-for-any-occasion/"><u>New In 2024, Get the Right Tone 5 Free Online Generators for Any Occasion</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/reading-retreat/"><u>Reading Retreat</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/value-flight-in-depth-analysis-of-holy-stones-hs170-predator-mini-drone/"><u>Value Flight: In-Depth Analysis of Holy Stone's HS170 Predator Mini Drone</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-efficient-strategies-to-record-ppt-sessions/"><u>[New] Efficient Strategies to Record PPT Sessions</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-unveiling-the-secrets-of-montage-image-assembly/"><u>[New] Unveiling the Secrets of Montage Image Assembly</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-revelations-on-identifying-outstanding-film-making-talents/"><u>[Updated] Revelations on Identifying Outstanding Film Making Talents</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-unlock-your-phones-potential-with-ios-11-camera-tips/"><u>[Updated] Unlock Your Phone's Potential with iOS 11 Camera Tips</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-youtube-captioning-for-clearer-communication/"><u>[Updated] YouTube Captioning for Clearer Communication</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/catch-or-beat-sleeping-snorlax-on-pokemon-go-for-apple-iphone-13-drfone-by-drfone-virtual-ios/"><u>Catch or Beat Sleeping Snorlax on Pokemon Go For Apple iPhone 13 | Dr.fone</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/hp-computer-screen-capture-simplified-discover-the-two-easiest-methods/"><u>HP Computer Screen Capture Simplified: Discover the Two Easiest Methods</u></a></li>
+<li><a href="https://extra-information.techidaily.com/ideal-titles-superior-blu-ray-players-for-free-and-paid-users/"><u>Ideal Titles Superior Blu-Ray Players for Free and Paid Users</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-a-working-guide-for-pachirisu-pokemon-go-map-on-apple-iphone-13-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, A Working Guide For Pachirisu Pokemon Go Map On Apple iPhone 13 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-to-fix-pokemon-go-route-not-working-on-apple-iphone-14-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Fix Pokemon Go Route Not Working On Apple iPhone 14? | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-looking-for-a-location-changer-on-motorola-moto-g23-look-no-further-drfone-by-drfone-virtual-android/"><u>In 2024, Looking For A Location Changer On Motorola Moto G23? Look No Further | Dr.fone</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/laptop-trackpad-not-responding-in-windows-heres-how-you-can-repair-it-win1087/"><u>Laptop Trackpad Not Responding in Windows? Here's How You Can Repair It (Win10/8/7)</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/most-asked-questions-about-pokemon-go-battle-league-rewards-on-apple-iphone-15-pro-max-drfone-by-drfone-virtual-ios/"><u>Most Asked Questions about Pokemon Go Battle League Rewards On Apple iPhone 15 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/pokemon-go-no-gps-signal-heres-every-possible-solution-on-apple-iphone-14-drfone-by-drfone-virtual-ios/"><u>Pokemon Go No GPS Signal? Heres Every Possible Solution On Apple iPhone 14 | Dr.fone</u></a></li>
 </ul></div>
 

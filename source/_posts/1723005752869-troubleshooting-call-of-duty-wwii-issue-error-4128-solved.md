@@ -1,7 +1,7 @@
 ---
 title: "Troubleshooting Call of Duty: WWII Issue - Error 4128 Solved!"
-date: 2024-11-08T02:40:11.911Z
-updated: 2024-11-15T03:20:47.772Z
+date: 2024-11-23T07:12:52.097Z
+updated: 2024-11-24T04:57:28.051Z
 tags:
   - win11
   - win10
@@ -74,10 +74,7 @@ Keep getting the error code 4128 in Call of Duty WW2? This is quite annoying and
 ![](https://images.drivereasy.com/wp-content/uploads/2019/07/image-209.png)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139118/17108" target="_top" id="2139118">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139118" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139118/17108" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **2)**  Right-click the **Steam icon**  and select **Run as administrator** .
@@ -100,13 +97,6 @@ Keep getting the error code 4128 in Call of Duty WW2? This is quite annoying and
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/06/image-355.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049379/7443" target="_top" id="2049379">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049379" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049379/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **3)**  Right-click **Call of Duty WW2** and select **Properties.**
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/07/image-199.png)
@@ -114,13 +104,6 @@ Keep getting the error code 4128 in Call of Duty WW2? This is quite annoying and
 **4)**  Click the **LOCAL FILES**  tab, and then click **VERIFY INTEGRITY OF GAME FILES** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/06/image-375.png)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134236/18498" target="_top" id="2134236">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134236" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134236/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **5)** Wait for Steam to fix any damaged or missing files automatically.
 
@@ -142,13 +125,6 @@ Keep getting the error code 4128 in Call of Duty WW2? This is quite annoying and
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/05/image-788.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016170/19272" target="_top" id="2016170">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016170" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016170/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **4)** Select **Web Browser** and click **DELETE WEB BROWSER CACHE** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/05/image-787.png)
@@ -161,23 +137,9 @@ Keep getting the error code 4128 in Call of Duty WW2? This is quite annoying and
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/05/image-785.png)
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/798165/11305" target="_top" id="798165">
-  <img src="//a.impactradius-go.com/display-ad/11305-798165" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798165/11305" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **7)** Click **OK.**
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/05/image-784.png)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118322/7443" target="_top" id="2118322">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118322" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118322/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **8)** Restart your game to test your issue.
 
@@ -230,10 +192,7 @@ OR
 ![](https://images.drivereasy.com/wp-content/uploads/2019/05/image-885.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123728/7443" target="_top" id="2123728">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123728" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123728/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **2)** Right-click the**steamapps folder** and select **Copy.** Then, place the copy in another location to back it up.
@@ -338,6 +297,10 @@ Hopefully, your game works correctly now. Enjoy!
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/08/image-90-1024x562.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **4)** Select**Console info.**
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/08/image-94.png)
@@ -350,6 +313,10 @@ Hopefully, your game works correctly now. Enjoy!
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/08/image-99.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  After resetting your console, restart your game to test your issue. If your problem persists, check the fix below.
 
 #### Fix 5: Reinstall your game
@@ -360,32 +327,45 @@ Hopefully, your game works correctly now. Enjoy!
 
 ![This image has an empty alt attribute; its file name is xbox-one-controller-2206687_1920-1024x671.jpg](https://images.drivereasy.com/wp-content/uploads/2019/08/xbox-one-controller-2206687_1920-1024x671.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **2)** Select**My games & apps** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/08/image-95.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **3)** Press the**A button** on your controller.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/08/xbox-one-controller-2206687_1920-1-1024x671.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **4)** Highlight your game, press the**☰ button** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/08/image-107-1024x439.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **5)** Select**Uninstall** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/08/image-108.png)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137222/26400" target="_top" id="2137222">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137222" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137222/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **6)** After the game is uninstalled, insert**the game disc** into the drive to download and install Call of Duty: WW2.
 
 Hope one of the fixes above worked for you.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Fixes for PlayStation 4 Players
 
@@ -431,6 +411,10 @@ Hope one of the fixes above worked for you.
 **2)** Select **Settings** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/05/image-1077-1024x217.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **3)** Select **System Software Update,** and then follow the on-screen instructions to update the system software for your PS4.
 
@@ -492,19 +476,22 @@ Hope one of the fixes above worked for you.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-profitability-probe-dailymovement-versus-youtubes-financial-edge/"><u>[New] 2024 Approved Profitability Probe DailyMovement Versus YouTube's Financial Edge</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-2024-approved-the-secret-to-striking-visuals-optimal-video-aspect-ratios/"><u>[New] 2024 Approved The Secret to Striking Visuals Optimal Video Aspect Ratios</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-ultimate-mp4-to-social-media-focus-on-facebook/"><u>[New] 2024 Approved Ultimate MP4 to Social Media Focus on Facebook</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/new-guide-eradicating-pending-videos-on-your-youtube-queue-for-2024/"><u>[New] Guide Eradicating Pending Videos on Your YouTube Queue for 2024</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-apple-iphone-12-mini-drfone-by-drfone-virtual-ios/"><u>9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Apple iPhone 12 mini | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-additional-tips-about-sinnoh-stone-for-apple-iphone-14-drfone-by-drfone-virtual-ios/"><u>In 2024, Additional Tips About Sinnoh Stone For Apple iPhone 14 | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-apple-iphone-se-2022-drfone-by-drfone-virtual-ios/"><u>In 2024, Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Apple iPhone SE (2022) | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-what-pokemon-evolve-with-a-dawn-stone-for-apple-iphone-12-mini-drfone-by-drfone-virtual-ios/"><u>In 2024, What Pokémon Evolve with A Dawn Stone For Apple iPhone 12 mini? | Dr.fone</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/mastering-ai-powered-programming-with-chatgpt-discover-these-7-functional-uses-of-its-code-interpreter/"><u>Mastering AI-Powered Programming with ChatGPT: Discover These 7 Functional Uses of Its Code Interpreter</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/preparation-to-beat-giovani-in-pokemon-go-for-apple-iphone-14-pro-drfone-by-drfone-virtual-ios/"><u>Preparation to Beat Giovani in Pokemon Go For Apple iPhone 14 Pro | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/preparation-to-beat-giovani-in-pokemon-go-for-apple-iphone-15-drfone-by-drfone-virtual-ios/"><u>Preparation to Beat Giovani in Pokemon Go For Apple iPhone 15 | Dr.fone</u></a></li>
-<li><a href="https://win11.techidaily.com/troubleshooting-windows-rpc-failures-with-ease/"><u>Troubleshooting Windows RPC Failures with Ease</u></a></li>
-<li><a href="https://win-able.techidaily.com/unveiling-updates-get-the-2024-version-of-rainbow-six-siege-free-edition/"><u>Unveiling Updates: Get the 2024 Version of Rainbow Six Siege Free Edition</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-2024-approved-how-to-make-talking-emoji-on-iphone-in-easy-steps/"><u>Updated 2024 Approved How To Make Talking Emoji on iPhone in Easy Steps</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-female-gamers-faction-yts-10-stars-for-2024/"><u>[Updated] Female Gamers Faction YT's #10 Stars for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/2024-approved-streamlining-zoom-sessions-with-invisible-edges/"><u>2024 Approved Streamlining Zoom Sessions with Invisible Edges</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-thankful-views-complete-outro-template-library/"><u>2024 Approved Thankful Views Complete Outro Template Library</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/how-to-binge-worthy-music-reaction-videos-on-youtube/"><u>How to Binge-Worthy Music Reaction Videos on YouTube</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/how-to-enter-the-ispoofer-discord-server-on-apple-iphone-13-mini-drfone-by-drfone-virtual-ios/"><u>How to enter the iSpoofer discord server On Apple iPhone 13 mini | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-hacks-to-do-pokemon-go-trainer-battles-for-apple-iphone-xr-drfone-by-drfone-virtual-ios/"><u>In 2024, Hacks to do pokemon go trainer battles For Apple iPhone XR | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-do-you-get-sun-stone-evolutions-in-pokemon-for-apple-iphone-7-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, How Do You Get Sun Stone Evolutions in Pokémon For Apple iPhone 7 Plus? | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-to-enter-the-ispoofer-discord-server-on-apple-iphone-15-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, How to enter the iSpoofer discord server On Apple iPhone 15 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-secrets-revealed-best-8-costless-3d-vids-software-on-pcmac/"><u>In 2024, Secrets Revealed Best 8 Costless 3D Vids Software on PC/Mac</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-the-magnificent-art-of-pokemon-go-streaming-on-apple-iphone-xs-drfone-by-drfone-virtual-ios/"><u>In 2024, The Magnificent Art of Pokemon Go Streaming On Apple iPhone XS? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-realme-11x-5g-drfone-by-drfone-virtual-android/"><u>In 2024, What is the best Pokemon for pokemon pvp ranking On Realme 11X 5G? | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/pokemon-go-error-12-failed-to-detect-location-on-apple-iphone-14-drfone-by-drfone-virtual-ios/"><u>Pokemon Go Error 12 Failed to Detect Location On Apple iPhone 14? | Dr.fone</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/solve-your-airpods-connectivity-woes-on-windows-11-expert-tips-and-tricks-of-2024/"><u>Solve Your AirPods Connectivity Woes on Windows 11: Expert Tips and Tricks of 2024</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/the-magnificent-art-of-pokemon-go-streaming-on-apple-iphone-12-mini-drfone-by-drfone-virtual-ios/"><u>The Magnificent Art of Pokemon Go Streaming On Apple iPhone 12 mini? | Dr.fone</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/the-synergy-of-ai-elevating-onlyoffice-docspace-capabilities-with-chatgpt/"><u>The Synergy of AI: Elevating ONLYOFFICE DocSpace Capabilities with ChatGPT</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/top-15-augmented-reality-games-like-pokemon-go-to-play-on-apple-iphone-xs-drfone-by-drfone-virtual-ios/"><u>Top 15 Augmented Reality Games Like Pokémon GO To Play On Apple iPhone XS | Dr.fone</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/troubleshooting-and-repairing-shelldll-file-issues-effectively/"><u>Troubleshooting and Repairing 'Shell.dll' File Issues Effectively</u></a></li>
 </ul></div>
 

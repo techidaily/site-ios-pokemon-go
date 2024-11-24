@@ -1,7 +1,7 @@
 ---
 title: "ChaGPT Side Job Potential: A Money-Making Perspective"
-date: 2024-11-12T03:29:46.954Z
-updated: 2024-11-14T16:16:36.099Z
+date: 2024-11-23T02:47:21.741Z
+updated: 2024-11-23T21:16:18.373Z
 tags:
   - chatgpt
   - open-ai
@@ -19,9 +19,17 @@ thumbnail: https://thmb.techidaily.com/200bad50912773155a76642b85b00bc52b52d7ab3
 
  With the advent of ChatGPT and other such AI models comes a series of websites and apps that level up a traditional murder mystery game. In some, you'll be able to interact and talk with suspects for a single mystery. In others, the AI generates a new mystery every time you visit. The game is afoot!
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1.[Solve the Murders](https://solvethemurders.com/) (Web): Chat With AI Suspects to Solve a Murder Mystery
 
 ![In Solve the Murders, you play a detective who has chat with AI suspects in a murder mystery to find out who the killer is](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/ai-chatgpt-murder-mystery-online-games-play-detective-solve-the-murders.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Author Screenshot by Mihir Patkar - No attribution required
 
@@ -32,22 +40,12 @@ thumbnail: https://thmb.techidaily.com/200bad50912773155a76642b85b00bc52b52d7ab3
  The points you earn are tradable for a few acts, such as checking alibis, checking records, investigating scenes, and tailing suspects. If you're stuck at any time, you can spend points to get a clue on how you should proceed. Once you're sure about the whodunnit, use the one-time "Solve the murder" action to see if you got it right.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148773/18498" target="_top" id="2148773">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148773" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148773/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 2.[Gron](https://www.gron.games/game) (Web): Retro RPG Game to Find Clues and Chat With Suspects
 
 ![Gron is a retro 8-bit RPG-style online game where you unravel a murder mystery by finding evidence and clues, as well as interrogating suspects with ChatGPT](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/ai-chatgpt-murder-mystery-online-games-play-detective-gron-town.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129740/7443" target="_top" id="2129740">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129740" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129740/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Author Screenshot by Mihir Patkar - No attribution required
 
@@ -61,6 +59,10 @@ thumbnail: https://thmb.techidaily.com/200bad50912773155a76642b85b00bc52b52d7ab3
 
 ![Mystery-o-matic uses AI like ChatGPT to generate a new murder mystery every day where you have to guess the killer, the weapon, and the location based on a set of clues](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/ai-chatgpt-murder-mystery-online-games-play-detective-mystery-o-matic.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Author Screenshot by Mihir Patkar - No attribution required
 
  Move over,[Wordle and its alternatives](https://www.makeuseof.com/best-wordle-alternatives/) . There's a new daily puzzle, and lives are at stake! Mystery-o-Matic generates a new murder mystery every day using machine-learning algorithms. It uses a few base elements and then creates permutations and combinations that set up a daily mystery.
@@ -69,22 +71,12 @@ thumbnail: https://thmb.techidaily.com/200bad50912773155a76642b85b00bc52b52d7ab3
 
  Use the built-in investigator's notebook to figure out who was in which room at what time and how they could have accessed a murder weapon. Once you're sure about the solution, say who the murderer was, the weapon was, and the time of the murder. The game might get a little repetitive the longer you play it, but hey, where else would you get to solve a murder mystery daily?
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880960/19272" target="_top" id="1880960">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880960" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880960/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 4.[Murdle](https://murdle.com/) (Web): Daily Murder Mystery Logic Puzzles
 
 ![Murdle offers a new murder mystery everyday, generated by an AI and written by Hollywood mystery writer G. T. Karber, increasing in difficulty from Monday to Sunday](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/ai-chatgpt-murder-mystery-online-games-play-detective-murdle.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880956/19272" target="_top" id="1880956">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880956" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880956/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Author Screenshot by Mihir Patkar - No attribution required
@@ -116,18 +108,15 @@ thumbnail: https://thmb.techidaily.com/200bad50912773155a76642b85b00bc52b52d7ab3
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://on-screen-recording.techidaily.com/new-effortless-techniques-for-iphone-screen-recordings-for-2024/"><u>[New] Effortless Techniques for Iphone Screen Recordings for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-in-2024-voters-victories-reddits-most-popular-threads-top-10/"><u>[Updated] In 2024, Voters' Victories Reddit’s Most Popular Threads (Top 10)</u></a></li>
-<li><a href="https://discover-bytes.techidaily.com/2-guide-to-retrieving-deleted-files-in-adobe-photoshop/"><u>2. Guide to Retrieving Deleted Files in Adobe Photoshop</u></a></li>
-<li><a href="https://android-frp.techidaily.com/5-quick-methods-to-bypass-realme-12-5g-frp-by-drfone-android/"><u>5 Quick Methods to Bypass Realme 12 5G FRP</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/how-to-fix-pokemon-go-route-not-working-on-apple-iphone-se-2022-drfone-by-drfone-virtual-ios/"><u>How to Fix Pokemon Go Route Not Working On Apple iPhone SE (2022)? | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-a-comprehensive-guide-to-mastering-ipogo-for-pokemon-go-on-apple-iphone-14-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, A Comprehensive Guide to Mastering iPogo for Pokémon GO On Apple iPhone 14 Plus | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-fake-the-location-to-get-around-the-mlb-blackouts-on-apple-iphone-12-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, Fake the Location to Get Around the MLB Blackouts on Apple iPhone 12 Pro Max | Dr.fone</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-forgot-your-apple-id-password-and-email-from-apple-iphone-7-plus-heres-the-best-fixes-by-drfone-ios/"><u>In 2024, Forgot Your Apple ID Password and Email From Apple iPhone 7 Plus? Heres the Best Fixes</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/in-2024-harmonizing-audio-and-visuals-in-vimeo-media/"><u>In 2024, Harmonizing Audio and Visuals in Vimeo Media</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-to-get-and-use-pokemon-go-promo-codes-on-apple-iphone-x-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Get and Use Pokemon Go Promo Codes On Apple iPhone X | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-planning-to-use-a-pokemon-go-joystick-on-apple-iphone-15-drfone-by-drfone-virtual-ios/"><u>In 2024, Planning to Use a Pokemon Go Joystick on Apple iPhone 15? | Dr.fone</u></a></li>
-<li><a href="https://win-answers.techidaily.com/overcoming-game-breaking-bugs-resolving-constant-crashing-in-god-of-war/"><u>Overcoming Game-Breaking Bugs: Resolving Constant Crashing in God of War</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/ways-to-trade-pokemon-go-from-far-away-on-apple-iphone-7-drfone-by-drfone-virtual-ios/"><u>Ways to trade pokemon go from far away On Apple iPhone 7? | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/emystifying-the-process-of-checking-subs-for-2024/"><u>[New] Demystifying The Process of Checking Subs for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-comprehensive-handbook-on-recording-notes-by-sound/"><u>[Updated] Comprehensive Handbook on Recording Notes by Sound</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-apple-iphone-xs-drfone-by-drfone-virtual-ios/"><u>Can I use iTools gpx file to catch the rare Pokemon On Apple iPhone XS | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/elite-trailer-showcase-collection/"><u>Elite Trailer Showcase Collection</u></a></li>
+<li><a href="https://fox-search.techidaily.com/erleichterung-beim-transfer-von-android-daten-auf-ihr-iphone-professionelle-schritte-mit-hilfe-von-fonebackup/"><u>Erleichterung Beim Transfer Von Android-Daten Auf Ihr iPhone - Professionelle Schritte Mit Hilfe Von FoneBackup</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-a-working-guide-for-pachirisu-pokemon-go-map-on-apple-iphone-13-drfone-by-drfone-virtual-ios/"><u>In 2024, A Working Guide For Pachirisu Pokemon Go Map On Apple iPhone 13 | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-can-i-catch-the-regional-pokemon-without-traveling-on-apple-iphone-8-drfone-by-drfone-virtual-ios/"><u>In 2024, How Can I Catch the Regional Pokémon without Traveling On Apple iPhone 8 | Dr.fone</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/local-or-global-which-llm-suits-your-purpose-best/"><u>Local or Global, Which LLM Suits Your Purpose Best?</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/mastering-the-art-of-video-from-still-photos-through-pixiz-techniques/"><u>Mastering the Art of Video From Still Photos Through Pixiz Techniques</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/the-best-ispoofer-alternative-to-try-on-apple-iphone-xs-drfone-by-drfone-virtual-ios/"><u>The Best iSpoofer Alternative to Try On Apple iPhone XS | Dr.fone</u></a></li>
 </ul></div>
 

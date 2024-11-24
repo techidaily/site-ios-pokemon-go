@@ -1,7 +1,7 @@
 ---
 title: Excellent Image Quality with Canon ELPH 190
-date: 2024-11-12T18:04:49.552Z
-updated: 2024-11-14T19:21:45.703Z
+date: 2024-11-22T04:20:24.680Z
+updated: 2024-11-24T12:45:08.761Z
 categories:
   - BestProducts
 description: This Article Describes Excellent Image Quality with Canon ELPH 190
@@ -37,16 +37,13 @@ Lifewire / Andrew Hayward
 
 4.2
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## TopMate C302 Laptop Cooling Pad
 
 ![TopMate C302 Laptop Cooling Pad](https://www.lifewire.com/thmb/Um5K58ex8qVMnW5PlEtqzPi9c-4=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TopMate_C302_HeroSquare-53c92cb3074b41d9b696fd9f6fa1a64e.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137974/21526" target="_top" id="2137974">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137974" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137974/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Andrew Hayward
 
@@ -70,6 +67,10 @@ Lifewire / Andrew Hayward
 
  The TopMate C302 is a strong example of the latter. It’s affordable and solidly effective, but the plastic design feels a bit flimsy. I wouldn’t bet on it lasting for the long haul without gentle handling, but given the price, you might not worry about it too much.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Design: Light and a little flimsy
 
  The C302 measures just over 14 inches wide and is designed for laptops with screens up to 15.6 inches diagonal. It’s primarily made of lightweight plastic, with a thin metal grate on the top above the two 4.9-inch fans to help dissipate heat.
@@ -88,25 +89,11 @@ Lifewire / Andrew Hayward
 
  The C302 has a little bit of accent lighting via a pair of blue lights beneath each fan, but it doesn’t emanate a significant glow, nor is it customizable in any way.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/1062447/7443" target="_top" id="1062447">
-  <img src="//a.impactradius-go.com/display-ad/7443-1062447" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062447/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Setup Process: Plug and play
 
  The C302 is a purely plug-and-play accessory with no flashy perks or settings to deal with, nor any need for software on your computer. Simply place it under your laptop, adjust the feet and holding nubs as desired, and plug the USB port into your computer to power on the pad. The fans will then activate and run at the only available speed, and you can unplug it when you’re done or don’t need it anymore.
 
 ![TopMate C302 Laptop Cooling Pad](https://www.lifewire.com/thmb/xhFp_B4P4BG8gb4dtJAGBbXPAlw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TopMate_C302_05-4ce850d84f4a4e1d931588e23f39cb82.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148645/16836" target="_top" id="2148645">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148645" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148645/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Andrew Hayward
 
@@ -124,13 +111,6 @@ Lifewire / Andrew Hayward
 
 ![TopMate C302 Laptop Cooling Pad](https://www.lifewire.com/thmb/Xs71AyeThjZwy-vZJ9LfxIhuXJc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TopMate_C302_04-eadbaf270b874af9bb8843b95efe8ca7.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136614/26400" target="_top" id="2136614">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136614" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136614/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire / Andrew Hayward
 
  Lastly, UNIGINE’s Heaven Benchmark hit 162 degrees internally and 109 degrees externally on the Razer Blade 15 alone, and dropped to 154 degrees internally and 105 degrees externally when using the C302\. All told, this lightweight and affordable pad delivered solid cooling power that helped cut down on both the internal and external temperature of the laptop while under significant stress.
@@ -138,10 +118,7 @@ Lifewire / Andrew Hayward
  Depending on test, the results were roughly comparable to or better than more expensive cooling pads, like the Kootek Laptop Cooling Pad and Thermaltake Massive TM, which have some added features onboard. It’s also pretty quiet in use—certainly quieter than the Razer Blade 15’s own internal fans.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918719/19272" target="_top" id="1918719">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918719" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918719/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Price: It’s very affordable
@@ -151,6 +128,10 @@ Lifewire / Andrew Hayward
 ![TopMate C302 Laptop Cooling Pad](https://www.lifewire.com/thmb/3hXx9Tb9omnQS0YyIXmv97Lunr0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TopMate_C302_02-8fc1ac2169044c0a82b61a80f63ef089.jpg)
 
 Lifewire / Andrew Hayward
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## TopMate C302 vs. Kootek Laptop Cooling Pad
 
@@ -167,6 +148,10 @@ Lifewire / Andrew Hayward
 * [Flexispot Theodore Standing Desk](https://www.lifewire.com/flexispot-theodore-standing-desk-review-5183806)
 * [ProCase MacBook Pro 13 Case](https://www.lifewire.com/procase-macbook-pro-13-case-review-4689945)
 * [North Face Pivoter Backpack](https://www.lifewire.com/north-face-pivoter-backpack-review-4690198)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -196,22 +181,24 @@ Lifewire / Andrew Hayward
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-ideal-mics-for-bloggers-educators-and-entertainment-clips/"><u>[New] 2024 Approved Ideal Mics for Bloggers, Educators, & Entertainment Clips</u></a></li>
-<li><a href="https://video-capture.techidaily.com/new-direct-technique-swap-film-direction-in-media-player/"><u>[New] Direct Technique Swap Film Direction in Media Player</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/new-futuristic-feature-unveiling-mac-via-applewatch/"><u>[New] Futuristic Feature Unveiling Mac via AppleWatch</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-visionary-views-our-countdown-of-the-top-10-camera-lenses-2024/"><u>[New] Visionary Views Our Countdown of the Top 10 Camera Lenses 2024</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-apple-iphone-xs-drfone-by-drfone-virtual-ios/"><u>4 solution to get rid of pokemon fail to detect location On Apple iPhone XS | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/how-to-use-pokemon-emerald-master-ball-cheat-on-apple-iphone-15-plus-drfone-by-drfone-virtual-ios/"><u>How to Use Pokémon Emerald Master Ball Cheat On Apple iPhone 15 Plus | Dr.fone</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-3-ways-to-unlock-apple-iphone-13-pro-max-without-passcode-or-face-id-drfone-by-drfone-ios/"><u>In 2024, 3 Ways to Unlock Apple iPhone 13 Pro Max without Passcode or Face ID | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-a-working-guide-for-pachirisu-pokemon-go-map-on-apple-iphone-xr-drfone-by-drfone-virtual-ios/"><u>In 2024, A Working Guide For Pachirisu Pokemon Go Map On Apple iPhone XR | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-android-to-apple-how-to-transfer-photos-from-vivo-y02t-to-ipad-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Android to Apple How To Transfer Photos From Vivo Y02T to iPad Easily | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-apple-iphone-14-drfone-by-drfone-virtual-ios/"><u>In 2024, Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Apple iPhone 14 | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-can-i-create-my-pokemon-overworld-maps-on-apple-iphone-15-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, How Can I Create My Pokemon Overworld Maps On Apple iPhone 15 Pro? | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-apple-iphone-12-mini-drfone-by-drfone-virtual-ios/"><u>In 2024, How to get the dragon scale and evolution-enabled pokemon On Apple iPhone 12 mini? | Dr.fone</u></a></li>
-<li><a href="https://article-tips.techidaily.com/lunapic-101-a-step-by-step-photo-editing-guide/"><u>LunaPic 101 A Step-by-Step Photo Editing Guide</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/sharpen-your-shots-canon-offers-freepaid-lut-edits-for-2024/"><u>Sharpen Your Shots Canon Offers Free/Paid LUT Edits for 2024</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-apple-iphone-13-drfone-by-drfone-virtual-ios/"><u>The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Apple iPhone 13 | Dr.fone</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/upgrading-to-the-iphone-16-weigh-pros-and-cons-with-expert-insights-editors/"><u>Upgrading to the iPhone 16? Weigh Pros & Cons with Expert Insights Editors</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-apple-iphone-13-pro-drfone-by-drfone-virtual-ios/"><u>Will Pokémon Go Ban the Account if You Use PGSharp On Apple iPhone 13 Pro | Dr.fone</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-from-free-posts-to-fiscal-success-fb-pages-profit-playbook-for-2024/"><u>[New] From Free Posts to Fiscal Success FB Pages Profit Playbook for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-webcam-video-production-record-edit-and-export-guide-for-2024/"><u>[New] Webcam Video Production Record, Edit & Export Guide for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-best-youtube-banner-size-and-channel-art-dimension-the-ultimate-guide/"><u>[Updated] Best YouTube Banner Size and Channel Art Dimension (The Ultimate Guide)</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-apple-iphone-6s-plus-drfone-by-drfone-virtual-ios/"><u>9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Apple iPhone 6s Plus | Dr.fone</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/comment-liberer-votre-contenu-video-guide-simple-et-complet-pour-utiliser-un-logiciel-de-decryptage-de-dvd-sans-cout/"><u>Comment Libérer Votre Contenu Vidéo : Guide Simple Et Complet Pour Utiliser Un Logiciel De Décryptage De DVD Sans Coût</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/comparing-the-features-of-low-cost-ws-2902a-osprey-weather-sensor-an-in-depth-review/"><u>Comparing the Features of Low-Cost WS-2902A Osprey Weather Sensor: An In-Depth Review</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/fixing-ghost-recon-breakpoint-how-to-resolve-crash-problems-fast-and-simple/"><u>Fixing Ghost Recon Breakpoint: How to Resolve Crash Problems Fast and Simple</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/here-are-different-ways-to-find-pokemon-go-trainer-codes-to-add-to-your-account-on-apple-iphone-6-drfone-by-drfone-virtual-ios/"><u>Here are Different Ways to Find Pokemon Go Trainer Codes to Add to Your Account On Apple iPhone 6 | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-location-on-facebook-dating-for-your-meizu-21-pro-drfone-by-drfone-virtual-android/"><u>How to Change Location On Facebook Dating for your Meizu 21 Pro | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-apple-iphone-xs-max-drfone-by-drfone-virtual-ios/"><u>How to get the dragon scale and evolution-enabled pokemon On Apple iPhone XS Max? | Dr.fone</u></a></li>
+<li><a href="https://win-marvelous.techidaily.com/hp3/"><u>HPノートパソコンから失われた情報を救う方法3</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-apple-iphone-se-drfone-by-drfone-virtual-ios/"><u>In 2024, 9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Apple iPhone SE | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-apple-iphone-12-drfone-by-drfone-virtual-ios/"><u>In 2024, How to get the dragon scale and evolution-enabled pokemon On Apple iPhone 12? | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-apple-iphone-13-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Apple iPhone 13 Pro | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-planning-to-use-a-pokemon-go-joystick-on-oppo-a1-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Planning to Use a Pokemon Go Joystick on Oppo A1 5G? | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-which-pokemon-can-evolve-with-a-moon-stone-for-apple-iphone-7-drfone-by-drfone-virtual-ios/"><u>In 2024, Which Pokémon can Evolve with a Moon Stone For Apple iPhone 7? | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-why-does-the-pokemon-go-battle-league-not-available-on-apple-iphone-xs-max-drfone-by-drfone-virtual-ios/"><u>In 2024, Why does the pokemon go battle league not available On Apple iPhone XS Max | Dr.fone</u></a></li>
+<li><a href="https://ai-voice-clone.techidaily.com/new-2024-approved-how-to-translate-videos-in-tamil-for-a-wider-reach/"><u>New 2024 Approved How To Translate Videos in Tamil for a Wider Reach</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/planning-to-use-a-pokemon-go-joystick-on-apple-iphone-8-drfone-by-drfone-virtual-ios/"><u>Planning to Use a Pokemon Go Joystick on Apple iPhone 8? | Dr.fone</u></a></li>
 </ul></div>
 
