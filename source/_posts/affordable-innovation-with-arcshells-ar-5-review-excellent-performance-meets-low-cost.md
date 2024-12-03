@@ -1,7 +1,7 @@
 ---
 title: "Affordable Innovation with ArcShell's AR-5 Review: Excellent Performance Meets Low Cost."
-date: 2024-11-22T03:36:13.450Z
-updated: 2024-11-23T17:47:20.024Z
+date: 2024-12-01T18:34:28.276Z
+updated: 2024-12-02T22:59:55.735Z
 categories:
   - BestProducts
 description: "This Article Describes Affordable Innovation with ArcShell's AR-5 Review: Excellent Performance Meets Low Cost."
@@ -40,7 +40,7 @@ Lifewire / Jonno Hill
 4.5
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Corsair One Pro
@@ -78,11 +78,11 @@ Lifewire / Jonno Hill
 
 ![Corsair One Pro](https://www.lifewire.com/thmb/WC9SY_zrilLIIn_IFlawIcQw3l0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Corsair-One-Pro-Desktop-Computer-2-567ca178cde846769c37ca84176d79b7.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Jonno Hill
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Design** :**Beautiful and compact**
 
@@ -100,10 +100,6 @@ Lifewire / Jonno Hill
 
 ![Corsair One Pro](https://www.lifewire.com/thmb/fx7g2Vg5VksuNwH4LThQhniEsg0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Corsair-One-Pro-Desktop-Computer-3-51b17ae55a144069ac2ce72488200290.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Jonno Hill
 
 ## **Performance** : **Solid for gaming, but limited RAM for video editing**
@@ -115,6 +111,10 @@ Lifewire / Jonno Hill
  On the gaming side, things were slightly less rosy, with the Corsair One Pro scoring an 8,602 in the synthetic gaming benchmark Time Spy in the 3DMark suite. Compare this with an average of 8,890 for systems with this hardware configuration. To put this in perspective, the average score on a system with a GTX 1080 instead of a 1080 Ti averages 7,180, so the Corsair One Pro is still doing just fine.
 
  It’s certainly enough memory if you don’t do much beyond gaming and web browsing, but it’s quite limiting for any creative applications like video editing and motion graphics.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Network** :**Everything a gaming PC needs**
 
@@ -132,6 +132,10 @@ Lifewire / Jonno Hill
 
  Lifewire / Jonno Hill
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Price: A premium, but a deserved one**
 
  The Corsair One Pro as configured can be found online for between $1700-$1900, which is a pretty great deal for this system. I put together a comparable build on PCPartPicker and despite cutting a few corners still ended up at around $1600 all-in. A $100-300 premium for a well-built, compact desktop like this is incredibly reasonable by any measure.
@@ -143,10 +147,6 @@ Lifewire / Jonno Hill
 ![Corsair One Pro](https://www.lifewire.com/thmb/b6k5YWyriZ_Y7470FGAcu1W_ff4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Corsair-One-Pro-Desktop-Computer-4-0587a464511c4a0c9b312ba9693af470.jpg)
 
  Lifewire / Jonno Hill
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Corsair One Pro vs HP OMEN Obelisk**
 
@@ -163,7 +163,7 @@ Lifewire / Jonno Hill
  Corsair has done an admirable job putting together a pre-built PC that can satisfy everyone from the total novice to the PC-building veteran. The Corsair One Pro is beautifully designed, space-efficient, quiet, and cool. To top things off, they aren’t even charging an extraordinary premium over what the parts would cost if purchased individually. Buyers should be able to consider the Corsair One Pro with very few reservations.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Specs
@@ -201,24 +201,24 @@ Lifewire / Jonno Hill
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-embrace-pure-gaming-essential-ios-games-played-offline/"><u>[New] 2024 Approved Embrace Pure Gaming Essential iOS Games Played Offline</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/new-all-you-need-to-know-about-valheim-seeds-and-the-best-valheim-seeds-for-2024/"><u>[New] All You Need to Know About Valheim Seeds & The Best Valheim Seeds for 2024</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-cutting-edge-simulators-for-sonys-playstation-3-games-pc-for-2024/"><u>[New] Cutting-Edge Simulators for Sony's PlayStation 3 Games (PC) for 2024</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/new-mastering-view-counts-eluding-mechanized-spectators/"><u>[New] Mastering View Counts Eluding Mechanized Spectators</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-from-stills-to-movement-mastery-with-polaroids-latest-tech/"><u>[Updated] 2024 Approved From Stills to Movement Mastery with Polaroid's Latest Tech</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-top-15-no-cost-web-image-editors-review-for-2024/"><u>[Updated] Top 15 No-Cost Web Image Editors Review for 2024</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/1k-discounted-lenovo-device-ideal-for-seamless-hybrid-working-exclusive-insight-from-zdnet/"><u>$1K Discounted Lenovo Device Ideal for Seamless Hybrid Working - Exclusive Insight From ZDNet!</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-apple-iphone-14-drfone-by-drfone-virtual-ios/"><u>9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Apple iPhone 14 | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-apple-iphone-7-plus-drfone-by-drfone-virtual-ios/"><u>9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Apple iPhone 7 Plus | Dr.fone</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/discover-the-top-free-h265-encoded-uhd-media-players-of-2022-latest-rankings-and-picks/"><u>Discover the Top Free H.265 Encoded UHD Media Players of 2022 - Latest Rankings and Picks!</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-apple-iphone-xs-max-drfone-by-drfone-virtual-ios/"><u>Here are Some Pro Tips for Pokemon Go PvP Battles On Apple iPhone XS Max | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/heres-everything-you-should-know-about-pokemon-stops-in-detail-on-apple-iphone-8-drfone-by-drfone-virtual-ios/"><u>Heres Everything You Should Know About Pokemon Stops in Detail On Apple iPhone 8 | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/how-to-enter-the-ispoofer-discord-server-on-apple-iphone-6-drfone-by-drfone-virtual-ios/"><u>How to enter the iSpoofer discord server On Apple iPhone 6 | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-a-comprehensive-guide-to-mastering-ipogo-for-pokemon-go-on-apple-iphone-11-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, A Comprehensive Guide to Mastering iPogo for Pokémon GO On Apple iPhone 11 Pro Max | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-a-detailed-pokemon-go-pvp-tier-list-to-make-you-a-pro-trainer-for-apple-iphone-8-drfone-by-drfone-virtual-ios/"><u>In 2024, A Detailed Pokemon Go PvP Tier List to Make you a Pro Trainer For Apple iPhone 8 | Dr.fone</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-best-vivo-y27-5g-pattern-lock-removal-tools-remove-android-pattern-lock-without-losing-data-by-drfone-android/"><u>In 2024, Best Vivo Y27 5G Pattern Lock Removal Tools Remove Android Pattern Lock Without Losing Data</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-apple-iphone-15-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, Can I use iTools gpx file to catch the rare Pokemon On Apple iPhone 15 Plus | Dr.fone</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/premium-top-5-budget-friendly-chromeos-recorders/"><u>Premium Top 5 Budget-Friendly ChromeOS Recorders</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/the-most-useful-tips-for-pokemon-go-ultra-league-on-apple-iphone-13-mini-drfone-by-drfone-virtual-ios/"><u>The Most Useful Tips for Pokemon Go Ultra League On Apple iPhone 13 mini | Dr.fone</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-2024-approved-superior-selection-of-free-high-definition-software-for-both-oss/"><u>[Updated] 2024 Approved Superior Selection of Free, High-Definition Software for Both OS's</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-why-virtual-reality-lack-of-content-2023-update/"><u>[Updated] 2024 Approved Why Virtual Reality Lack of Content? -2023 Update</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-enhance-your-videos-call-to-action-a-step-by-step-filmora-guide-for-2024/"><u>[Updated] Enhance Your Video's Call-to-Action A Step-by-Step Filmora Guide for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-elevating-visual-quality-incorporating-filters-in-videography/"><u>2024 Approved Elevating Visual Quality Incorporating Filters in Videography</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/advanced-guide-to-virtual-backgrounds-in-videography-for-2024/"><u>Advanced Guide to Virtual Backgrounds in Videography for 2024</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/best-pokemons-for-pvp-matches-in-pokemon-go-for-apple-iphone-13-mini-drfone-by-drfone-virtual-ios/"><u>Best Pokemons for PVP Matches in Pokemon Go For Apple iPhone 13 mini | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/best-pokemons-for-pvp-matches-in-pokemon-go-for-apple-iphone-x-drfone-by-drfone-virtual-ios/"><u>Best Pokemons for PVP Matches in Pokemon Go For Apple iPhone X | Dr.fone</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/building-a-cohesive-setup-synergizing-obs-with-zoom-services-for-2024/"><u>Building a Cohesive Setup Synergizing OBS with Zoom Services for 2024</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/catchemall-celebrate-national-pokemon-day-with-virtual-location-on-apple-iphone-6-drfone-by-drfone-virtual-ios/"><u>CatchEmAll Celebrate National Pokémon Day with Virtual Location On Apple iPhone 6 | Dr.fone</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/examining-gpt-4s-edge-over-gpt-35/"><u>Examining GPT-4's Edge Over GPT-3.5</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/factory-reset-on-iphone-6-plus-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>Factory Reset on iPhone 6 Plus | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/how-can-i-create-my-pokemon-overworld-maps-on-apple-iphone-8-drfone-by-drfone-virtual-ios/"><u>How Can I Create My Pokemon Overworld Maps On Apple iPhone 8? | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/how-does-the-stardust-trade-cost-in-pokemon-go-on-apple-iphone-6s-drfone-by-drfone-virtual-ios/"><u>How does the stardust trade cost In pokemon go On Apple iPhone 6s? | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-is-mega-mewtwo-the-strongest-pokemon-on-apple-iphone-7-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, Is Mega Mewtwo The Strongest Pokémon On Apple iPhone 7 Plus? | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-planning-to-use-a-pokemon-go-joystick-on-apple-iphone-xs-drfone-by-drfone-virtual-ios/"><u>In 2024, Planning to Use a Pokemon Go Joystick on Apple iPhone XS? | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-the-best-ispoofer-alternative-to-try-on-apple-iphone-xs-max-drfone-by-drfone-virtual-ios/"><u>In 2024, The Best iSpoofer Alternative to Try On Apple iPhone XS Max | Dr.fone</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/optimal-6-crafted-urban-home-concepts-for-2024/"><u>Optimal 6 Crafted Urban Home Concepts for 2024</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-apple-iphone-se-drfone-by-drfone-virtual-ios/"><u>The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Apple iPhone SE | Dr.fone</u></a></li>
+<li><a href="https://article-tips.techidaily.com/top-video-app-selection-for-immersive-viewing-on-ios/"><u>Top Video App Selection for Immersive Viewing on iOS</u></a></li>
 </ul></div>
 
