@@ -1,7 +1,7 @@
 ---
 title: How to Fix 'Final Fantasy XV' Crashes in Your PC Game
-date: 2024-12-01T20:10:00.632Z
-updated: 2024-12-02T17:28:14.194Z
+date: 2024-12-05T16:19:47.697Z
+updated: 2024-12-10T01:47:21.814Z
 tags:
   - win11
   - win10
@@ -31,10 +31,6 @@ Fall Guys: Ultimate Knockout is a fascinating battle royale game. But like most 
 6. [**Reinstall the game**](https://tools.techidaily.com/drivereasy/download/)
 7. **[Check for Windows Updates](https://tools.techidaily.com/drivereasy/download/)**
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Check your computer specs first
 
  Before you attempt to try any of the below solutions, ensure that your device meets the minimum specifications to run Fall Guys: Ultimate Knockout. If you’re sure your PC does meet the requirements, you can skip to fixes directly.
@@ -49,7 +45,7 @@ Fall Guys: Ultimate Knockout is a fascinating battle royale game. But like most 
  If unfortunately, your PC doesn’t meet the system requirements for the game, then you’ll need to either update your hardware or play the game on another device that supports it.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Fix 1: Check Fall Guys server status
@@ -71,7 +67,7 @@ Fall Guys: Ultimate Knockout is a fascinating battle royale game. But like most 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/12/2019-12-30_12-07-59.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **3)** Restart Fall Guys to see if it runs correctly.
@@ -79,7 +75,7 @@ Fall Guys: Ultimate Knockout is a fascinating battle royale game. But like most 
 If this doesn’t help, read on and try Fix 3.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Fix 3: Update the graphics driver
@@ -113,6 +109,10 @@ If this doesn’t help, read on and try Fix 3.
 
  If the game still won’t launch, then move on to the next fix, below.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Fix 4: Verify game files
 
  The Fall Guys not launching issue may occur when you have one or more game files corrupted or deleted by malware. To fix this, you can try verifying the integrity of your game files. Here’s how to do it:
@@ -123,10 +123,6 @@ If this doesn’t help, read on and try Fix 3.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/12/1-2.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  3) Right-click **Fall Guys: Ultimate Knockout** and select **Properties** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/12/2-4.jpg)
@@ -135,13 +131,13 @@ If this doesn’t help, read on and try Fix 3.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/12/3-1.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 5) Relaunch your game to test your issue.
 
 If the game is still unplayable, then continue with the next fix below.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Fix 5: Run as administrator
 
@@ -152,6 +148,10 @@ If the game is still unplayable, then continue with the next fix below.
  1) Right-click the Fall Guys desktop icon and select**Properties** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/12/2020-12-16_16-59-37.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  2) Click the **Compatibility** tab and check **Run this program as an administrator** . Then click **OK** .
 
@@ -164,7 +164,7 @@ If the game is still unplayable, then continue with the next fix below.
 If the game still won’t launch, then try the next solution.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Fix 6: Reinstall the game
@@ -214,17 +214,17 @@ If the issue continues to occur, go to the next solution.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-prime-websites-to-increase-video-viewership/"><u>[New] Prime Websites to Increase Video Viewership</u></a></li>
-<li><a href="https://article-helps.techidaily.com/new-the-art-of-mac-mixer-synchronization/"><u>[New] The Art of Mac-Mixer Synchronization</u></a></li>
-<li><a href="https://some-skills.techidaily.com/updated-transform-your-footage-with-fast-and-flawless-trims-in-windows-11/"><u>[Updated] Transform Your Footage with Fast & Flawless Trims in Windows 11</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/approved-synchronized-screen-serenity-youtube-loops-on-television/"><u>2024 Approved Synchronized Screen Serenity YouTube Loops on Television</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/a-working-guide-for-pachirisu-pokemon-go-map-on-apple-iphone-xs-max-drfone-by-drfone-virtual-ios/"><u>A Working Guide For Pachirisu Pokemon Go Map On Apple iPhone XS Max | Dr.fone</u></a></li>
-<li><a href="https://article-files.techidaily.com/how-to-avoid-and-eliminate-fog-on-gopro-lenshousing/"><u>How to Avoid and Eliminate Fog on GoPro Lens/Housing</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-do-you-get-sun-stone-evolutions-in-pokemon-for-apple-iphone-6s-drfone-by-drfone-virtual-ios/"><u>In 2024, How Do You Get Sun Stone Evolutions in Pokémon For Apple iPhone 6s? | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-pokemon-go-error-12-failed-to-detect-location-on-apple-iphone-12-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, Pokemon Go Error 12 Failed to Detect Location On Apple iPhone 12 Pro? | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-why-is-ipogo-not-working-on-apple-iphone-13-fixed-drfone-by-drfone-virtual-ios/"><u>In 2024, Why is iPogo not working On Apple iPhone 13? Fixed | Dr.fone</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/navigating-the-google-podcast-submission-guide/"><u>Navigating the Google Podcast Submission Guide</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/online-converter-von-pef-dateien-kostenlos-mit-movavi-hochwertige-losungen-fur-ihre-digitalisierung-bedurfnisse/"><u>Online Converter Von PEF Dateien Kostenlos Mit Movavi - Hochwertige Lösungen Für Ihre Digitalisierung Bedürfnisse</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/secure-snap-savings-androidmac-apps-guide/"><u>Secure Snap Savings Android/Mac Apps Guide</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-in-2024-augmented-reality-excellence-mastering-the-use-of-spark-ar-luts/"><u>[New] In 2024, Augmented Reality Excellence Mastering the Use of Spark AR LUTs</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-the-ultimate-checklist-for-mastering-bandicam-in-the-new-year/"><u>[New] In 2024, The Ultimate Checklist for Mastering Bandicam in the New Year</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-iconic-inning-cameo-examination/"><u>[Updated] Iconic Inning - Cameo Examination</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/a-detailed-pokemon-go-pvp-tier-list-to-make-you-a-pro-trainer-for-apple-iphone-13-drfone-by-drfone-virtual-ios/"><u>A Detailed Pokemon Go PvP Tier List to Make you a Pro Trainer For Apple iPhone 13 | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/dvdiphoneipad-digiarty/"><u>DVDからiPhone/iPadへ安全に移行 - Digiartyソフトウェアセンターでシームレスリッピング</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/how-and-where-to-find-a-shiny-stone-pokemon-for-apple-iphone-se-2022-drfone-by-drfone-virtual-ios/"><u>How and Where to Find a Shiny Stone Pokémon For Apple iPhone SE (2022)? | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-a-working-guide-for-pachirisu-pokemon-go-map-on-apple-iphone-14-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, A Working Guide For Pachirisu Pokemon Go Map On Apple iPhone 14 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-catch-or-beat-sleeping-snorlax-on-pokemon-go-for-apple-iphone-13-mini-drfone-by-drfone-virtual-ios/"><u>In 2024, Catch or Beat Sleeping Snorlax on Pokemon Go For Apple iPhone 13 mini | Dr.fone</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-master-your-mix-essential-audio-devices-for-podcast-success/"><u>In 2024, Master Your Mix Essential Audio Devices for Podcast Success</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/master-the-art-of-age-precision-on-tiktok-for-2024/"><u>Master the Art of Age Precision on TikTok for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/spoofing-life360-how-to-do-it-on-oppo-a79-5g-drfone-by-drfone-virtual-android/"><u>Spoofing Life360 How to Do it on Oppo A79 5G? | Dr.fone</u></a></li>
+<li><a href="https://discover-brilliant.techidaily.com/step-by-step-guide-on-downloading-and-setting-up-pokemon-go-on-android-worldwide/"><u>Step-by-Step Guide on Downloading and Setting Up Pokémon GO on Android Worldwide</u></a></li>
 </ul></div>
 

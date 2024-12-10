@@ -1,7 +1,7 @@
 ---
 title: Why does the pokemon go battle league not available On Apple iPhone SE | Dr.fone
-date: 2024-11-29T00:46:51.670Z
-updated: 2024-12-02T23:33:45.816Z
+date: 2024-12-08T23:37:05.768Z
+updated: 2024-12-09T19:10:53.273Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -64,7 +64,7 @@ Few players with the assist of Melmetal (ground and steel type) could lodge cons
 ![pokemon 2](https://images.wondershare.com/drfone/2020/pokemon-2.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 After this issue was tweeted to the notice of the game publisher, Ninattic temporarily paused Battle League. Trainers while accessing the live tournament event would be notified with – “Pokemon Go Battle League Not Available” by the game.
@@ -108,6 +108,10 @@ There are several adjustments to the program that makes it fun to use. You can a
 
 - You can set up multiple lures on several Poke stops and return to those exact coordinates to catch your lured Pokémon.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Tip #3
 
 - In order to attain a Pokémon who once powered up to its maximum potential can give you a battle worthy breed, you will need to sickle through a couple of them in order find one worth powering up.
@@ -121,6 +125,10 @@ There are several adjustments to the program that makes it fun to use. You can a
 
 Pokémon Go continues to amaze trainers and fans of the franchise, and is becoming a most engaging and fun experience. Trainers are going to keep enjoying new and improved updates that brings a cooler jazz to the game. Even though there was a hold up in the fun Niantic has improved upon their initial flaws to give us the battle league tournaments we all love.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Will Pokémon Go Ban the Account if You Use PGSharp On Apple iPhone SE
 
 According to the original gameplay, you need to be physically present on the battleground to catch the Pokémon. It means you can only catch those characters which are present near your location. But, you can go after special characters present away from your town or city. This is why you will look for location spoofing options.
@@ -131,19 +139,11 @@ There are many fake GPS apps available that you can install, but only a few of t
 
 In this article, we will discuss more PGSharp and ban.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: Why Pokémon Go Account Get Banned
 
 The Niantic, the developer of Pokémon Go, is particular about the safety of the game. The main priority of them with Pokémon GO is to provide a fair game experience to players worldwide. If Niantic finds something wrong with the terms of the game, then it may ban your account.
 
 ![pokemon go ban](https://images.wondershare.com/drfone/article/2023/05/pgsharp-ban.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 The following are the reasons that may cause to ban your account:
 
@@ -154,6 +154,10 @@ The following are the reasons that may cause to ban your account:
 
 If you think your account may get terminated, you should keep the terms and conditions of the game in mind. However, you can spoof location smartly with safe fake GPS like PGSharp for Android and Dr.Fone virtual location iOS.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2: Thumb Rule for spoofing with PGSharp
 
 Once you decided to spoof Pokémon Go, you need to install a reliable and secure spoofing app. Also, you should not use your main account while spoofing. With PGSharp, you need to create a PTC account to safely spoof the game.
@@ -161,10 +165,6 @@ Once you decided to spoof Pokémon Go, you need to install a reliable and secure
 Do not spoof or change location frequently, as this may bring you in the radar of Niantic, and your account may get banned.
 
 Use an app with a real map-like interface that is difficult to notice from Niantic.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 2.1 Spoof Pokémon with PGSharp without a ban
 
@@ -178,16 +178,12 @@ To get a free beta key, go to the official site of PGSharp and look for a beta k
 
 ![drfone](https://images.wondershare.com/drfone/article/2020/09/PGSharp-ban-4.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Once you get the key, you can click on finish and can make payment in virtual currency. Also, you can fake your personal details as it is a beta key.
 
 ![drfone](https://images.wondershare.com/drfone/article/2020/09/PGSharp-ban-5.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Now, once you got the beta key, fill it in the login details to use the PGSharp. Now, you are ready to spoof location with PGSharp on Pokémon Go.
@@ -208,6 +204,10 @@ Spoofing is not legal, thus to spoof Pokemon Go, you need to use the PTC account
 
 ![drfone](https://images.wondershare.com/drfone/article/2020/09/PGSharp-ban-6.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Also, make sure to uninstall the official account to spoof the location to help you catch more Pokémon in less time.
 
 ## Part 4: Why Opt Dr.Fone Virtual Location?
@@ -221,10 +221,6 @@ Dr.Fone - Virtual Location also saves you from a ban and doesn’t require jailb
 To use it, you will need to install it on your device from the official site or click the "_Try It Free_" button below directly. Once installed, connect your Apple iPhone SE to your computer and click on get the started icon. Now you have the world map-like interface where you can search for any desired location to spoof. So, all in all, it is very easy to use for a novice too. The best part is that it causes no ban like other unsafe spoofing apps.
 
 ![drfone](https://images.wondershare.com/drfone/article/2022/11/pgsharp-ban.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -247,10 +243,6 @@ Pokemon Go Battle League runs different seasons and once a season would end, pla
 
 ![pokemon battle rewards for ranks](https://images.wondershare.com/drfone/2020/pokemon-battle-rewards-for-ranks.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Apart from these Pokemon Go League awards, you will also get a free encounter with different Pokemons. For instance, if you finish at Rank 10, then you can even get a chance to catch a Pikachu Libre.
 
 | **Rank** | **Pokemon Encounter (Guaranteed)** | **Pokemon Encounter (Optional)** |
@@ -268,6 +260,10 @@ Apart from these Pokemon Go League awards, you will also get a free encounter wi
 
 ![pokemon go pikachu libre](https://images.wondershare.com/drfone/2020/pokemon-go-pikachu-libre.jpeg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Get Battle League Pokemon Go Rewards?
 
 To get more Pokemon Go league rewards, you need to rank-up by playing with other trainers and winning more matches. The battles take place under three primary leagues:
@@ -284,6 +280,10 @@ Apart from that, three different cups would be organized in the season 5 Pokemon
 
 ![pokemon go battle leagues](https://images.wondershare.com/drfone/2020/pokemon-go-battle-leagues.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 When you start playing in Pokemon Go Battle League, Rank 1 would be unlocked. As you would keep winning more matches, your rank will improve. Though, to reach Rank 10, you also need an additional Go League Battle rating of 3000+.
 
 ![rank 10 pokemon pvp](https://images.wondershare.com/drfone/2020/rank-10-pokemon-pvp.jpg)
@@ -296,21 +296,25 @@ Once the Battle League season is finished, you can just go to your profile to se
 
 As stated, if you want to get more battle league Pokemon rewards, then you must level-up higher. Here are some of the tips that you can follow to level-up in the game easily.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Tip 1: Have a Balanced Team
 
 Most of the rookie PvP trainers make the common mistake of only picking attack-based Pokemons with fewer defense stats. Try not to make this mistake and have a balanced team in which you have both attacking and defensive Pokemons. Also, try to get Pokemons of different types to counter your opponent’s picks.
 
 ![pokemon go pvp battle](https://images.wondershare.com/drfone/2020/pokemon-go-pvp-battle.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Tip 2: Know the Current Meta Tier
 
 Just like any other PvP game, Pokemon Go Battle Leagues also has a tier-list. That is, some Pokemons are just more powerful than others. Therefore, before you pick your Pokemons, get to know about the current meta-list. This will help you pick more powerful Pokemons that can easily carry a game.
 
 ![meta pokemons in pvp](https://images.wondershare.com/drfone/2020/meta-pokemons-in-pvp.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Tip 3: Catch More Pokemons Easily
 
@@ -325,10 +329,6 @@ Since it is not feasible to step out and look for Pokemons, you can use a locati
 <iframe width="100%" height="450" src="https://www.youtube.com/embed/FfhgWxnARqo" frameborder="0" allowfullscreen=""></iframe>
 
 ![virtual location 05](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Now when you know about the updated Pokemon Go Battle League rewards, you must be inspired to rank-up in the game. To do that, you can follow the above-listed tips and collect more powerful Pokemons. For this, a location spoofer tool like Dr.Fone – Virtual Location (iOS) would certainly come in handy as it will help you catch your favorite Pokemons remotely.
 
@@ -346,20 +346,17 @@ Now when you know about the updated Pokemon Go Battle League rewards, you must b
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-a-list-of-the-quickest-rising-youtube-spaces-for-encouragement/"><u>[New] In 2024, A List of the Quickest Rising YouTube Spaces for Encouragement</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-fullscreen-partnership-how-to-choose-an-mcn-for-2024/"><u>[Updated] Fullscreen Partnership How to Choose An MCN for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-fundamental-blueprints-to-enhance-facebook-ad-engagement/"><u>[Updated] In 2024, Fundamental Blueprints to Enhance Facebook Ad Engagement</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-in-2024-gopro-expertise-essential-techniques/"><u>[Updated] In 2024, GoPro Expertise Essential Techniques</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-simplify-your-collaboration-with-easy-steps-to-use-a-virtual-board-on-all-zoom-devices/"><u>[Updated] Simplify Your Collaboration with Easy Steps to Use a Virtual Board on All Zoom Devices</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-what-does-it-cost-to-boost-a-video-for-2024/"><u>[Updated] What Does It Cost to Boost a Video for 2024</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/full-guide-to-catch-100-iv-pokemon-using-a-map-on-apple-iphone-14-pro-max-drfone-by-drfone-virtual-ios/"><u>Full Guide to Catch 100 IV Pokémon Using a Map On Apple iPhone 14 Pro Max | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/how-do-you-get-sun-stone-evolutions-in-pokemon-for-apple-iphone-xr-drfone-by-drfone-virtual-ios/"><u>How Do You Get Sun Stone Evolutions in Pokémon For Apple iPhone XR? | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-apple-iphone-14-drfone-by-drfone-virtual-ios/"><u>How PGSharp Save You from Ban While Spoofing Pokemon Go On Apple iPhone 14? | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-here-are-some-of-the-best-pokemon-discord-servers-to-join-on-apple-iphone-6-drfone-by-drfone-virtual-ios/"><u>In 2024, Here are Some of the Best Pokemon Discord Servers to Join On Apple iPhone 6 | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-heres-everything-you-should-know-about-pokemon-stops-in-detail-on-apple-iphone-6s-drfone-by-drfone-virtual-ios/"><u>In 2024, Heres Everything You Should Know About Pokemon Stops in Detail On Apple iPhone 6s | Dr.fone</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/rs-in-virtual-marvel-universe-creation-for-2024/"><u>Leaders in Virtual Marvel Universe Creation for 2024</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/the-most-useful-tips-for-pokemon-go-ultra-league-on-apple-iphone-8-plus-drfone-by-drfone-virtual-ios/"><u>The Most Useful Tips for Pokemon Go Ultra League On Apple iPhone 8 Plus | Dr.fone</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1924732-9780698137226-the-secret-teachers-of-the-western-world/"><u>The Secret Teachers of the Western World | Free Book</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/top-15-augmented-reality-games-like-pokemon-go-to-play-on-apple-iphone-xr-drfone-by-drfone-virtual-ios/"><u>Top 15 Augmented Reality Games Like Pokémon GO To Play On Apple iPhone XR | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-mac-techniques-for-instagram-short-form-videos/"><u>[New] 2024 Approved Mac Techniques for Instagram Short-Form Videos</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-key-steps-in-manipulating-song-pace-in-spotify-app/"><u>[Updated] Key Steps in Manipulating Song Pace in Spotify App</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/all-you-need-to-know-about-mega-greninja-for-apple-iphone-6-drfone-by-drfone-virtual-ios/"><u>All You Need To Know About Mega Greninja For Apple iPhone 6 | Dr.fone</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/cure-kernel32dll-problems-on-pc/"><u>Cure Kernel32.dll Problems on PC</u></a></li>
+<li><a href="https://games-able.techidaily.com/ensuring-complete-game-displays-in-epics-library/"><u>Ensuring Complete Game Displays in Epic's Library</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/free-games-galore-the-best-download-sites-for-pc-android-and-mobile/"><u>Free Games Galore The Best Download Sites for PC, Android, and Mobile</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-catch-or-beat-sleeping-snorlax-on-pokemon-go-for-apple-iphone-x-drfone-by-drfone-virtual-ios/"><u>In 2024, Catch or Beat Sleeping Snorlax on Pokemon Go For Apple iPhone X | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-catchemall-celebrate-national-pokemon-day-with-virtual-location-on-apple-iphone-13-drfone-by-drfone-virtual-ios/"><u>In 2024, CatchEmAll Celebrate National Pokémon Day with Virtual Location On Apple iPhone 13 | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-seamless-streams-addressing-instagrams-video-snags/"><u>In 2024, Seamless Streams Addressing Instagram's Video Snags</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-apple-iphone-8-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, Unova Stone Pokémon Go Evolution List and How Catch Them For Apple iPhone 8 Plus | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/transform-your-iphone-snaps-into-stunning-hdr-photos-for-2024/"><u>Transform Your iPhone Snaps Into Stunning HDR Photos for 2024</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/why-cant-i-install-the-ipogo-on-apple-iphone-12-mini-drfone-by-drfone-virtual-ios/"><u>Why cant I install the ipogo On Apple iPhone 12 mini | Dr.fone</u></a></li>
 </ul></div>
 
