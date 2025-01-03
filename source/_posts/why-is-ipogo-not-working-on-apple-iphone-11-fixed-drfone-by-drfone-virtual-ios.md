@@ -1,7 +1,7 @@
 ---
 title: Why is iPogo not working On Apple iPhone 11? Fixed | Dr.fone
-date: 2024-12-17T23:24:10.877Z
-updated: 2024-12-24T16:15:53.456Z
+date: 2024-12-26T23:01:09.121Z
+updated: 2025-01-02T16:18:01.492Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -29,6 +29,10 @@ iPogo is a free to use Pokémon Go++ mod which can be downloaded as an APK file 
 - You keep track of Pokémon spawns, quests and raids using the feed on your iPogo.
 
 With all these amazing benefits at hand, it seems almost unfair to not be able to make the best of it if iPogo keeps crashing or stops working. Let’s look into the probable reasons why your iPogo is not working and explore methods to solve this dilemma.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 1: Common problem that iPogo is not working
 
@@ -59,19 +63,23 @@ It is often said that short cuts can cut you short or in this case, hacked! Disr
 
 **Note:** All of these installation methods have specific varied requirements which must be checked appropriately.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2: A better alternative for iPogo - virtual location
 
 If using the iPogo mod to enhance your gaming experience on Pokémon Go seem less appealing with all the added hassle then there is a better alternative for you to use. You can employ a much simpler and easier to install GPS mocking application like Wondershare’s [Dr.Fone Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/). It offers amazing user-friendly features like speed modulation, joystick control and map routing with none of the drawbacks that you had to previously overcome. It is a highly efficient virtual location tool that can be used to conveniently spoof your location without running the risk of detection on a GPS based game like Pokémon Go.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Primary Features of Dr. Fone
 
 - Adjust the speed of travel with three speed modes, like walking, cycling or even driving.
 - Manually move your GPS on the map freely using a virtual joystick in a 360 degree direction.
 - Simulate your avatar’s movements to travel on a determined route of your choice.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Step by Step Tutorial
 
@@ -84,7 +92,7 @@ Begin with downloading Dr.Fone – Virtual Location (iOS) on your PC. Then, inst
 ![drfone home](https://images.wondershare.com/drfone/guide/drfone-home.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 2: Plug iPhone**
@@ -99,25 +107,21 @@ You will notice a map on the screen now. As it comes, you got to click on ‘Cen
 
 ![virtual location 03](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 4: Enable Teleport Mode**
 
 Now, you are required to turn on the ‘teleport mode’. To do this, simply click on the first icon on the upper right hand corner. After that, enter the location you want on the upper right field and then hit ‘Go’.
 
 ![virtual location 04](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 5: Start Teleporting**
 
 Once you enter the location, a pop-up will appear. Here, you can see the distance of the location you have chosen. Click on ‘Move here’ in the pop up box and you are good to go.
 
 ![virtual location 05](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Now, the location is changed. You can now open any location based app on your Apple iPhone 11 and check the location. It will show the location you have selected.
 
@@ -134,10 +138,6 @@ Sinnoh Stones are similar to other evolutionary items found in Pokemon Go, like 
 The Sinnoh Stone is a new evolution item, and all eighteen-4th generation Pokémon's require Sinnoh Stones for their evolution. It also allows Gen 1 and 2 Pokémon's to evolve into Gen 4 evolution stages. The Sinnoh Stones items are used for all cross-generation evolutions. Below is the listing of Pokémon's, which evolve using a Sinnoh Stone.
 
 ![sinnoh stones pokemon go](https://images.wondershare.com/drfone/2020/sinnoh-stones-pokemon-go.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 | **Pokemon** | **Evolves** |
 | --- | --- |
@@ -160,11 +160,19 @@ The Sinnoh Stone is a new evolution item, and all eighteen-4th generation Pokém
 | Swinub | Mamoswine |
 | Kirlia | Gallade |
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2: Obtaining Sinnoh Stones to Level Up
 
 Sinnoh Stone can be obtained during the battle against the three leaders on Community Day, on the completion of the final day of your 7-day Research Task, and During PVP. You won't be finding them at Poke Stops. Main places where you can find Sinnoh Stones are on the 7th Day of your Research Task and award for taking part in PVP. Another place that is not popular but odds to find Sinnoh Stone is present includes the introduction to PVP when you're new to it. Players can obtain up to 10 Sinnoh Stones during the February Community Day and when the month is Pokemon Go Community Day. 5 Sinnoh Stones can be obtained by beating the three leaders in the battles and another 5 from winning PVP battles against friends. Defeating a Team Go Rocket Leader and Go Battle Reward is Sinnoh Stone.
 
 ![sinnoh stones to level up](https://images.wondershare.com/drfone/2020/sinnoh-stones-to-level-up.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 You can use [Dr. Fone's Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) to mock your location without any movement and obtain these Sinnoh Stones. Dr.Fone's virtual location allows you to mock your location and lets the application on your phone think that you're at a place selected in Dr.Fone's application interface without resulting in any ban or detection from Pokemon Go developers. You can follow the steps listed below in order to catch Pokemon by one click to go anywhere without moving.
 
@@ -175,16 +183,12 @@ Pokemon Go can be played by using the toolkit of Dr. Fone without shifting. Open
 ![drfone home](https://images.wondershare.com/drfone/guide/drfone-home.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 You can press the Get Started" button to start the process upon phone detection.
 
 ![virtual location 1](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Step 2: Imitating Movement between steps:**
 
@@ -200,11 +204,11 @@ For the Pokemon Go application, the new position will appear as real and will pr
 
 ![virtual location 10](https://images.wondershare.com/drfone/guide/virtual-location-10.png)
 
-![virtual location 11](https://images.wondershare.com/drfone/guide/virtual-location-11.png)
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+![virtual location 11](https://images.wondershare.com/drfone/guide/virtual-location-11.png)
 
 **Step 3: Movement Simulation between more than two spots:**
 
@@ -234,6 +238,10 @@ Here comes the Pokemon Go Ultra League! Now you can battle other strangers, frie
 
 Isn’t it getting too enticing to dive in? What’s next? Before you set yourself on the ground, gear up for knowing the most useful tips for Pokemon Go Ultra League. You will be thankful for these tips later!
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How Does the UltraLeague Team Work on Pokemon Go?
 
 As the Ultra League Pokemon Go is not as cheap to develop a team as the great league, there is still a chance of being a CP cap of 2500. You won’t be maxing out Pokemon in a similar way as the Master League. However, a slightly higher CP brings more legendaries appearances that you have been catching in Raids or weekly Research for years.
@@ -262,17 +270,9 @@ Here you go-
 
 The ability of this Pokemon to use the charged move sludge bomb prevents any troublesome Fairy-type Pokemon that you may confront. It includes the benefit over Rocky, Ground, and Water-type Pokemon due to its Grass-type move, making Venusaur help you win the match.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 2\. Charizard
 
 ![Pokemon go ultra league meta](https://drfone.wondershare.com/2020/Pokemon-go-ultra-league-meta.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Charizard among the Pokemon Go ultra league tier list shines as it balances effortlessly to hold off. With its second move on, it remains strong. There is a need to have such an iconic Pokemon of all the time in your team. What do you think?
 
@@ -336,15 +336,20 @@ Who has given a thought to the involvement of a navigation app for experiencing 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-knowledge.techidaily.com/updated-illustration-elevation-incorporating-text-into-3d-artwork/"><u>[Updated] Illustration Elevation Incorporating Text Into 3D Artwork</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/beyond-full-hd-understanding-4ks-wonders/"><u>Beyond Full HD: Understanding 4K's Wonders</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/guidelines-to-reactivate-an-inactive-hotspot-in-windows-11/"><u>Guidelines to Reactivate an Inactive Hotspot in Windows 11</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-apple-iphone-se-2020-drfone-by-drfone-virtual-ios/"><u>In 2024, Here are Some Pro Tips for Pokemon Go PvP Battles On Apple iPhone SE (2020) | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-preparation-to-beat-giovani-in-pokemon-go-for-apple-iphone-11-drfone-by-drfone-virtual-ios/"><u>In 2024, Preparation to Beat Giovani in Pokemon Go For Apple iPhone 11 | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-the-most-useful-tips-for-pokemon-go-ultra-league-on-apple-iphone-13-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, The Most Useful Tips for Pokemon Go Ultra League On Apple iPhone 13 Pro Max | Dr.fone</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/leading-sites-boosting-youtube-viewership-for-2024/"><u>Leading Sites Boosting YouTube Viewership for 2024</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/ultimate-guide-to-catch-the-regional-located-pokemon-for-apple-iphone-xs-drfone-by-drfone-virtual-ios/"><u>Ultimate Guide to Catch the Regional-Located Pokemon For Apple iPhone XS | Dr.fone</u></a></li>
-<li><a href="https://some-skills.techidaily.com/ultimate-visualizer-speedster-for-windows-10-for-2024/"><u>Ultimate Visualizer - Speedster for Windows 10 for 2024</u></a></li>
-<li><a href="https://ai-video-editing.techidaily.com/updated-davinci-resolve-scopes-have-undergone-significant-improvements-find-out-how-to-use-these-scopes-and-improve-your-video-editing-skills-for-2024/"><u>Updated DaVinci Resolve Scopes Have Undergone Significant Improvements. Find Out How to Use These Scopes and Improve Your Video Editing Skills for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-2024-approved-best-choices-in-game-livestream-technology/"><u>[New] 2024 Approved Best Choices in Game Livestream Technology</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-in-2024-swap-periscope-for-success-best-replacements-for-iphoneandroid/"><u>[New] In 2024, Swap Periscope for Success Best Replacements for iPhone/Android</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-unlocking-igtv-potential-tips-and-strategies/"><u>[New] Unlocking IGTV Potential Tips & Strategies</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-game-on-with-more-space-topping-10-hddssds-for-2024/"><u>[Updated] Game On with More Space Topping 10 HDD/SSDs for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-navigating-the-lands-marketplace-of-product-sponsored-youtube-content/"><u>2024 Approved Navigating the Lands Marketplace of Product-Sponsored YouTube Content</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/alcatel-joy-tab-2-pro-your-guide-to-the-best-economical-lte-tablet-ever-made/"><u>Alcatel Joy Tab 2 Pro: Your Guide to the Best Economical LTE Tablet Ever Made</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/here-are-some-of-the-best-pokemon-discord-servers-to-join-on-apple-iphone-7-plus-drfone-by-drfone-virtual-ios/"><u>Here are Some of the Best Pokemon Discord Servers to Join On Apple iPhone 7 Plus | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-catch-or-beat-sleeping-snorlax-on-pokemon-go-for-apple-iphone-15-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, Catch or Beat Sleeping Snorlax on Pokemon Go For Apple iPhone 15 Plus | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-pokemon-go-error-12-failed-to-detect-location-on-apple-iphone-14-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, Pokemon Go Error 12 Failed to Detect Location On Apple iPhone 14 Pro Max? | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-turning-off-two-factor-authentication-from-iphone-7-plus-5-tips-you-must-know-by-drfone-ios/"><u>In 2024, Turning Off Two Factor Authentication From iPhone 7 Plus? 5 Tips You Must Know</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-why-does-the-pokemon-go-battle-league-not-available-on-apple-iphone-13-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, Why does the pokemon go battle league not available On Apple iPhone 13 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/pattern-locks-are-unsafe-secure-your-samsung-galaxy-z-fold-5-phone-now-with-these-tips-by-drfone-android/"><u>Pattern Locks Are Unsafe Secure Your Samsung Galaxy Z Fold 5 Phone Now with These Tips</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/preparation-to-beat-giovani-in-pokemon-go-for-apple-iphone-12-mini-drfone-by-drfone-virtual-ios/"><u>Preparation to Beat Giovani in Pokemon Go For Apple iPhone 12 mini | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/spicing-up-videos-with-youtube-music-linking-techniques/"><u>Spicing Up Videos with YouTube Music Linking Techniques</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/ultimate-guide-to-catch-the-regional-located-pokemon-for-apple-iphone-6s-drfone-by-drfone-virtual-ios/"><u>Ultimate Guide to Catch the Regional-Located Pokemon For Apple iPhone 6s | Dr.fone</u></a></li>
 </ul></div>
 
