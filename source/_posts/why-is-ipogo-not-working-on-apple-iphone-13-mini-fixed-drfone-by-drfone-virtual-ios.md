@@ -1,7 +1,7 @@
 ---
 title: Why is iPogo not working On Apple iPhone 13 mini? Fixed | Dr.fone
-date: 2025-01-10T03:20:36.394Z
-updated: 2025-01-16T00:07:19.822Z
+date: 2025-01-17T19:20:52.805Z
+updated: 2025-01-22T06:56:08.078Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -29,6 +29,10 @@ iPogo is a free to use Pokémon Go++ mod which can be downloaded as an APK file 
 - You keep track of Pokémon spawns, quests and raids using the feed on your iPogo.
 
 With all these amazing benefits at hand, it seems almost unfair to not be able to make the best of it if iPogo keeps crashing or stops working. Let’s look into the probable reasons why your iPogo is not working and explore methods to solve this dilemma.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 1: Common problem that iPogo is not working
 
@@ -79,10 +83,6 @@ Begin with downloading Dr.Fone – Virtual Location (iOS) on your PC. Then, inst
 
 ![drfone home](https://images.wondershare.com/drfone/guide/drfone-home.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 2: Plug iPhone**
 
 Now, grab your Apple iPhone 13 mini and get it connected with the PC using the lightening cable. Once done, hit on “Get Started” to begin spoofing.
@@ -107,6 +107,10 @@ Once you enter the location, a pop-up will appear. Here, you can see the distanc
 
 ![virtual location 05](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Now, the location is changed. You can now open any location based app on your Apple iPhone 13 mini and check the location. It will show the location you have selected.
 
 ## Conclusion
@@ -114,7 +118,7 @@ Now, the location is changed. You can now open any location based app on your Ap
 Pokémon Go Plus mods like iPogo involves a certain degree of care in order to have a healthy game experience. Be sure to take pre-emptive measures suggested in this article and you would notice your device running smoothly in no time.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## The Best iSpoofer Alternative to Try On Apple iPhone 13 mini
@@ -128,10 +132,6 @@ If you have been using iSpoofer for a while to change your Apple iPhone 13 mini 
 ## Part 1: Why did iSpoofer shutdown?
 
 Earlier, iSpoofer used to be one of the most popular apps to change our location on Pokemon Go. Sadly, the application is no longer working and you can’t even do iSpoofer download from its website.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Why did iSpoofer shutdown?
 
@@ -178,10 +178,6 @@ Now, please enter the address or the coordinates of the target location and load
 
 ![virtual location 04](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 3: Spoof your Apple iPhone 13 mini location**
 
 As you would select the target location, the application will automatically change the interface. You can now drag the pin around and even zoom in/out the map to select the target location. Lastly, you can select the “Move Here” button and the location of your Apple iPhone 13 mini would be changed automatically.
@@ -193,13 +189,13 @@ You can now launch Pokemon Go or any other GPS-based app to check the spoofed lo
 ![virtual location 7](https://images.wondershare.com/drfone/guide/virtual-location-07.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Note:** Keep in mind the cooldown duration before changing your location to ensure your account won’t get banned by Niantic while using the location spoofer. For instance, wait for a few minutes and only change your location realistically.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3: How to Spoof your Android Device’s Location for Pokemon Go?
@@ -232,11 +228,11 @@ That’s it! Now you can launch the mock location app and enter the address or c
 
 ![fake location on lexa](https://drfone.wondershare.com/2020/fake-location-on-lexa.jpg)
 
-There you go! After reading this post, I’m sure that you would be able to know about the iSpoofer use for Pokemon Go. Since iSpoofer has been shut down, you can no longer use it to change your Apple iPhone 13 mini location. Therefore, you can consider [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) (iOS & Android) as an ideal iSpoofer alternative for your device. In just a few clicks, you can change the location of your Apple iPhone 13 mini anywhere you like and that too without jailbreaking your phone.
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+There you go! After reading this post, I’m sure that you would be able to know about the iSpoofer use for Pokemon Go. Since iSpoofer has been shut down, you can no longer use it to change your Apple iPhone 13 mini location. Therefore, you can consider [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) (iOS & Android) as an ideal iSpoofer alternative for your device. In just a few clicks, you can change the location of your Apple iPhone 13 mini anywhere you like and that too without jailbreaking your phone.
 
 ## The Magnificent Art of Pokemon Go Streaming On Apple iPhone 13 mini?
 
@@ -245,6 +241,10 @@ There’s no denying that the internet gives us the power to do almost anything.
 **Pokemon Go streaming** is very popular on the internet nowadays. Many players around the world go live while catching Pokemon in the streets or battling against other trainers. By far, the **Pokemon Go live stream** continues to receive support and appreciation from the huge communities of players worldwide. That’s why you should look at this opportunity and see how it can significantly elevate your Pokemon Go experience.
 
 In this article, we will talk about the amazing benefits of Pokemon Go streaming. We will also provide a guide and some tips on how to **livestream Pokemon Go** outdoors and indoors. Continue reading below to learn more.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Things You Need to Know About Pokemon Go Streaming
 
@@ -255,6 +255,10 @@ In all actuality, Pokemon Go streaming is not different from other forms of live
 ![pokemon go streaming live](https://images.wondershare.com/drfone/article/2024/01/pokemon-go-livestream-1.JPG)
 
 We all know that video content online can be monetized through in-feed advertisements and sponsorships. The same thing goes for Pokemon Go streaming. You can earn a specific amount from every ad that appears on your livestream. Don’t worry. It doesn’t take much time and effort to implement. Most of the time, you just need to flash the promotional materials during the broadcast.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### It can help you meet new friends or even famous people in the industry
 
@@ -270,13 +274,13 @@ It’s true to say that multi-tasking is the core of Pokemon Go streaming. Of co
 
 Fate works in mysterious ways. We never know what’s waiting ahead. One day, you’re just an ordinary Pokemon Go player who enjoys catching Pokemon around the neighborhood. The next, you’re a star trainer competing globally for championship events. That’s possible to happen with Pokemon Go streaming as your ultimate stepping stone. Hence, don’t ever underestimate the power of this venture.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to Live-Stream Pokemon Go on Mobile Phones
 
 The primary mechanics of Pokemon Go involve a lot of outdoor strolling and physical movement. For instance, you have to walk around the street to catch as many Pokemon as possible. Another thing is that you need to visit the physical location of the PokeStops to spin the Photo Disc. Therefore, it’s highly recommended to use mobile devices when streaming Pokemon Go adventures. Don’t fret. Most modern smartphones nowadays are capable of handling such demanding tasks. Do you want to try it now? Here’s a short guide to help you get started.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Check your mobile device and internet connection very well
 
@@ -288,15 +292,15 @@ It’s fair to say that Pokemon Go streaming is not extremely particular when it
 
 ![streaming platform](https://images.wondershare.com/drfone/article/2024/01/pokemon-go-livestream-4.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Of course, you can bring a full computer setup outside while exploring around. That’s why you should choose a live-streaming application with features that allow you to broadcast directly on Your Apple iPhone 13 mini. Don’t worry. There are lots of choices on the internet. Pick the best one, and then create your Pokemon Go streaming account. Optimize your profile and make sure that the details are complete.
 
 ### Set up the Pokemon Go Livestream
 
 ![set up live stream](https://images.wondershare.com/drfone/article/2024/01/pokemon-go-livestream-5.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Set up the livestream accordingly. Start by writing a catchy title for your broadcast. Make sure that it clearly states the content and the intent of your Pokemon Go livestream. After that, add some keywords and specify the language of your stream. Yes. It’s very important because it will help interested viewers find you on the internet. Lastly, check the audio output. Adjust the volume clarity if necessary. Once you’re done, it’s time to hit the Go Live button and say “Hi” to the world.
 
@@ -311,10 +315,6 @@ Play Pokemon Go as if nobody is watching you online. Simply put, carry on with y
 The best tip that anyone can give you is to be yourself when you livestream Pokemon Go. Don’t hide behind false pretense just to portray someone you know you’re not. Let your viewers see the real you through the lens of the camera. Certainly, it will eventually help you build a larger and broader viewership over time. Are you looking for some more tips? Check out the list below.
 
 ![pokemon go livestream tips](https://images.wondershare.com/drfone/article/2024/01/pokemon-go-livestream-7.JPG)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 - Consider your safety as the primary priority. Stay alert and keep your essential belongings within your sight. You never know. People with ill intentions are just around the corners of the street. Hence, keep yourself safe from this kind of situation that may put your life in real danger.
 - One way to broaden your online exposure is to go live on a regular and consistent timetable. Plan ahead the exact schedule of your Pokemon Go livestream and announce it on your official social media handles.
@@ -358,16 +358,19 @@ Well, it looks a lot like Pokemon Go streaming is the newest way to enjoy this m
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-customize-your-screenscape-google-meets-dynamic-background-switch/"><u>[New] 2024 Approved Customize Your Screenscape Google Meet's Dynamic Background Switch</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-partnership-performed-live-tiktok-edition/"><u>[Updated] In 2024, Partnership Performed Live TikTok Edition</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-screen-recording-on-macos-ahead-with-bandicam-or-camtasia/"><u>[Updated] In 2024, Screen Recording on MacOS Ahead with Bandicam or Camtasia?</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/catchemall-celebrate-national-pokemon-day-with-virtual-location-on-apple-iphone-8-plus-drfone-by-drfone-virtual-ios/"><u>CatchEmAll Celebrate National Pokémon Day with Virtual Location On Apple iPhone 8 Plus | Dr.fone</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/fraps-revolutionizing-gamers-screen-recording/"><u>Fraps Revolutionizing Gamer's Screen Recording</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/guide-to-optimal-vr-headset-selection-freedom-or-connection-in-2024/"><u>Guide to Optimal VR Headset Selection Freedom or Connection, In 2024</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/how-to-use-pokemon-go-joystick-on-apple-iphone-6-drfone-by-drfone-virtual-ios/"><u>How to use Pokemon Go Joystick on Apple iPhone 6? | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/how-to-use-pokemon-go-joystick-on-apple-iphone-xs-drfone-by-drfone-virtual-ios/"><u>How to use Pokemon Go Joystick on Apple iPhone XS? | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-a-working-guide-for-pachirisu-pokemon-go-map-on-apple-iphone-15-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, A Working Guide For Pachirisu Pokemon Go Map On Apple iPhone 15 Pro Max | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/is-mega-mewtwo-the-strongest-pokemon-on-apple-iphone-se-2022-drfone-by-drfone-virtual-ios/"><u>Is Mega Mewtwo The Strongest Pokémon On Apple iPhone SE (2022)? | Dr.fone</u></a></li>
-<li><a href="https://common-error.techidaily.com/lower-your-pcs-cpu-load-by-correcting-audio-device-isolation-issues-in-windows/"><u>Lower Your PC's CPU Load by Correcting Audio Device Isolation Issues in Windows</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-2024-approved-discovering-the-top-11-methods-of-professional-color-enhancement/"><u>[Updated] 2024 Approved Discovering the Top 11 Methods of Professional Color Enhancement</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-pinnacle-enterprise-data-vaulting/"><u>[Updated] Pinnacle Enterprise Data Vaulting</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-the-merits-of-sns-hdr-vs-its-industry-contenders/"><u>2024 Approved The Merits of SNS HDR Vs. Its Industry Contenders</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/additional-tips-about-sinnoh-stone-for-apple-iphone-15-plus-drfone-by-drfone-virtual-ios/"><u>Additional Tips About Sinnoh Stone For Apple iPhone 15 Plus | Dr.fone</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/best-no-cost-ai-video-boosters-compatible-with-pc-and-mac-systems-top-10-picks/"><u>Best No-Cost AI Video Boosters Compatible with PC & Mac Systems - Top 10 Picks</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/1723016535631-boosting-call-of-duty-warzone-pc-sound-issues-fixes-and-hacks-in-224/"><u>Boosting Call of Duty Warzone PC Sound Issues? Fixes and Hacks in 2#24!</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/brand-protection-effective-techniques-for-instagram-watermarks/"><u>Brand Protection Effective Techniques for Instagram Watermarks</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/collaborative-screen-recording-for-2024/"><u>Collaborative Screen Recording for 2024</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-all-you-need-to-know-about-mega-greninja-for-apple-iphone-se-2022-drfone-by-drfone-virtual-ios/"><u>In 2024, All You Need To Know About Mega Greninja For Apple iPhone SE (2022) | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-can-xiaomi-redmi-note-12t-promirror-share-to-pc-drfone-by-drfone-android/"><u>In 2024, How Can Xiaomi Redmi Note 12T ProMirror Share to PC? | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-ultimate-guide-to-catch-the-regional-located-pokemon-for-apple-iphone-13-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, Ultimate Guide to Catch the Regional-Located Pokemon For Apple iPhone 13 Pro | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-what-pokemon-evolve-with-a-dawn-stone-for-apple-iphone-6s-drfone-by-drfone-virtual-ios/"><u>In 2024, What Pokémon Evolve with A Dawn Stone For Apple iPhone 6s? | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-where-is-the-best-place-to-catch-dratini-on-apple-iphone-11-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, Where Is the Best Place to Catch Dratini On Apple iPhone 11 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://win-forum.techidaily.com/updating-your-pcs-hardware-a-step-by-step-guide-to-refresh-windows-10-drivers/"><u>Updating Your PC's Hardware: A Step-by-Step Guide to Refresh Windows 10 Drivers</u></a></li>
 </ul></div>
 
