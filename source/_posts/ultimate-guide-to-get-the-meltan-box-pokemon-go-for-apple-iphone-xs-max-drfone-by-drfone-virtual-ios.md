@@ -1,7 +1,7 @@
 ---
 title: Ultimate guide to get the meltan box pokemon go For Apple iPhone XS Max | Dr.fone
-date: 2025-01-11T21:28:57.782Z
-updated: 2025-01-16T02:04:07.379Z
+date: 2025-01-22T20:17:15.103Z
+updated: 2025-01-29T19:10:25.129Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -19,10 +19,6 @@ If you are a huge Pokemon fan and loves to play pokemon go, you will definitely 
 
 ![meltan mystery box](https://images.wondershare.com/drfone/2020/meltan-mystery-box.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: What is the meltan box and how does it work?
 
 Meltan, the mythical Pokemon is also described as a Hex Nut Pokemon. A major part of its body is built from liquid metal and its shape is fluid. It generates electricity using the metal that it absorbs from the outside sources. The pokemon uses its arms and legs to corrode metal and absorb it into its own body.
@@ -34,10 +30,6 @@ The meltan box is actually a mystery box that you cannot receive through the tra
 1. The first and foremost thing you need to do is deport a Pokemon from Pokemon Go to Pokemon Let’s Go. You don’t have to transfer it to your own copy of Let’s Go. A friend’s copy would come in great help here.
 2. For making the transfer, you will get a mystery box in Pokemon Go. This box will allow the meltan to run into the wild for about 30 minutes. It gives you the chance to latch the pokemon.
 3. If you cannot catch meltan in 30 minutes, you will have to wait and repeat the above process again. As the mystery box will close after 30 minutes, and meltan will vanish from the wild.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 2: How to connect pokemon go to pokemon switch
 
@@ -55,6 +47,10 @@ The steps to connect Pokemon Go to Switch is clearly defined in the following po
 
 ![pokemon switch pair1](https://images.wondershare.com/drfone/2020/pokemon-switch-pair1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 4:** When asked, select the option “YES”. This will allow the game to begin the search for a Pokemon Go account that you can pair with.
 
 **Step 5:** The next step will require you to set up your Pokemon Go account to pair with the Nintendo Switch game.
@@ -67,15 +63,15 @@ The steps to connect Pokemon Go to Switch is clearly defined in the following po
 
 ![pokemon switch pair2](https://images.wondershare.com/drfone/2020/pokemon-switch-pair2.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 9:** This will allow Pokemon Go to search for a Nintendo Switch game to connect with.
 
 **Step 10:** When you finally see that the Nintendo Switch console is locating the Pokemon Go account, select the “Yes” button on the console to establish the pairing.
 
 ![pokemon switch pair3](https://images.wondershare.com/drfone/2020/pokemon-switch-pair3.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Step 11:** Once the pairing is done, you can now transfer the Pokemon from the Pokemon Go smoothly. Let’s get to know that too.
 
@@ -86,6 +82,10 @@ After the pairing is complete, you are now ready to send your Pokemon to the Go 
 **Step 2:** In Fuschia City, talk to the Go Park Complex Attendant and select the “Bring Pokemon” option.
 
 ![bring pokemon](https://images.wondershare.com/drfone/2020/bring-pokemon.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 3:** Open Pokemon Go.
 
@@ -101,15 +101,7 @@ After the pairing is complete, you are now ready to send your Pokemon to the Go 
 
 ![send to nintendo switch](https://images.wondershare.com/drfone/2020/send-to-nintendo-switch.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Following the aforementioned steps will allow you to get the pokemon go mystery box.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 3: Tips to get more meltan boxes
 
@@ -132,10 +124,6 @@ With the help of [Dr.Fone- Virtual Location](https://tools.techidaily.com/wonder
 <iframe width="100%" height="450" src="https://www.youtube.com/embed/FfhgWxnARqo" frameborder="0" allowfullscreen="allowfullscreen"></iframe>
 
 It is well-known that Pokemon Go is a location-based game that offers several services only according to your location. You might find it difficult to maximize your pokemon go meltan box without moving or looking for services out of your region. Dr.Fone Virtual Location is here to help. With this service provider's help, you can change your location and enjoy the unlimited fun that you had always desired. It will also be a great rescue for you if you cannot catch a meltan in your region. Try it and get the Hex Nut Pokemon.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -161,6 +149,10 @@ However, Pokemon go also has levels of friendship and you can trade pokemon of d
 - Best friend
 
 The levels of your friendship with a player on Pokemon go increase with the increase in the number of days you stay friends with them. Within a month of friendship, you can become best friends with a player on Pokemon go! You also need stardust points on Pokemon go. So what is stardust trade cost? Before you trade any pokemon you must spend stardust coins. Not having enough stardust trade coins will not allow the trade of pokemon to happen. Hence, you must have enough stardust trade costs.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: How much stardust do you need in pokemon trading costs?
 
@@ -202,12 +194,16 @@ Teleport to anywhere in the world
 ![click virtual location](https://images.wondershare.com/drfone/guide/drfone-home.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 2:** Now, you need to connect your Apple iPhone XS Max to the PC and click on "Get Started".
 
 ![click get started](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 3:** A new window would now pop up where you can see your current location. If you are unable to see your current location, then click on "center on" icon at the bottom. Doing so will lead you to show your location on the map.
 
@@ -217,13 +213,13 @@ Teleport to anywhere in the world
 
 ![enter location](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 2\. Exchange the gift with friends to level up a friendship
 
 Pokemon go also allows you to send gifts to your game friends and receive gifts from your game friends. Well, this can help both of you grow and progress in the game and can be a helpful trick to increase Stardust!
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 3\. Play the game as much as you can
 
@@ -279,6 +275,10 @@ In order to get started with Dr.Fone, you need to download Dr.Fone(Virtual Locat
 
 ![Dr.fone virtual location](https://images.wondershare.com/drfone/2020/Dr_fone-virtual-location-pic-4.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 1:** You have to tap on “Virtual Location” among the various options that you will notice therein. It's important to ensure that when you are setting up Dr.Fone on your device, always ensure that your Apple iPhone XS Max is connected to the PC. Then, click on “Get Started”.
 
 ![dr.fone change location](https://images.wondershare.com/drfone/2020/dr_fone-change-location-pic-5.jpg)
@@ -291,9 +291,17 @@ In order to get started with Dr.Fone, you need to download Dr.Fone(Virtual Locat
 
 ![Dr.fone teleport](https://images.wondershare.com/drfone/2020/Dr_fone-teleport-pic-7.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 4:** In this manner, your location will now be understood or set by the system to “Italy”. You’ll see a pop-up box; you have to just click on “Move On”.
 
 ![Dr.fone move here](https://images.wondershare.com/drfone/2020/Dr_fone-move-here-pic-8.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 5:** If you have followed the directions accurately, your actual location on the map will now be set to “Italy”. You can confirm your location from the Pokemon Go’s map. Finally, below we have provided a screenshot of how the location will be shown.
 
@@ -302,14 +310,6 @@ In order to get started with Dr.Fone, you need to download Dr.Fone(Virtual Locat
 **Step 6:** Also, you’ll see that the location on your Apple iPhone XS Max would have also changed now to “Italy” or any other place that you have entered earlier.
 
 ![dr.fone location set](https://images.wondershare.com/drfone/2020/dr_fone-location-set-pic-10.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -329,17 +329,16 @@ So, we have reached the end of this article. We hope that you found the article 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-techniques.techidaily.com/new-ideal-iphoneandroid-faceshaping-software/"><u>[New] Ideal iPhone/Android Faceshaping Software</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-the-allure-vs-warnings-of-virtual-reality-worlds-for-2024/"><u>[New] The Allure vs Warnings of Virtual Reality Worlds for 2024</u></a></li>
-<li><a href="https://some-skills.techidaily.com/new-upgrade-your-media-skills-windows-xp-edition/"><u>[New] Upgrade Your Media Skills Windows XP Edition</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-in-2024-the-ultimate-routine-for-large-files-journey-from-iphones-to-macs/"><u>[Updated] In 2024, The Ultimate Routine for Large Files' Journey From iPhones to Macs</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-the-science-behind-the-best-sized-videos-for-your-instagram-story/"><u>2024 Approved The Science Behind the Best-Sized Videos for Your Instagram Story</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-apple-iphone-13-pro-drfone-by-drfone-virtual-ios/"><u>9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Apple iPhone 13 Pro | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-and-where-to-find-a-shiny-stone-pokemon-for-apple-iphone-11-drfone-by-drfone-virtual-ios/"><u>In 2024, How and Where to Find a Shiny Stone Pokémon For Apple iPhone 11? | Dr.fone</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210526200-9781913816704-la-vida-en-el-campo-unificado-de-consciencia/"><u>LA VIDA EN EL CAMPO UNIFICADO DE CONSCIENCIA | Free Book</u></a></li>
-<li><a href="https://network-issues.techidaily.com/1719974778167-swiftly-refresh-intel-g3000-driver-on-win11/"><u>Swiftly Refresh Intel G3000 Driver on Win11.</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/where-is-the-best-place-to-catch-dratini-on-apple-iphone-6s-drfone-by-drfone-virtual-ios/"><u>Where Is the Best Place to Catch Dratini On Apple iPhone 6s | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/where-is-the-best-place-to-catch-dratini-on-apple-iphone-7-plus-drfone-by-drfone-virtual-ios/"><u>Where Is the Best Place to Catch Dratini On Apple iPhone 7 Plus | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/why-is-ipogo-not-working-on-apple-iphone-6s-fixed-drfone-by-drfone-virtual-ios/"><u>Why is iPogo not working On Apple iPhone 6s? Fixed | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-from-hobbyist-to-pro-selecting-top-drone-editing-tools/"><u>[New] From Hobbyist to Pro Selecting Top Drone Editing Tools</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-want-to-see-all-the-photos-and-videos-my-contacts-share-in-messages/"><u>[New] In 2024, Want to See All the Photos & Videos My Contacts Share in Messages</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-uncover-the-secret-correcting-mobile-video-sharing-on-fb-messenger/"><u>[Updated] In 2024, Uncover the Secret Correcting Mobile Video Sharing on FB Messenger</u></a></li>
+<li><a href="https://fox-ssl.techidaily.com/erfolgreiches-ordnermanagement-top-2-strategien-fur-die-integration-eines-netzlaufwerks-mit-dropbox/"><u>Erfolgreiches Ordnermanagement: Top 2 Strategien Für Die Integration Eines Netzlaufwerks Mit Dropbox</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/how-can-i-get-more-stardust-in-pokemon-go-on-apple-iphone-15-plus-drfone-by-drfone-virtual-ios/"><u>How can I get more stardust in pokemon go On Apple iPhone 15 Plus? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-use-pokemon-emerald-master-ball-cheat-on-tecno-spark-20-proplus-drfone-by-drfone-virtual-android/"><u>How to Use Pokémon Emerald Master Ball Cheat On Tecno Spark 20 Pro+ | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-can-i-get-more-stardust-in-pokemon-go-on-apple-iphone-se-2020-drfone-by-drfone-virtual-ios/"><u>In 2024, How can I get more stardust in pokemon go On Apple iPhone SE (2020)? | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-do-you-get-sun-stone-evolutions-in-pokemon-for-apple-iphone-6-drfone-by-drfone-virtual-ios/"><u>In 2024, How Do You Get Sun Stone Evolutions in Pokémon For Apple iPhone 6? | Dr.fone</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/in-depth-instructions-on-upgrading-an-ailing-ipads-charge-unit/"><u>In-Depth Instructions on Upgrading an Ailing iPad's Charge Unit</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/most-asked-questions-about-pokemon-go-battle-league-rewards-on-apple-iphone-13-mini-drfone-by-drfone-virtual-ios/"><u>Most Asked Questions about Pokemon Go Battle League Rewards On Apple iPhone 13 mini | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/which-pokemon-can-evolve-with-a-moon-stone-for-apple-iphone-15-drfone-by-drfone-virtual-ios/"><u>Which Pokémon can Evolve with a Moon Stone For Apple iPhone 15? | Dr.fone</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: What Legendaries Are In Pokemon Platinum On Apple iPhone XS Max? | Dr.fone
-date: 2025-01-18T18:25:02.144Z
-updated: 2025-01-21T22:45:44.963Z
+date: 2025-01-23T20:20:52.038Z
+updated: 2025-01-29T19:51:42.401Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -28,7 +28,7 @@ In this post, we will learn about all legendaries in Platinum version. You will 
 ![Platinum legendaries 2](https://images.wondershare.com/drfone/Platinum-legendaries-2.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 There are about 18 platinum legendaries Pokemon that you can obtain per game cartridge. These include even Pokemon as well. You can catch them while playing the video game. Here is the list of legendary Pokemon in Pokemon Platinum Version:
@@ -48,10 +48,6 @@ There are about 18 platinum legendaries Pokemon that you can obtain per game car
 **6\. Palkia:** When you arrive at the Spear Pillar, you will see a Pink portal. Interact with it by pressing A to have Palkia Platinum battle you. Another popular among platinum legendaries, Palkia is a hassle-free Pokemon to capture.
 
 ![Platinum legendaries 4](https://images.wondershare.com/drfone/Platinum-legendaries-4.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **7\. Heatran:** Found inside a cave around Stark Mountain, Heatran appears as you come back to the place where Charon was arrested. When you try to enter the Mountain, you team up with Buck, another trainer. You follow him and speak to his grandfather. You catch the Level 50 Heatran once you return to Stark Mountain.
 
@@ -87,6 +83,10 @@ There are about 18 platinum legendaries Pokemon that you can obtain per game car
 
 There are a few cheats to capture platinum legendaries in Pokemon. In addition to the official methods discusses above, you can use action replay codes or try location spoofing.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2.1 Action Replay Codes
 
 There are many action replay codes available on the Internet. Using these codes, you can easily capture legendary Pokemon available with the Pokemon Platinum Version.
@@ -94,10 +94,6 @@ There are many action replay codes available on the Internet. Using these codes,
 Make sure you get these codes only from reliable websites or sources. Otherwise, you may get banned from playing this game permanently.
 
 ![Platinum legendaries 8](https://images.wondershare.com/drfone/Platinum-legendaries-8.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 2.2 Location Spoofing with Dr. Fone Virtual Location
 
@@ -129,6 +125,10 @@ For this illustration, we will use using Dr.fone to see how to iPhone GPS spoofi
 
 Now, enjoy playing Pokemon Platinum and capture more Legendary Pokemon to level up in the game.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 3: How to get Mewtwo in Pokemon Platinum?
 
 Mewtwo in the Pokemon game was introduced to be the strongest Pokemon. It lives up to that and has a mega evolution that makes Mewtwo even stronger when compared to its original form. The Pokemon can learn powerful psychic moves, such as confusion and recover.
@@ -136,10 +136,6 @@ Mewtwo in the Pokemon game was introduced to be the strongest Pokemon. It lives 
 Frankly, Mewtwo can be located only in the Cerulean Cave that further locates in Kanto. That’s why you cannot find Mewtwo in Platinum. And, if you want to obtain Mewtwo, you have to migrate or trade for one.
 
 ![Platinum legendaries 14](https://images.wondershare.com/drfone/Platinum-legendaries-14.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 According to some users, you can get Mewtwo with Pokemon Fire Red or Leaf Green. With these in hand, you can obtain Mewtwo in cerulean cave once you have defeated the Elite 4.
 
@@ -167,6 +163,10 @@ Getting banned for cheating Pokémon is nothing new. Niantic always modifies the
 
 ![drfone](https://images.wondershare.com/drfone/article/2020/09/PGSharp-ban-spoofing-app-3.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Firstly, punishment:** On the first fake strike, you will get a warning message, but you still can play the game. But, while plying, you will not be able to anything remotely for about seven days.
 
 **Secondly, Punishment:** On the second fake strike, Niantic may close your account temporarily for a month. It also gives you a warning message for future misuse of the game.
@@ -174,6 +174,10 @@ Getting banned for cheating Pokémon is nothing new. Niantic always modifies the
 **Thirdly, Punishment:** On the third strike, Niantic will ban the account for more than a month.
 
 However, if you get caught regularly, the developer of Pokémon Go has the authority to permanently ban your account.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Does it mean you can never spoof Pokémon Go?
 
@@ -215,7 +219,7 @@ Remember to close all the background apps and launch PGSHARP. Now, you are ready
 **Note:** You will need a free beta key to install the PGSharp on your device.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 4: How to Spoof GPS on iPhone Without ban?
@@ -225,10 +229,6 @@ If you want to catch a rare Pokémon with iPhone but don’t want to leave your 
 <iframe allowfullscreen="allowfullscreen" frameborder="0" src="https://www.youtube.com/embed/FfhgWxnARqo"></iframe>
 
 ![drfone](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Dr.fone for iPhone is a safe and secure spoofing app that helps you catch Pokémon anywhere in the world.
 
@@ -252,6 +252,10 @@ There you will get a walking speed and vehicle speed option that you can customi
 
 To use this app, you only need to install and launch it on your device from the official site. It is easy to install and easy to use, as well.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 Now, spoof Pokémon Go without ban with the help of PGSharp on android devices. If you own iPhone, you can use [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) app to spoof GPS. Both these spoofing apps are best, safe, and secure to use on Android and iOS. For PGSharp, you can install it from Google Play Store, and for Dr.Fone, you need to visit the official site to install it on your system.
@@ -270,6 +274,10 @@ Like Shiny Stone, dusk stone, Sun Stone, and Moon Stone, Dawn Stone is another p
 
 You can get dawn stone from the Digging Duo found near the Wild Area nursery. You will, however, be required to pay them 500 watts before digging random items for you. Remember, this is a trial and error thing, and you might have to spend a lot of watts before finding a dawn stone. Also, you can get any evolutionary stone, including the Dawn Stone in the Lake of Outrage. Here, you will have to first obtain a Rotom Bike on route 9 to move across the water.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Pokémon that Evolve with Dawn Stone
 
 As aforementioned, dawn stone is an evolution item that is used to evolve certain species of Pokémon. To evolve your Pokémon using Dawn Stone in Pokémon Sword and Shield, enter the bag menu and choose the "Other Items" tab. Hover on the Dawn Stone and select the "Use this item" option. Finally, select the Pokémon to evolve. These Pokémon that can be evolved using dawn stone include:
@@ -286,10 +294,6 @@ Kirlia is a small humanoid Pokémon whose upper body and arms are white while th
 
 Snorunt is an ice-type Pokémon that was introduced in Generation III. It is also referred to as the "Snow Hat Pokémon." You can find Snorunt in seafoam café, snow canyon, or even in Mysterious Grotto. Furthermore, you can obtain it by trading or Pokémon Roulette. Snorunt can evolve into Glalie or Froslass. If it reaches level 42, Snorunt evolves to Glalie. For Snorunt to evolve into Froslass, it requires a dawn stone. However, the Snorunt must be a female to evolve to Froslass.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 2. Hacks and Tricks to get Dawn Stone Pokémon
 
 It is every player's wish to avoid the long hunt for a Dawn Stone into their Podex. This issue has given birth to some of the hacks and tricks to help players cross territory and find the intended evolution item or Pokémon. Some of these tricks include:
@@ -302,10 +306,6 @@ It is every player's wish to avoid the long hunt for a Dawn Stone into their Pod
 
 ![drfone home](https://images.wondershare.com/drfone/guide/drfone-home.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 2.** On the next page, click the "Get Started" button to proceed.
 
 ![virtual location 01](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
@@ -315,7 +315,7 @@ It is every player's wish to avoid the long hunt for a Dawn Stone into their Pod
 ![virtual location 04](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 4.** When the program has found the location, a dialog box will appear in the background. Click "Move Here" to teleport to this location.
@@ -344,21 +344,17 @@ iTools location spoofer is another good GPS mocking tool that is suitable for Po
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-hints.techidaily.com/new-assessing-if-sns-hdr-deserves-your-investment-time/"><u>[New] Assessing If SNS HDR Deserves Your Investment Time</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/new-digital-dominion-for-techno-gamers/"><u>[New] Digital Dominion for Techno Gamers</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-from-raw-footage-to-highlight-hits-for-2024/"><u>[Updated] From Raw Footage to Highlight Hits for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-safely-stream-your-soundtracks-three-methods-from-youtube/"><u>[Updated] Safely Stream Your Soundtracks Three Methods From YouTube</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/excellent-replacements-to-top-rated-fbx-recorder-apps-for-2024/"><u>Excellent Replacements to Top-Rated FBX Recorder Apps for 2024</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-best-pokemons-for-pvp-matches-in-pokemon-go-for-apple-iphone-11-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, Best Pokemons for PVP Matches in Pokemon Go For Apple iPhone 11 Pro Max | Dr.fone</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-earning-potential-in-gaming-videos/"><u>In 2024, Earning Potential in Gaming Videos</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-apple-iphone-11-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, Here are Some Pro Tips for Pokemon Go PvP Battles On Apple iPhone 11 Pro | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-to-come-up-with-the-best-pokemon-team-on-apple-iphone-14-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Come up With the Best Pokemon Team On Apple iPhone 14 Pro Max? | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-to-fix-pokemon-go-route-not-working-on-apple-iphone-6-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Fix Pokemon Go Route Not Working On Apple iPhone 6? | Dr.fone</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-latest-guide-how-to-bypass-samsung-galaxy-a23-5g-frp-without-computer-by-drfone-android/"><u>In 2024, Latest Guide How To Bypass Samsung Galaxy A23 5G FRP Without Computer</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-what-pokemon-evolve-with-a-dawn-stone-for-apple-iphone-x-drfone-by-drfone-virtual-ios/"><u>In 2024, What Pokémon Evolve with A Dawn Stone For Apple iPhone X? | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/preparation-to-beat-giovani-in-pokemon-go-for-apple-iphone-11-pro-drfone-by-drfone-virtual-ios/"><u>Preparation to Beat Giovani in Pokemon Go For Apple iPhone 11 Pro | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/the-magnificent-art-of-pokemon-go-streaming-on-apple-iphone-13-pro-drfone-by-drfone-virtual-ios/"><u>The Magnificent Art of Pokemon Go Streaming On Apple iPhone 13 Pro? | Dr.fone</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/the-ultimate-blueprint-to-thrive-in-youtubes-gaming-domain-with-hashes-for-2024/"><u>The Ultimate Blueprint to Thrive in YouTube's Gaming Domain with Hashes for 2024</u></a></li>
-<li><a href="https://fox-search.techidaily.com/ultimate-guide-how-to-seamlessly-sync-pictures-from-googles-pixel-3-phone-with-your-laptop-or-desktop/"><u>Ultimate Guide: How to Seamlessly Sync Pictures From Google's Pixel 3 Phone with Your Laptop or Desktop</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-how-much-money-can-you-make-via-youtube-ad-revenue-and-cpm-rates-in-2024/"><u>[Updated] How Much Money Can You Make via YouTube Ad Revenue and CPM Rates, In 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-best-8-online-photo-montage-maker/"><u>[Updated] In 2024, Best 8 Online Photo Montage Maker</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/a-detailed-pokemon-go-pvp-tier-list-to-make-you-a-pro-trainer-for-apple-iphone-11-pro-max-drfone-by-drfone-virtual-ios/"><u>A Detailed Pokemon Go PvP Tier List to Make you a Pro Trainer For Apple iPhone 11 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://win-dash.techidaily.com/download-logitech-drivers-fast-and-simple-compatible-with-windows-systems/"><u>Download Logitech Drivers Fast and Simple - Compatible with Windows Systems</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-a-complete-guide-to-oem-unlocking-on-nokia-g22-by-drfone-android/"><u>In 2024, A Complete Guide To OEM Unlocking on Nokia G22</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-complete-tutorial-to-use-vpna-to-fake-gps-location-on-tecno-pop-7-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Complete Tutorial to Use VPNa to Fake GPS Location On Tecno Pop 7 Pro | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-does-the-stardust-trade-cost-in-pokemon-go-on-apple-iphone-xs-drfone-by-drfone-virtual-ios/"><u>In 2024, How does the stardust trade cost In pokemon go On Apple iPhone XS? | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-to-get-and-use-pokemon-go-promo-codes-on-apple-iphone-12-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Get and Use Pokemon Go Promo Codes On Apple iPhone 12 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-techniques-for-counteracting-virtual-insults-for-2024/"><u>Proven Techniques for Counteracting Virtual Insults for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-evolution-from-interns-to-digital-pioneers/"><u>The Evolution: From Interns to Digital Pioneers</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/ways-to-trade-pokemon-go-from-far-away-on-apple-iphone-7-plus-drfone-by-drfone-virtual-ios/"><u>Ways to trade pokemon go from far away On Apple iPhone 7 Plus? | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/why-does-the-pokemon-go-battle-league-not-available-on-apple-iphone-15-pro-max-drfone-by-drfone-virtual-ios/"><u>Why does the pokemon go battle league not available On Apple iPhone 15 Pro Max | Dr.fone</u></a></li>
 </ul></div>
 

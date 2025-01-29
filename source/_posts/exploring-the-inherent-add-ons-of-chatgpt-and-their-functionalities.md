@@ -1,7 +1,7 @@
 ---
 title: Exploring the Inherent Add-Ons of ChatGPT and Their Functionalities
-date: 2025-01-19T00:24:26.590Z
-updated: 2025-01-22T03:52:52.021Z
+date: 2025-01-28T19:10:45.048Z
+updated: 2025-01-29T19:38:33.941Z
 tags:
   - chatgpt
   - open-ai
@@ -17,19 +17,23 @@ thumbnail: https://thmb.techidaily.com/91f7f58741561326931ca324590beadc475f32b45
 
  As the field of artificial intelligence continues to evolve at a dizzying pace, a new contender is poised to enter the playing field. TruthGPT, an AI chatbot proposed by tech billionaire Elon Musk, is generating a lot of buzz online.But what is TruthGPT? Why does Elon Musk want to create it? And how will it be different from the AI tools we already have?
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## What Is TruthGPT?
 
 ![Man Holding Artificial Intelligence Sticky Note](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/artificial-intelligence.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  TruthGPT is a proposed AI model aimed at addressing the ills of existing models that powers the likes of ChatGPT and Bard, with particular emphasis on truth and safety. According to Elon Musk, TruthGPT will be a "maximum truth-seeking" AI that understands the nature of the universe and would be unlikely to destroy humanity because it sees humans as a critical component of the universe.
 
 Maximum truth-seeking AI? Understand the nature of the universe?
 
  You'll be forgiven if Musk's description doesn't give you a clear picture of what exactly he's trying to build. However, you'll get a better idea of what he's talking about by looking at why he's trying to build it in the first place.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Why Is Elon Musk Building TruthGPT?
 
@@ -39,16 +43,12 @@ Maximum truth-seeking AI? Understand the nature of the universe?
 
  Elon Musk, who recently authored an open letter calling for a[moratorium on the development of powerful AI](http://www.makeuseof.com/why-elon-musk-want-to-pause-ai-development/) models (specifically those more powerful than GPT-4), believes AI is moving too fast. He believes we need to slow down and reevaluate our approach to AI safety before AI "takes control." TruthGPT is a large language model (LLM) that promises to address these two core concerns with today's AI systems.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## What Would TruthGPT Look Like?
 
 ![artificial brain doing data analytics ](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/mou-article-banner.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  The first hint into how TruthGPT would look is in the name. Considering the "GPT" appendage, TruthGPT will likely have a similar architecture to ChatGPT. Remember, Elon Musk helped assemble OpenAI and the team that built ChatGPT's GPT model.
@@ -59,12 +59,16 @@ Maximum truth-seeking AI? Understand the nature of the universe?
 
 So, is this idea of a maximum truth-seeking AI even practical?
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Why Building TruthGPT Is a Huge Challenge
 
 ![Cogs on a machine](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/pexels-pixabay-159298.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Once you[understand how large language models like GPT work](http://www.makeuseof.com/what-are-large-langauge-models-how-do-they-work/) , it becomes clear that it is impractical to be correct at all times. Typically trained on a large dataset of internet data, a lot of it is, predictably, going to be false information, and LLM's have no inert way of telling fact from fiction.
@@ -74,10 +78,6 @@ So, is this idea of a maximum truth-seeking AI even practical?
  Of course, accuracy can also be tackled from the algorithm side. However, irrespective of the algorithm, language ambiguity still represents a big problem for the accuracy of AI models. Even humans often struggle to accurately interpret a sentence or phrase's meaning, leading to misinformation. For AI models, ambiguity can lead to misinterpretations resulting in inaccuracies.
 
  For Musk, TruthGPT appears to be a chance for him to carve an AI model that he sees fit to deliver the truth. How that would come about without introducing his own biases is another question entirely and effectively leads us back to the start of the conversation. How are Musk's opinions on what is biased or not any different from those who trained and directed ChatGPT?
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Is TruthGPT an Exciting Possibility?
 
@@ -100,22 +100,22 @@ So, is this idea of a maximum truth-seeking AI even practical?
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-digital-wealth-creation-through-video-networking/"><u>[New] In 2024, Digital Wealth Creation Through Video Networking</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/new-what-is-a-parody-and-how-to-make-a-parody-video-for-2024/"><u>[New] What Is a Parody and How to Make a Parody Video for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/updated-unpacking-the-3dr-experience-from-a-single-individual/"><u>[Updated] Unpacking the '3DR' Experience From a Single Individual</u></a></li>
-<li><a href="https://win-forum.techidaily.com/connecting-across-networks-mastering-facebook-twitter-instagram-and-youtube-use/"><u>Connecting Across Networks: Mastering Facebook, Twitter, Instagram, and YouTube Use</u></a></li>
-<li><a href="https://win-reviews.techidaily.com/estrategias-faciles-para-salvaguardar-sus-programas-antes-de-actualizar-o-reinstalar-tu-version-de-windows-11-10-8-7/"><u>Estrategias Fáciles Para Salvaguardar Sus Programas Antes De Actualizar O Reinstalar Tu Versión De Windows (11, 10, 8, 7)</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/expert-strategies-to-elevate-your-gopro-footage/"><u>Expert Strategies to Elevate Your GoPro Footage</u></a></li>
-<li><a href="https://driver-error.techidaily.com/graphical-interrupt-blocked-by-os-win11/"><u>Graphical Interrupt Blocked by OS Win11</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-apple-iphone-14-pro-drfone-by-drfone-virtual-ios/"><u>How PGSharp Save You from Ban While Spoofing Pokemon Go On Apple iPhone 14 Pro? | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/how-to-get-and-use-pokemon-go-promo-codes-on-apple-iphone-12-drfone-by-drfone-virtual-ios/"><u>How to Get and Use Pokemon Go Promo Codes On Apple iPhone 12 | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-additional-tips-about-sinnoh-stone-for-apple-iphone-11-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, Additional Tips About Sinnoh Stone For Apple iPhone 11 Pro Max | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-apple-iphone-6s-drfone-by-drfone-virtual-ios/"><u>In 2024, Can I use iTools gpx file to catch the rare Pokemon On Apple iPhone 6s | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-here-are-some-of-the-best-pokemon-discord-servers-to-join-on-apple-iphone-14-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, Here are Some of the Best Pokemon Discord Servers to Join On Apple iPhone 14 Pro | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-preparation-to-beat-giovani-in-pokemon-go-for-apple-iphone-12-mini-drfone-by-drfone-virtual-ios/"><u>In 2024, Preparation to Beat Giovani in Pokemon Go For Apple iPhone 12 mini | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/list-of-pokemon-go-joysticks-on-apple-iphone-xs-max-drfone-by-drfone-virtual-ios/"><u>List of Pokémon Go Joysticks On Apple iPhone XS Max | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/maintaining-your-whatsapp-experience-by-not-accepting-new-rules/"><u>Maintaining Your WhatsApp Experience by Not Accepting New Rules</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/mastering-social-media-enhancing-your-facebook-page-position-for-2024/"><u>Mastering Social Media Enhancing Your Facebook Page Position for 2024</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/pokemon-go-cooldown-chart-on-apple-iphone-12-mini-drfone-by-drfone-virtual-ios/"><u>Pokémon Go Cooldown Chart On Apple iPhone 12 mini | Dr.fone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-exclusive-guide-best-8-cameras-for-dynamic-livestreams-for-2024/"><u>[New] Exclusive Guide Best 8 Cameras for Dynamic Livestreams for 2024</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/new-react-type-and-converse-your-disco-messaging-playbook/"><u>[New] React, Type, and Converse Your Disco Messaging Playbook</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-avoid-boredom-learn-to-shuffle-youtube-lists/"><u>[Updated] 2024 Approved Avoid Boredom Learn to Shuffle YouTube Lists</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-in-2024-discovering-pathways-to-access-apples-audio-treasury/"><u>[Updated] In 2024, Discovering Pathways to Access Apple's Audio Treasury</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-io-screen-recorder-user-manual-overview/"><u>[Updated] IO Screen Recorder User Manual Overview</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/diy-underwater-3d-printing-marvels-crafted-by-makers-for-aquariums-and-pools/"><u>DIY Underwater 3D Printing Marvels Crafted by Makers for Aquariums and Pools</u></a></li>
+<li><a href="https://common-error.techidaily.com/how-to-fix-unresponsive-usb-connections-on-windows-11-pcs/"><u>How to Fix Unresponsive USB Connections on Windows 11 PCs</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-a-working-guide-for-pachirisu-pokemon-go-map-on-apple-iphone-se-2022-drfone-by-drfone-virtual-ios/"><u>In 2024, A Working Guide For Pachirisu Pokemon Go Map On Apple iPhone SE (2022) | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-here-are-different-ways-to-find-pokemon-go-trainer-codes-to-add-to-your-account-on-apple-iphone-15-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, Here are Different Ways to Find Pokemon Go Trainer Codes to Add to Your Account On Apple iPhone 15 Plus | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-apple-iphone-14-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, What is the best Pokemon for pokemon pvp ranking On Apple iPhone 14 Pro Max? | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-why-does-the-pokemon-go-battle-league-not-available-on-apple-iphone-12-drfone-by-drfone-virtual-ios/"><u>In 2024, Why does the pokemon go battle league not available On Apple iPhone 12 | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-why-does-the-pokemon-go-battle-league-not-available-on-apple-iphone-15-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, Why does the pokemon go battle league not available On Apple iPhone 15 Pro | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/pokemon-go-no-gps-signal-heres-every-possible-solution-on-apple-iphone-6-plus-drfone-by-drfone-virtual-ios/"><u>Pokemon Go No GPS Signal? Heres Every Possible Solution On Apple iPhone 6 Plus | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/sonic-artistry-and-video-prowess-in-sonys-xperia-xz-for-2024/"><u>Sonic Artistry and Video Prowess in Sony's Xperia XZ for 2024</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/the-magnificent-art-of-pokemon-go-streaming-on-apple-iphone-xr-drfone-by-drfone-virtual-ios/"><u>The Magnificent Art of Pokemon Go Streaming On Apple iPhone XR? | Dr.fone</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/top-5-best-free-language-learning-platforms/"><u>Top 5 Best Free Language Learning Platforms</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-apple-iphone-12-drfone-by-drfone-virtual-ios/"><u>Unova Stone Pokémon Go Evolution List and How Catch Them For Apple iPhone 12 | Dr.fone</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: What Legendaries Are In Pokemon Platinum On Apple iPhone SE (2022)? | Dr.fone
-date: 2025-01-20T06:32:40.847Z
-updated: 2025-01-21T21:01:18.885Z
+date: 2025-01-25T19:08:25.741Z
+updated: 2025-01-29T20:11:14.168Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -22,6 +22,10 @@ Pokemon Platinum is an engaging role-playing video game introduced by Nintendo a
 In the game, players control a female or male character. It starts with three Pokemon provided by Professor Rowan. Giratina, the mascot Pokemon, plays the most important role in the game’s plot. In addition, there are numerous Platinum legendaries in this Pokemon gaming version.
 
 In this post, we will learn about all legendaries in Platinum version. You will also learn how to capture legendaries in the game.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 1: What Legendaries are in Pokemon Platinum?
 
@@ -46,7 +50,7 @@ There are about 18 platinum legendaries Pokemon that you can obtain per game car
 ![Platinum legendaries 4](https://images.wondershare.com/drfone/Platinum-legendaries-4.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **7\. Heatran:** Found inside a cave around Stark Mountain, Heatran appears as you come back to the place where Charon was arrested. When you try to enter the Mountain, you team up with Buck, another trainer. You follow him and speak to his grandfather. You catch the Level 50 Heatran once you return to Stark Mountain.
@@ -79,10 +83,6 @@ There are about 18 platinum legendaries Pokemon that you can obtain per game car
 
 **18\. Arceus:** Arceus, the level 80 Pokemon, is also an event-only Pokemon who is accessible with the Azure Flute obtained from Nintendo Event. At the Spear Pillar, you will be asked if you want to play the flute. If yes, the flute is played and a huge staircase appears. Climb up the staircase and you will find the Pokemon resting there. Go up and battle him.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 2: How do you catch the legendary Pokemon in platinum?
 
 There are a few cheats to capture platinum legendaries in Pokemon. In addition to the official methods discusses above, you can use action replay codes or try location spoofing.
@@ -94,10 +94,6 @@ There are many action replay codes available on the Internet. Using these codes,
 Make sure you get these codes only from reliable websites or sources. Otherwise, you may get banned from playing this game permanently.
 
 ![Platinum legendaries 8](https://images.wondershare.com/drfone/Platinum-legendaries-8.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 2.2 Location Spoofing with Dr. Fone Virtual Location
 
@@ -115,10 +111,6 @@ For this illustration, we will use using Dr.fone to see how to iPhone GPS spoofi
 
 ![Platinum legendaries 10](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 3:** Next, click on ‘Get Started’ and select the desired fake location on the map you see on the Dr.Fone app. At the top-right corner of the window, there are three icons. Click on the third icon - Teleport. Next, tap on the desired location or enter the name of the location in the search box you see on the left side.
 
 ![Platinum legendaries 11](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
@@ -128,7 +120,7 @@ For this illustration, we will use using Dr.fone to see how to iPhone GPS spoofi
 ![Platinum legendaries 12](https://images.wondershare.com/drfone/guide/virtual-location-06.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 5:** For GPS location spoofing on your Apple iPhone SE (2022) map, open your current location. You will see that your virtual address is your current location now. It’s because Dr.Fone has successfully modified the location setting of your device, not just the game.
@@ -136,7 +128,7 @@ For this illustration, we will use using Dr.fone to see how to iPhone GPS spoofi
 ![Platinum legendaries 13](https://images.wondershare.com/drfone/guide/virtual-location-07.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Now, enjoy playing Pokemon Platinum and capture more Legendary Pokemon to level up in the game.
@@ -150,10 +142,6 @@ Frankly, Mewtwo can be located only in the Cerulean Cave that further locates in
 ![Platinum legendaries 14](https://images.wondershare.com/drfone/Platinum-legendaries-14.png)
 
 According to some users, you can get Mewtwo with Pokemon Fire Red or Leaf Green. With these in hand, you can obtain Mewtwo in cerulean cave once you have defeated the Elite 4.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -176,15 +164,15 @@ Following are the additional evolution items observed in Pokémon Go:
 
 ![pokemon go](https://images.wondershare.com/drfone/2020/pokemon-go.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1：What Pokémon can I evolve with a dragon scale on Pokémon Go?
 
 The pokemon go dragon scale is one of the new evolution objects that can be employed in association with Pokemon Candy to evolve some of the generation 1 Pokemon to new generation 2 evolutions. The dragon scale is extremely strong and rigid. We can only make use of our Dragon Scale on a specific Pokemon. Dragon scale pokemon go evolutions contain the alteration of Seadra into Kingdra by combining the dragon scale along with 100 Horsea candies - making Kingdra a sturdy pocket monster ideal for raids and taking charge over the gyms.
 
 ![seadra evolving to kingdra](https://images.wondershare.com/drfone/2020/seadra-evolving-to-kingdra.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Once receiving a Dragon Scale, a player can only use it to evolve Seadra. Any other Pokemon will not evolve with it or even need it to evolve.
 
@@ -197,10 +185,6 @@ You can make use of the artificial locality of [Dr. Fone](https://tools.techidai
 Pokemon Go can be played without requiring movement, using Dr. Fone's toolkit. To replicate the position and guarantee that the iOS gadget is associated with the application, open the Virtual Location property using a functioning lightning cable.
 
 ![drfone home](https://images.wondershare.com/drfone/guide/drfone-home.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 You can click the ‘Get Started’ button to initiate the action as soon as your phone gets detected.
 
@@ -230,11 +214,19 @@ To let the system duplicate flow by choosing the accurate choices, press the 'Ma
 
 ![virtual location 12](https://images.wondershare.com/drfone/guide/virtual-location-12.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 3: How to get the dragon scale on Pokémon Go?
 
 Pokemon go dragon scale can be obtained by taking charge of Gyms and spinning, waiting for the Pokestops to give you free dragon scales, but the chances are extremely low. PokeStops are symbolized by little blue box images on the map and usually can be observed in places of recreation such as a train station, a landmark, or even a regional post office. When your avatar is near to entering a PokeStop, the blue box image changes into a disc shape. The next thing you need to do is tap the disc, and it will exhibit a picture of the landmark, which is a chance to get a few free products.
 
 You can get your hands on a dragon scale by spinning a specific Pokestop seven days in a row to get the required streak bonus. This won't ensure you a dragon scale; however, it will give you the possibility of achieving other evolutionary objects such as the Sun Stone, Upgrade, Sinnoh Stone, Unova Stone, Metal Coat, and King's Rock.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -304,6 +296,10 @@ Teleport to anywhere in the world
 
 ![click get started](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 3:** A new window would now pop up where you can see your current location. If you are unable to see your current location, then click on "center on" icon at the bottom. Doing so will lead you to show your location on the map.
 
 ![map screen](https://images.wondershare.com/drfone/guide/virtual-location-03.png)
@@ -312,17 +308,21 @@ Teleport to anywhere in the world
 
 ![enter location](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 2\. Exchange the gift with friends to level up a friendship
 
 Pokemon go also allows you to send gifts to your game friends and receive gifts from your game friends. Well, this can help both of you grow and progress in the game and can be a helpful trick to increase Stardust!
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 3\. Play the game as much as you can
 
 Investing more and more time on the game will lead you to catching more pokemons which will, in turn, lead to getting more stardust! Hence play it regularly with continuity!
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -342,18 +342,18 @@ Well, the article did give us a lot of idea about stardust trade cost and how to
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/ed-in-2024-expert-list-of-websites-ease-up-on-youtube-videos-and-templates/"><u>[Updated] In 2024, Expert List of Websites Ease Up on Youtube Videos and Templates</u></a></li>
-<li><a href="https://app-tips.techidaily.com/exploring-the-concept-of-immutable-systems-in-linux-key-advantages-for-stable-and-secure-operations-it-security-hub/"><u>Exploring the Concept of Immutable Systems in Linux: Key Advantages for Stable and Secure Operations | IT Security Hub</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/heres-everything-you-should-know-about-pokemon-stops-in-detail-on-apple-iphone-xs-drfone-by-drfone-virtual-ios/"><u>Heres Everything You Should Know About Pokemon Stops in Detail On Apple iPhone XS | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/how-does-the-stardust-trade-cost-in-pokemon-go-on-apple-iphone-x-drfone-by-drfone-virtual-ios/"><u>How does the stardust trade cost In pokemon go On Apple iPhone X? | Dr.fone</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-use-snapchat-location-spoofer-to-protect-your-privacy-on-nokia-c22-drfone-by-drfone-virtual-android/"><u>How to use Snapchat Location Spoofer to Protect Your Privacy On Nokia C22? | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-all-you-need-to-know-about-mega-greninja-for-apple-iphone-13-mini-drfone-by-drfone-virtual-ios/"><u>In 2024, All You Need To Know About Mega Greninja For Apple iPhone 13 mini | Dr.fone</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-location-on-tiktok-to-see-more-content-on-your-vivo-y200e-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Location on TikTok to See More Content On your Vivo Y200e 5G | Dr.fone</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-cricket-apple-iphone-15-plus-for-free-by-drfone-ios/"><u>In 2024, How To Unlock Cricket Apple iPhone 15 Plus for Free</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/revolutionize-learning-with-ai-educators-guide-to-the-top-8-benefits-of-embracing-artificial-intelligence/"><u>Revolutionize Learning with AI: Educators' Guide to the Top 8 Benefits of Embracing Artificial Intelligence</u></a></li>
-<li><a href="https://win11.techidaily.com/steps-to-eradicate-error-80080300-in-windows-team-collaboration/"><u>Steps to Eradicate Error 80080300 in Windows Team Collaboration</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/the-best-ispoofer-alternative-to-try-on-apple-iphone-xr-drfone-by-drfone-virtual-ios/"><u>The Best iSpoofer Alternative to Try On Apple iPhone XR | Dr.fone</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/top-strategies-to-lock-in-your-key-chat-threads-as-favorites-on-instagram/"><u>Top Strategies to Lock in Your Key Chat Threads as Favorites on Instagram</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-apple-iphone-15-plus-drfone-by-drfone-virtual-ios/"><u>Unova Stone Pokémon Go Evolution List and How Catch Them For Apple iPhone 15 Plus | Dr.fone</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-effortless-free-extraction-of-youtube-desktops-for-2024/"><u>[New] Effortless Free Extraction of YouTube Desktops for 2024</u></a></li>
+<li><a href="https://discover-cloud.techidaily.com/effizienter-ubergang-auf-ssd-mit-topklonier-tool-fur-windows-11/"><u>Effizienter Übergang Auf SSD Mit Topklonier-Tool Für Windows 11</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/how-to-enter-the-ispoofer-discord-server-on-apple-iphone-7-plus-drfone-by-drfone-virtual-ios/"><u>How to enter the iSpoofer discord server On Apple iPhone 7 Plus | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-forgot-pattern-lock-heres-how-you-can-unlock-itel-a60-pattern-lock-screen-by-drfone-android/"><u>In 2024, Forgot Pattern Lock? Heres How You Can Unlock Itel A60 Pattern Lock Screen</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-hacks-to-do-pokemon-go-trainer-battles-for-apple-iphone-14-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, Hacks to do pokemon go trainer battles For Apple iPhone 14 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-can-i-create-my-pokemon-overworld-maps-on-apple-iphone-x-drfone-by-drfone-virtual-ios/"><u>In 2024, How Can I Create My Pokemon Overworld Maps On Apple iPhone X? | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-latest-guide-how-to-bypass-nubia-red-magic-8s-pro-frp-without-computer-by-drfone-android/"><u>In 2024, Latest Guide How To Bypass Nubia Red Magic 8S Pro FRP Without Computer</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-pokemon-go-cooldown-chart-on-apple-iphone-xr-drfone-by-drfone-virtual-ios/"><u>In 2024, Pokémon Go Cooldown Chart On Apple iPhone XR | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-why-cant-i-install-the-ipogo-on-apple-iphone-se-2022-drfone-by-drfone-virtual-ios/"><u>In 2024, Why cant I install the ipogo On Apple iPhone SE (2022) | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/the-10-best-tools-to-bypass-icloud-activation-lock-from-iphone-7-plus-you-should-try-out-by-drfone-ios/"><u>The 10 Best Tools to Bypass iCloud Activation Lock From iPhone 7 Plus You Should Try Out</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-apple-iphone-6s-plus-drfone-by-drfone-virtual-ios/"><u>The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Apple iPhone 6s Plus | Dr.fone</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/walk-of-shadows-a-comprehensive-list-of-intense-zombie-games-for-2024/"><u>Walk of Shadows A Comprehensive List of Intense Zombie Games for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/winning-the-subscriber-race-on-youtube-for-2024/"><u>Winning the Subscriber Race on YouTube for 2024</u></a></li>
 </ul></div>
 

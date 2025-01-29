@@ -1,7 +1,7 @@
 ---
 title: Ways to trade pokemon go from far away On Apple iPhone 12? | Dr.fone
-date: 2025-01-19T03:33:15.263Z
-updated: 2025-01-22T03:41:04.275Z
+date: 2025-01-27T16:03:15.669Z
+updated: 2025-01-29T17:17:34.576Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -28,6 +28,10 @@ Dr.Fone - Virtual Location, easy-to-use software that will enable you to set any
 - **Tweak your location:** Using Dr.Fone - Virtual Location, you can change your location very easily. You can use this feature while playing virtual reality games and also to stay undercover from nosy relatives.
 - **Set the speed to mock GPS location:** While playing virtual reality location-based games, you can also set the pace of movement of your GPS. This will help you to become better at the game!
 - **Joystick simulated motion:** you can use the in-app joystick for simulating motion and moving around on the map.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Step-by-step Tutorial
 
@@ -96,25 +100,21 @@ Dratini undergoes two different evolutions
 
 The first un-evolved version is the serpentine Dratini that looks like a snake and continues shedding its skin as it grows. When you get to level 30, Dratini evolves into Dragonair, and at level 55 it becomes Dragonite
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Dragonair
 
 This is an evolution of Dratini, which has a long scaly serpent-like body. It still retails the blue body with a white underside. The white bump on the forehead now becomes a white horn. The budding wings on the side of the head have now grown into full wings. It also carries three crystal orbs, with one on the neck and the other two on the tail.
 
 Dragonair has the ability to stretch its wings so it can fly. It has a huge amount of energy in the body and can discharge the energy through the crystals. The energy that it releases has the ability to change the weather wherever it is. Dragonair can be found in seas and lakes.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Dragonite
 
 This is a Pokémon character that truly resembles a dragon and is the second evolution of Dratini. It has a yellow thick body, and a couple of antennae that come out of its forehead. It has a striated underbelly. The body is quite large when compared to the small wings.
 
 Dragonite can fly at very high speeds despite its bulky appearance. It is a kindhearted Pokémon, which is as intelligent as a human being. It has been found to have tendencies to save humans from disasters, such as saving those who have come from a capsized ship on the high seas. It lives near the sea and is extremely rare in the Pokémon world.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 2: Where can I find the Dratini nest?
 
@@ -126,10 +126,6 @@ Dratini has a 5% spawning chance every day, so if you have the time, you can spe
 
 Dratini nests can also be found in other parts of the world, such as Tokyo, Japan; Sydney and New South Wales, Australia; Paris, France and others.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 3: Are the Dratini nest and spawn spot in the same place?
 
 This is quite a common question for those who are new to the Pokémon universe. Basically, Dratini nests and spawn points are the same for a period of two weeks. The nests then migrate leaving the spawn points to spawn different types of Pokémon.
@@ -139,7 +135,7 @@ If the Dratini nest migrates, it can still come back in the future. You should a
 Dratini nests will migrate on alternate Thursdays at midnight. The nest migrations are random, so make sure that you visit and hit them many times over the two weeks in order to get the most Dratini that you can.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 4: How to increase the possibility of earning Pokémon Go Dratini?
@@ -171,10 +167,6 @@ Looking at the map, you can now see the actual location of your device. If the c
 
 ![virtual location 03](https://images.wondershare.com/drfone/guide/virtual-location-03.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Now go to the top side of your computer screen and click on the third icon on the bar. This instantly puts you in “teleport” mode. Now enter the coordinates of the Dratini nest that you have located. Hit the “Go” button and your device will instantly be teleported to the coordinates you entered.
 
 The image below shows an example of coordinates entered for Rome, Italy.
@@ -189,23 +181,31 @@ Camping and looking for other Pokémon in the area will help you cool down and t
 
 ![virtual location 05](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 This is how your location will be viewed on the map.
 
 ![virtual location 06](https://images.wondershare.com/drfone/guide/virtual-location-06.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 This is how your location will be viewed on another iPhone device.
 
 ![virtual location 07](https://images.wondershare.com/drfone/guide/virtual-location-07.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## In conclusion
 
 Dratini is one of the most friendly but rare Pokémon to get. It can evolve from a small serpentine worm, into a might, good-hearted dragon. This is one of the Pokémon that people love to farm for trading and taking part in raids and such events.
 
 When you need to, you can teleport your device to an area where Dratini is popular using [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) (iOS). Use the Dratini nest maps to find Dratini, and then visit the area or teleport there.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Most Asked Questions about Pokemon Go Battle League Rewards On Apple iPhone 12
 
@@ -214,7 +214,11 @@ Ever since Pokemon Go Battle League matches have been introduced, players have s
 ![pokemon go battle league rewards](https://images.wondershare.com/drfone/2020/pokemon-go-battle-league-rewards.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What are the Pokemon Go Battle League Rewards?
@@ -245,14 +249,6 @@ Apart from these Pokemon Go League awards, you will also get a free encounter wi
 
 ![pokemon go pikachu libre](https://images.wondershare.com/drfone/2020/pokemon-go-pikachu-libre.jpeg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to Get Battle League Pokemon Go Rewards?
 
 To get more Pokemon Go league rewards, you need to rank-up by playing with other trainers and winning more matches. The battles take place under three primary leagues:
@@ -277,6 +273,10 @@ Once the Battle League season is finished, you can just go to your profile to se
 
 ![collecting pokemon pvp rewards](https://images.wondershare.com/drfone/2020/collecting-pokemon-pvp-rewards.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Tips to Level-up in Pokemon Battle Leagues
 
 As stated, if you want to get more battle league Pokemon rewards, then you must level-up higher. Here are some of the tips that you can follow to level-up in the game easily.
@@ -288,7 +288,7 @@ Most of the rookie PvP trainers make the common mistake of only picking attack-b
 ![pokemon go pvp battle](https://images.wondershare.com/drfone/2020/pokemon-go-pvp-battle.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Tip 2: Know the Current Meta Tier
@@ -327,18 +327,24 @@ Now when you know about the updated Pokemon Go Battle League rewards, you must b
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-football-inscriptions-premier-fifa-youtube-insights/"><u>[New] 2024 Approved Football Inscriptions Premier FIFA YouTube Insights</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-innovative-strategies-for-maximizing-your-facebook-videos-for-2024/"><u>[Updated] Innovative Strategies for Maximizing Your Facebook Videos for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-unlimited-access-to-creative-mcb-resources/"><u>[Updated] Unlimited Access to Creative MCB Resources</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/bright-side-of-lighting-spk10-037s-versatile-softbox-review/"><u>Bright Side of Lighting: SPK10-037's Versatile Softbox Review</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-apple-iphone-7-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, Can I use iTools gpx file to catch the rare Pokemon On Apple iPhone 7 Plus | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-ipogo-will-be-the-new-ispoofer-on-apple-iphone-15-drfone-by-drfone-virtual-ios/"><u>In 2024, iPogo will be the new iSpoofer On Apple iPhone 15? | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-reasons-why-pokemon-gps-does-not-work-on-apple-iphone-11-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, Reasons why Pokémon GPS does not Work On Apple iPhone 11 Pro Max? | Dr.fone</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-revolutionize-your-intellect-with-these-15-yt-channels/"><u>In 2024, Revolutionize Your Intellect with These 15 YT Channels</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/in-2024-securing-your-discord-sessions-for-future-viewing/"><u>In 2024, Securing Your Discord Sessions for Future Viewing</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/in-2024-smart-selections-17-apps-for-flawless-image-correction/"><u>In 2024, Smart Selections 17 Apps for Flawless Image Correction</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-ultimate-guide-to-catch-the-regional-located-pokemon-for-apple-iphone-15-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, Ultimate Guide to Catch the Regional-Located Pokemon For Apple iPhone 15 Pro Max | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/ultimate-guide-to-catch-the-regional-located-pokemon-for-apple-iphone-xs-max-drfone-by-drfone-virtual-ios/"><u>Ultimate Guide to Catch the Regional-Located Pokemon For Apple iPhone XS Max | Dr.fone</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/unlock-no-more-comprehensive-guide-to-wiping-data-from-your-locked-iphone-safely/"><u>Unlock No-More: Comprehensive Guide to Wiping Data From Your Locked iPhone Safely</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-grasping-the-glossary-of-virtual-worlds/"><u>[New] Grasping the Glossary of Virtual Worlds</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-a-step-by-step-tutorial-to-monitor-popular-interactions-on-youtube/"><u>[New] In 2024, A Step-by-Step Tutorial to Monitor Popular Interactions on YouTube</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-next-gen-tech-talk-samsungs-bdplus-k850-ultra-review/"><u>[New] Next-Gen Tech Talk Samsung's BD+ K850 Ultra Review</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-in-2024-10-best-voice-modification-apps-for-vtubing-success/"><u>[Updated] In 2024, 10 Best Voice Modification Apps for VTubing Success</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-5-low-cost-drones-maximum-performance-on-a-shoestring/"><u>2024 Approved 5 Low-Cost Drones Maximum Performance on a Shoestring</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/a-detailed-pokemon-go-pvp-tier-list-to-make-you-a-pro-trainer-for-apple-iphone-12-drfone-by-drfone-virtual-ios/"><u>A Detailed Pokemon Go PvP Tier List to Make you a Pro Trainer For Apple iPhone 12 | Dr.fone</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/ais-premium-convo-boost-chatgpt-plus-unveiled-at-20mo-us-only/"><u>AI's Premium Convo Boost: ChatGPT Plus Unveiled at $20/Mo (US-Only)</u></a></li>
+<li><a href="https://driver-install.techidaily.com/download-latest-version-of-a6200-wi-fi-driver/"><u>Download: Latest Version of A6200 Wi-Fi Driver</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/how-to-come-up-with-the-best-pokemon-team-on-apple-iphone-x-drfone-by-drfone-virtual-ios/"><u>How to Come up With the Best Pokemon Team On Apple iPhone X? | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/how-to-get-and-use-pokemon-go-promo-codes-on-apple-iphone-13-mini-drfone-by-drfone-virtual-ios/"><u>How to Get and Use Pokemon Go Promo Codes On Apple iPhone 13 mini | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-apple-iphone-13-drfone-by-drfone-virtual-ios/"><u>In 2024, 4 solution to get rid of pokemon fail to detect location On Apple iPhone 13 | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-can-i-create-my-pokemon-overworld-maps-on-apple-iphone-13-mini-drfone-by-drfone-virtual-ios/"><u>In 2024, How Can I Create My Pokemon Overworld Maps On Apple iPhone 13 mini? | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-do-you-get-sun-stone-evolutions-in-pokemon-for-apple-iphone-6-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, How Do You Get Sun Stone Evolutions in Pokémon For Apple iPhone 6 Plus? | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-life360-circle-everything-you-need-to-know-on-itel-p40-drfone-by-drfone-virtual-android/"><u>In 2024, Life360 Circle Everything You Need to Know On Itel P40 | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-preparation-to-beat-giovani-in-pokemon-go-for-apple-iphone-se-drfone-by-drfone-virtual-ios/"><u>In 2024, Preparation to Beat Giovani in Pokemon Go For Apple iPhone SE | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-the-pinnacle-of-voice-recording-a-comprehensive-tome/"><u>In 2024, The Pinnacle of Voice Recording A Comprehensive Tome</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-unveiling-imovies-inherent-cropping-rules/"><u>In 2024, Unveiling iMovie's Inherent Cropping Rules</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/ultimate-guide-to-get-the-meltan-box-pokemon-go-for-apple-iphone-13-pro-max-drfone-by-drfone-virtual-ios/"><u>Ultimate guide to get the meltan box pokemon go For Apple iPhone 13 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/ultimate-guide-to-get-the-meltan-box-pokemon-go-for-apple-iphone-14-plus-drfone-by-drfone-virtual-ios/"><u>Ultimate guide to get the meltan box pokemon go For Apple iPhone 14 Plus | Dr.fone</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Will Pokémon Go Ban the Account if You Use PGSharp On Apple iPhone 15 Plus | Dr.fone
-date: 2025-01-18T21:21:20.907Z
-updated: 2025-01-22T04:40:59.329Z
+date: 2025-01-25T20:42:48.644Z
+updated: 2025-01-29T17:58:25.556Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -24,7 +24,7 @@ There are many fake GPS apps available that you can install, but only a few of t
 In this article, we will discuss more PGSharp and ban.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1: Why Pokémon Go Account Get Banned
@@ -32,10 +32,6 @@ In this article, we will discuss more PGSharp and ban.
 The Niantic, the developer of Pokémon Go, is particular about the safety of the game. The main priority of them with Pokémon GO is to provide a fair game experience to players worldwide. If Niantic finds something wrong with the terms of the game, then it may ban your account.
 
 ![pokemon go ban](https://images.wondershare.com/drfone/article/2023/05/pgsharp-ban.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 The following are the reasons that may cause to ban your account:
 
@@ -45,6 +41,10 @@ The following are the reasons that may cause to ban your account:
 - Fake location to catch Pokémon from different locations
 
 If you think your account may get terminated, you should keep the terms and conditions of the game in mind. However, you can spoof location smartly with safe fake GPS like PGSharp for Android and Dr.Fone virtual location iOS.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: Thumb Rule for spoofing with PGSharp
 
@@ -62,9 +62,17 @@ Now, when it gets installed, you can opt for a free trial or paid option. For a 
 
 ![pgsharp plan](https://images.wondershare.com/drfone/article/2023/05/pgsharp-ban-1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 To get a free beta key, go to the official site of PGSharp and look for a beta key. You may see an “out of stock” message, which means that the server has been changed. Now, you have to check the site for the beta key again. It is quite difficult to find the beta key in the first attempt.
 
 ![drfone](https://images.wondershare.com/drfone/article/2020/09/PGSharp-ban-4.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Once you get the key, you can click on finish and can make payment in virtual currency. Also, you can fake your personal details as it is a beta key.
 
@@ -88,10 +96,6 @@ Spoofing is not legal, thus to spoof Pokemon Go, you need to use the PTC account
 
 ![drfone](https://images.wondershare.com/drfone/article/2020/09/PGSharp-ban-6.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Also, make sure to uninstall the official account to spoof the location to help you catch more Pokémon in less time.
 
 ## Part 4: Why Opt Dr.Fone Virtual Location?
@@ -105,10 +109,6 @@ Dr.Fone - Virtual Location also saves you from a ban and doesn’t require jailb
 To use it, you will need to install it on your device from the official site or click the "_Try It Free_" button below directly. Once installed, connect your Apple iPhone 15 Plus to your computer and click on get the started icon. Now you have the world map-like interface where you can search for any desired location to spoof. So, all in all, it is very easy to use for a novice too. The best part is that it causes no ban like other unsafe spoofing apps.
 
 ![drfone](https://images.wondershare.com/drfone/article/2022/11/pgsharp-ban.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -135,7 +135,7 @@ Before you go through our carefully calculated great, ultra, and master league P
 ![cp levels pokemon leagues](https://images.wondershare.com/drfone/2020/cp-levels-pokemon-leagues.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: A Complete Pokemon Go PvP Tier List: Great, Ultra, and Master Leagues
@@ -149,7 +149,7 @@ In Great League matches, the maximum CP of any Pokemon can be 1500. Considering 
 <table><tbody><tr><td>Tier 1 (5/5 rating)</td><td>Altaria, Skarmory, Azumarill, and Glarian Stunfisk</td></tr></tbody><tbody><tr><td>Tier 2 (4.5/5 rating)</td><td>Umbreon, Swampert, Lanturn, Stunfisk, Dexoxys, Venusaur, Haunter, Jirachi, Lapras, Mew, and Whiscash</td></tr><tr><td>Tier 3 (4/5 rating)</td><td>Ivysaur, Uxie, Alolan Ninetales, Scrafty, Mawile, Wigglytuff, Clefable, Marshtomp, and Skuntank</td></tr><tr><td>Tier 4 (3.5/5 rating)</td><td>Qwilfish, Dustox, Glalie, Raichu, Dusclops, Serperior, Minun, Chandelure, Venomoth, Bayleef, and Golbat</td></tr><tr><td>Tier 5 (3/5 rating)</td><td>Pidgeot, Slowking, Garchomp, Golduck, Entei, Crobat, Jolteon, Duosion, Buterfree, and Sandslash</td></tr></tbody></table>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Pokemon Go Ultra League Tier List
@@ -163,10 +163,6 @@ You might already know that in the ultra league, we are allowed to pick Pokemons
 Lastly, in the Master League, we don’t have any CP limits for Pokemons. Keeping this in mind, I have included some of the most powerful Pokemons in Tier 1 and 2 here.
 
 <table><tbody><tr><td>Tier 1 (5/5 rating)</td><td>Togekiss, Groudon, Kyogre, and Dialga</td></tr></tbody><tbody><tr><td>Tier 2 (4.5/5 rating)</td><td>Lugia, Mewtwo, Garchomp, Zekrom, Metagross, and Melmetal</td></tr><tr><td>Tier 3 (4/5 rating)</td><td>Zapdos, Moltres, Machamp, Darkrai, Kyurem, Articuno, Jirachi, and Rayquaza</td></tr><tr><td>Tier 4 (3.5/5 rating)</td><td>Gallade, Golurk, Usie, Cresselia, Entei, Lapras, and Pinsir</td></tr><tr><td>Tier 5 (3/5 rating)</td><td>Scizor, Crobat, Electivire, Emboar, Sawk, Victini, Exeggutor, Flygon, and Torterra</td></tr></tbody></table>
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 3: How to Catch Powerful Pokemons Remotely?
 
@@ -188,6 +184,10 @@ There you go! I’m sure that after going through this Pokemon Go PvP tier list,
 
 ![pokémon go sun stone](https://images.wondershare.com/drfone/article/2024/03/sun-stone-evolutions.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Though you can certainly catch some powerful Pokémon in Pokémon Go just by playing the game, exploring the wilderness, and joining raids, it’s not enough. Evolving your Pokémon is how you advance through the game, level up, and become a better catcher.
 
 Now, while some of your Pokémon in the game can evolve with the utmost ease, others require a bit more of a special touch, and that special touch comes in the form of evolution items. Necessary for certain species of Pokémon, evolution items can be somewhat elusive – one of the rarer ones being the Sun Stone.
@@ -204,6 +204,10 @@ The Sun Stone is one of eight evolution items you’ll need in Pokémon Go. Glow
 
 ![five of the evolution items in pokémon go](https://images.wondershare.com/drfone/article/2024/03/sun-stone-evolutions-3.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Evolutions in Pokémon Go aren’t always the same. You’ll most commonly get species-specific candy used for evolutions whenever you catch a specific Pokémon. Depending on the species, you’ll need more or less candy to evolve them. (And don’t worry, evolutions don’t affect the total number of Pokémon in your collection).
 
 Depending on the specific Pokémon you want to evolve, you might need additional items or even need to perform a particular task. Some Pokémon will need to be walked as your Buddy Pokémon before they can evolve. Others can be evolved through trading them. Others can only evolve with the help of evolution items like the Sun Stone.
@@ -211,6 +215,10 @@ Depending on the specific Pokémon you want to evolve, you might need additional
 Pokémon Sun Stone evolutions will require you to collect the Sun Stone and a certain amount of candy (which can vary by Pokémon).
 
 You can always check out how to evolve your Pokémon in your Pokédex.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3. Which Pokémon Evolve With Sun Stones?
 
@@ -227,10 +235,6 @@ Every Pokémon you come across in the game is different, and they’ll all have 
 | Cottonee | Sun Stone and 50 Cottonee candy | Whimsicott |
 | Petilil | Sun Stone and 50 Petilil candy | Lilligant |
 | Helioptile | Sun Stone and 50 Helioptilecandy | Heliolisk |
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 4. How to Acquire Sun Stones on Pokémon Go
 
@@ -305,15 +309,15 @@ To get started with Wondershare Dr.Fone and complete your field research tasks, 
 
 ![choose the Apple iPhone 15 Plus device you want to connect to dr.fone](https://images.wondershare.com/drfone/guide/vl-connect-android-1.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 6. On your phone, tap **Allow USB Debugging**;
 7. On your phone, go to **Developer Options> Select mock location app**;
 8. Select **Fone**.
 
 ![set up mock location on your phone](https://images.wondershare.com/drfone/guide/vl-connect-android-3.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 From there, you can easily set up your route, change your location, and simulate movement. With Wondershare Dr.Fone, you’ll have intuitive keyboard controls, 360-degree directions, and automated movement. So, as soon as you set things up in the app, you can start playing the game, completing your field research tasks, and, hopefully, acquiring your Sun Stones.
 
@@ -322,10 +326,6 @@ From there, you can easily set up your route, change your location, and simulate
 Finally, to start getting Sun Stones and other rarer items more efficiently, you’ll always want to pay close attention to community days and special events. Pokémon Go is a very active game with frequent high-rewarding events that could happen at any time. Since these events are time-limited, you’ll always want to know precisely when they start and end.
 
 Fortunately, finding this out is pretty easy. Just keep track of Pokémon Go on social media or visit the official Pokémon Go website to find out more. All events will be announced ahead of time so that you can prepare.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -345,18 +345,14 @@ Acquiring Sun Stones for Pokémon evolutions can be quite a hassle. This rare ev
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://eaxpv-info.techidaily.com/new-cultivating-commitment-gentle-subscription-strategies-for-2024/"><u>[New] Cultivating Commitment Gentle Subscription Strategies for 2024</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-capture-screenshots-of-a-full-page/"><u>[Updated] In 2024, Capture Screenshots of a Full Page</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-one-step-guide-to-simultaneous-cam-plus-screen-recording/"><u>[Updated] One Step Guide to Simultaneous Cam + Screen Recording</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/2024-approved-crafting-an-impactful-podcast-intro-video/"><u>2024 Approved Crafting an Impactful Podcast Intro Video</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/2024-approved-spotlight-play-how-to-stand-out-with-youtube-gaming/"><u>2024 Approved Spotlight Play How to Stand Out with YouTube Gaming</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-on-vivo-v27withwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock on Vivo V27with/without a PC</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-a-detailed-pokemon-go-pvp-tier-list-to-make-you-a-pro-trainer-for-apple-iphone-14-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, A Detailed Pokemon Go PvP Tier List to Make you a Pro Trainer For Apple iPhone 14 Plus | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-apple-iphone-15-drfone-by-drfone-virtual-ios/"><u>In 2024, What is the best Pokemon for pokemon pvp ranking On Apple iPhone 15? | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-what-legendaries-are-in-pokemon-platinum-on-apple-iphone-6-drfone-by-drfone-virtual-ios/"><u>In 2024, What Legendaries Are In Pokemon Platinum On Apple iPhone 6? | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-why-does-the-pokemon-go-battle-league-not-available-on-apple-iphone-12-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, Why does the pokemon go battle league not available On Apple iPhone 12 Pro | Dr.fone</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/iphone-shot-perfection-with-ios-11-innovations-for-2024/"><u>IPhone Shot Perfection with iOS 11 Innovations for 2024</u></a></li>
-<li><a href="https://solve-howtos.techidaily.com/protecting-your-digital-reads-the-ultimate-tutorial-on-backing-up-ebooks-from-kobo/"><u>Protecting Your Digital Reads: The Ultimate Tutorial on Backing Up eBooks From Kobo</u></a></li>
-<li><a href="https://win11.techidaily.com/steps-to-rectify-unresponsive-windows-media-files/"><u>Steps to Rectify Unresponsive Windows Media Files</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-learn-the-easy-tricks-for-eliminating-unwanted-youtube-content-pcmobile/"><u>[New] Learn the Easy Tricks for Eliminating Unwanted Youtube Content (PC/Mobile)</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-from-passive-to-profitable-youtube-revenue-techniques/"><u>[Updated] From Passive to Profitable YouTube Revenue Techniques</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comparing-smart-doorbells-ring-vs-nest-which-one-wins/"><u>Comparing Smart Doorbells: Ring vs Nest – Which One Wins?</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/discover-the-ultimate-7-ai-resources-for-tackling-complex-math-equations/"><u>Discover the Ultimate 7 AI Resources for Tackling Complex Math Equations</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/here-are-some-of-the-best-pokemon-discord-servers-to-join-on-apple-iphone-15-pro-drfone-by-drfone-virtual-ios/"><u>Here are Some of the Best Pokemon Discord Servers to Join On Apple iPhone 15 Pro | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-check-distance-and-radius-on-google-maps-for-your-vivo-y36-drfone-by-drfone-virtual-android/"><u>How to Check Distance and Radius on Google Maps For your Vivo Y36 | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-a-detailed-pokemon-go-pvp-tier-list-to-make-you-a-pro-trainer-for-apple-iphone-11-drfone-by-drfone-virtual-ios/"><u>In 2024, A Detailed Pokemon Go PvP Tier List to Make you a Pro Trainer For Apple iPhone 11 | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-apple-iphone-6-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, Unova Stone Pokémon Go Evolution List and How Catch Them For Apple iPhone 6 Plus | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/the-most-useful-tips-for-pokemon-go-ultra-league-on-apple-iphone-11-drfone-by-drfone-virtual-ios/"><u>The Most Useful Tips for Pokemon Go Ultra League On Apple iPhone 11 | Dr.fone</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Why cant I install the ipogo On Apple iPhone 13 mini | Dr.fone
-date: 2025-01-20T18:24:41.163Z
-updated: 2025-01-22T01:29:14.855Z
+date: 2025-01-22T20:42:46.420Z
+updated: 2025-01-29T16:55:20.717Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -32,10 +32,6 @@ iPogo version is also an important factor of consideration. Time to time regular
 - **Direct download method:**
 
 If a user is considering direct downloading method, they might also face this trouble because Apple now targets certificate. Now you need to create your certificate with the help of a computer or a paid service like Signulous and others.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Bonus: Simple steps to install iPogo
 
@@ -102,7 +98,7 @@ Start with downloading Dr.Fone Virtual Location on your PC using the official we
 ![drfone home](https://images.wondershare.com/drfone/guide/drfone-home.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 2: Get the Apple iPhone 13 mini device Connected**
@@ -110,6 +106,10 @@ Start with downloading Dr.Fone Virtual Location on your PC using the official we
 You now need to get your iPgone plugged with PC via a USB cord. Once you do this, simply click on “Get Started.”
 
 ![virtual location 01](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 3: Check Location Accuracy**
 
@@ -132,7 +132,7 @@ After selecting it, the system will understand the desired place in Rome and hit
 Finally, the location has been changed to Rome now. Whatever you do whether you click on “centre on” icon or try to relocate yourself on iPhone ROM is the fixed location that will appear, and in all the location app as well Rome is the fixed place.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -147,12 +147,16 @@ Ever since the Pokemon Go PvP mode has been introduced by Nintendo, there has be
 
 ![pokemon pvp battle tips banner](https://images.wondershare.com/drfone/2020/pokemon-pvp-battle-tips-banner.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: Pro Strategies to Follow in PvP Pokemon Go Battles
 
 If you want to be good at the Pokemon Go PvP battles, then you must understand how the game works. Once you are ready, I would recommend some of these Pokemon PvP strategies that are followed by pro players.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Tip 1: Start from the low leagues
@@ -178,25 +182,29 @@ Ideally, there are four different moves in any PvP Poke battle that you must mas
 
 ![moves in pokemon pvp](https://images.wondershare.com/drfone/2020/moves-in-pokemon-pvp.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Tip 3: Check your Opponent’s Pokemons
 
 This has to be the most important thing that you should check before you start any Pokemon Go PvP battle. Right before starting the battle, you can check a list of the prospective opponents in your league. You can have a glimpse of their main Pokemons and pick your Pokemons accordingly so that you can counter their picks.
 
 ![opponent screen pokemon pvp](https://images.wondershare.com/drfone/2020/opponent-screen-pokemon-pvp.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Tip 4: Know the current Meta
 
 In nutshell, Meta Pokemons are the ones that are considered superior to other picks since they are more powerful. You might already know that some Pokemons are just stronger than others. Since Nintendo keeps balancing Pokemons with constant nerfs and buffs, you should do some research in advance.
 
 There are several sources like the Silph Arena, PvPoke, and Pokebattler that you can check to know the current meta Pokemons.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Tip 5: Shield Baiting Strategy
 
@@ -206,6 +214,10 @@ Now, instead of going with your ultimate attack, only perform the mild one. Your
 
 ![shield baiting strategy pokemon pvp](https://images.wondershare.com/drfone/2020/shield-baiting-strategy-pokemon-pvp.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Tip 6: Learn to Counter Fast Moves
 
 To make the most of your shield and energy levels, you should learn how to counter moves. The first way to do this is by picking your Pokemons wisely. Your Pokemon would automatically get less damage if it can counter your opponent’s Pokemon.
@@ -213,10 +225,6 @@ To make the most of your shield and energy levels, you should learn how to count
 During any PvP Poke battle, keep a count of your opponent’s moves to calculate when they would do a charged attack. Since you would only get 2 shields at the starting of the battle, make sure that you only use them at the time of need.
 
 ![fast moves in pokemon pvp](https://images.wondershare.com/drfone/2020/fast-moves-in-pokemon-pvp.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Tip 7: Sacrifice Swap
 
@@ -253,10 +261,6 @@ Presently, some attacks like thunderbolt are considered extremely strong in PoGo
 Most importantly, you should be aware of the defense, attack, IV, CP, and all the vital stats of your Pokemons to pick the best ones in the league of your choice. Besides that, you should also do some research about the Meta tier in Pokemon PvP to know the best picks of the present time.
 
 ![meta pokemons in pvp](https://images.wondershare.com/drfone/2020/meta-pokemons-in-pvp.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Most of the experts consider the following points while picking any Pokemon in PvP battles.
 
@@ -296,10 +300,6 @@ Switching is another strategic account in the new mechanism of Pokemon PvP battl
 
 ![mechanism in pokemon pvp battle](https://images.wondershare.com/drfone/2020/mechanism-in-pokemon-pvp-battle.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 There you go! I’m sure that after reading this post, you would be able to know every important thing about PvP Poke battles. From the meta Pokemons for PvP battles to essential mechanisms, I have listed it all in this guide. Now, it is time for you to implement these tips and become a Pokemon Go PvP champion in no time!
 
 ## All You Need To Know About Mega Greninja For Apple iPhone 13 mini
@@ -330,13 +330,13 @@ There are various weaknesses of this pokemon which include “Fighting”, “Gr
 
 Greninja is resistant to “Water”, “Fire”, “Ice”, “Dark”, “Steel” and finally “Ghost”. Also, this pokemon is immune to “Psychic”. This pokemon’s presence can be very intimidating for its opponents, it would not be wrong if we say that Greninja is quite unpredictable. There is no doubt that the counter attacks of Greniaja prove to be very dangerous for its enemies.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 3: How to Catch Greninja?
 
 ![Catch Greninja Pokemon](https://images.wondershare.com/drfone/2020/Catch-Greninja-Pokemon-pic-3.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 In order to catch Greninja, you will be required to fulfill specific requirements in the Pokemon Sun and Moon Exclusive demo.
 
@@ -394,24 +394,19 @@ So, we have reached the end of this article. We hope that you found the article 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-guidance.techidaily.com/updated-leading-20-non-copyrighted-pubg-image-sequences/"><u>[Updated] Leading 20 Non-Copyrighted PUBG Image Sequences</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-viewpoint-visionaries-capturing-the-essence-with-3-viewpoint-strategies-in-reactions-for-2024/"><u>[Updated] Viewpoint Visionaries Capturing the Essence with 3 Viewpoint Strategies in Reactions for 2024</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-visual-enthusiasts-list-top-10-must-have-tiktok-filters/"><u>[Updated] Visual Enthusiasts' List Top 10 Must-Have TikTok Filters</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/2024-approved-5-premier-drone-engines-to-supercharge-your-qxp/"><u>2024 Approved 5 Premier Drone Engines to Supercharge Your QXP</u></a></li>
-<li><a href="https://fox-making.techidaily.com/download-your-favorite-spreadtub-clips-in-high-quality-mp4-format-using-the-ultimate-video-downloader/"><u>Download Your Favorite SPREADTUB Clips in High-Quality MP4 Format Using the Ultimate Video Downloader!</u></a></li>
-<li><a href="https://common-error.techidaily.com/expert-advice-for-resolving-driverpowerstatefailure-in-windows-systems/"><u>Expert Advice for Resolving DRIVER_POWER_STATE_FAILURE in Windows Systems</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/impeccable-console-replication-best-5-emulators-for-2024/"><u>Impeccable Console Replication Best 5 Emulators for 2024</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-all-you-need-to-know-about-mega-greninja-for-apple-iphone-15-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, All You Need To Know About Mega Greninja For Apple iPhone 15 Pro | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-hacks-to-do-pokemon-go-trainer-battles-for-apple-iphone-12-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, Hacks to do pokemon go trainer battles For Apple iPhone 12 Pro | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-here-are-different-ways-to-find-pokemon-go-trainer-codes-to-add-to-your-account-on-apple-iphone-xs-drfone-by-drfone-virtual-ios/"><u>In 2024, Here are Different Ways to Find Pokemon Go Trainer Codes to Add to Your Account On Apple iPhone XS | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-top-4-sim-location-trackers-to-easily-find-your-lost-xiaomi-redmi-a2plus-device-by-drfone-android/"><u>In 2024, Top 4 SIM Location Trackers To Easily Find Your Lost Xiaomi Redmi A2+ Device</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-ways-to-trade-pokemon-go-from-far-away-on-apple-iphone-15-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, Ways to trade pokemon go from far away On Apple iPhone 15 Pro Max? | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-which-pokemon-can-evolve-with-a-moon-stone-for-apple-iphone-11-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, Which Pokémon can Evolve with a Moon Stone For Apple iPhone 11 Pro Max? | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-why-is-ipogo-not-working-on-apple-iphone-12-mini-fixed-drfone-by-drfone-virtual-ios/"><u>In 2024, Why is iPogo not working On Apple iPhone 12 mini? Fixed | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/ipogo-will-be-the-new-ispoofer-on-apple-iphone-11-pro-drfone-by-drfone-virtual-ios/"><u>iPogo will be the new iSpoofer On Apple iPhone 11 Pro? | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/most-asked-questions-about-pokemon-go-battle-league-rewards-on-apple-iphone-11-drfone-by-drfone-virtual-ios/"><u>Most Asked Questions about Pokemon Go Battle League Rewards On Apple iPhone 11 | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/pokemon-go-error-12-failed-to-detect-location-on-apple-iphone-xs-drfone-by-drfone-virtual-ios/"><u>Pokemon Go Error 12 Failed to Detect Location On Apple iPhone XS? | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-ultimate-e-reader-for-bibliophiles-unveiling-the-kobo-forma/"><u>The Ultimate E-Reader for Bibliophiles: Unveiling the Kobo Forma</u></a></li>
-<li><a href="https://win-news.techidaily.com/yl-software-reveals-secrets-effective-strategies-for-boosting-hard-drive-speed/"><u>YL Software Reveals Secrets: Effective Strategies for Boosting Hard Drive Speed!</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-podcast-production-perfection-from-draft-to-audio-bliss/"><u>[New] 2024 Approved Podcast Production Perfection From Draft to Audio Bliss</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-unveiling-the-essentials-an-in-depth-review-of-lightroom-for-android/"><u>[Updated] In 2024, Unveiling the Essentials An In-Depth Review of Lightroom for Android</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/additional-tips-about-sinnoh-stone-for-apple-iphone-14-pro-drfone-by-drfone-virtual-ios/"><u>Additional Tips About Sinnoh Stone For Apple iPhone 14 Pro | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/asus-mg28uq-monitor-unpacking-the-ultra-high-resolution-experience/"><u>ASUS MG28UQ Monitor Unpacking the Ultra High-Resolution Experience</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/busting-myths-essential-facts-on-instagrams-reels-for-2024/"><u>Busting Myths Essential Facts on Instagram's Reels for 2024</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-apple-iphone-11-drfone-by-drfone-virtual-ios/"><u>Here are Some Pro Tips for Pokemon Go PvP Battles On Apple iPhone 11 | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/how-to-use-pokemon-go-joystick-on-apple-iphone-8-drfone-by-drfone-virtual-ios/"><u>How to use Pokemon Go Joystick on Apple iPhone 8? | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-ways-to-teach-you-to-transfer-files-from-meizu-21-pro-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Ways To Teach You To Transfer Files from Meizu 21 Pro to Other Android Devices Easily | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-planning-to-use-a-pokemon-go-joystick-on-apple-iphone-6s-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, Planning to Use a Pokemon Go Joystick on Apple iPhone 6s Plus? | Dr.fone</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/masterpieces-at-play-choosing-the-top-10-thrilling-games-for-2024/"><u>Masterpieces at Play Choosing the Top 10 Thrilling Games for 2024</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/network-locked-sim-card-inserted-on-your-zte-nubia-z60-ultra-phone-unlock-it-now-by-drfone-android/"><u>Network Locked SIM Card Inserted On Your ZTE Nubia Z60 Ultra Phone? Unlock It Now</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/pokemon-go-error-12-failed-to-detect-location-on-apple-iphone-6-drfone-by-drfone-virtual-ios/"><u>Pokemon Go Error 12 Failed to Detect Location On Apple iPhone 6? | Dr.fone</u></a></li>
+<li><a href="https://data-recovery.techidaily.com/stellardata-salvage-hub/"><u>StellarData Salvage Hub</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/why-cant-i-install-the-ipogo-on-apple-iphone-se-2020-drfone-by-drfone-virtual-ios/"><u>Why cant I install the ipogo On Apple iPhone SE (2020) | Dr.fone</u></a></li>
 </ul></div>
 

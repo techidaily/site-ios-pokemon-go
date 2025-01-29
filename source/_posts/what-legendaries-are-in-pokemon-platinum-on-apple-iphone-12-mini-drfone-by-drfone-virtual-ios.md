@@ -1,7 +1,7 @@
 ---
 title: What Legendaries Are In Pokemon Platinum On Apple iPhone 12 mini? | Dr.fone
-date: 2025-01-18T05:26:39.117Z
-updated: 2025-01-22T02:27:48.451Z
+date: 2025-01-23T20:31:04.219Z
+updated: 2025-01-29T17:46:48.543Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -22,10 +22,6 @@ Pokemon Platinum is an engaging role-playing video game introduced by Nintendo a
 In the game, players control a female or male character. It starts with three Pokemon provided by Professor Rowan. Giratina, the mascot Pokemon, plays the most important role in the game’s plot. In addition, there are numerous Platinum legendaries in this Pokemon gaming version.
 
 In this post, we will learn about all legendaries in Platinum version. You will also learn how to capture legendaries in the game.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 1: What Legendaries are in Pokemon Platinum?
 
@@ -79,10 +75,6 @@ There are about 18 platinum legendaries Pokemon that you can obtain per game car
 
 **18\. Arceus:** Arceus, the level 80 Pokemon, is also an event-only Pokemon who is accessible with the Azure Flute obtained from Nintendo Event. At the Spear Pillar, you will be asked if you want to play the flute. If yes, the flute is played and a huge staircase appears. Climb up the staircase and you will find the Pokemon resting there. Go up and battle him.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 2: How do you catch the legendary Pokemon in platinum?
 
 There are a few cheats to capture platinum legendaries in Pokemon. In addition to the official methods discusses above, you can use action replay codes or try location spoofing.
@@ -94,10 +86,6 @@ There are many action replay codes available on the Internet. Using these codes,
 Make sure you get these codes only from reliable websites or sources. Otherwise, you may get banned from playing this game permanently.
 
 ![Platinum legendaries 8](https://images.wondershare.com/drfone/Platinum-legendaries-8.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 2.2 Location Spoofing with Dr. Fone Virtual Location
 
@@ -114,10 +102,6 @@ For this illustration, we will use using Dr.fone to see how to iPhone GPS spoofi
 **Step 2:** Tap the ‘Virtual Location’ option at Dr.Fone home screen to change the location of your device. You will see another window opened up on your phone’s screen.
 
 ![Platinum legendaries 10](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Step 3:** Next, click on ‘Get Started’ and select the desired fake location on the map you see on the Dr.Fone app. At the top-right corner of the window, there are three icons. Click on the third icon - Teleport. Next, tap on the desired location or enter the name of the location in the search box you see on the left side.
 
@@ -141,11 +125,11 @@ Frankly, Mewtwo can be located only in the Cerulean Cave that further locates in
 
 ![Platinum legendaries 14](https://images.wondershare.com/drfone/Platinum-legendaries-14.png)
 
-According to some users, you can get Mewtwo with Pokemon Fire Red or Leaf Green. With these in hand, you can obtain Mewtwo in cerulean cave once you have defeated the Elite 4.
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+According to some users, you can get Mewtwo with Pokemon Fire Red or Leaf Green. With these in hand, you can obtain Mewtwo in cerulean cave once you have defeated the Elite 4.
 
 ## Conclusion
 
@@ -182,10 +166,6 @@ You can always check out how to evolve your Pokémon in your Pokédex.
 ## Part 3. Which Pokémon Evolve With Sun Stones?
 
 ![sunken and sunflora in pokémon go](https://images.wondershare.com/drfone/article/2024/03/sun-stone-evolutions-4.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Every Pokémon you come across in the game is different, and they’ll all have varying evolution requirements. Considering how elusive the Sun Stone can be, it’s great that only a few Pokémon require it. Check out the following Pokémon Sun Stone evolution list.
 
@@ -267,24 +247,20 @@ To get started with Wondershare Dr.Fone and complete your field research tasks, 
 
 ![get started with wondershare dr.fone](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 4. On the map that shows up, click on **No Device**in the upper right-hand corner;
 5. You’ll see a list of all connected devices, select your phone;
 
 ![choose the Apple iPhone 12 mini device you want to connect to dr.fone](https://images.wondershare.com/drfone/guide/vl-connect-android-1.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 6. On your phone, tap **Allow USB Debugging**;
 7. On your phone, go to **Developer Options> Select mock location app**;
 8. Select **Fone**.
 
 ![set up mock location on your phone](https://images.wondershare.com/drfone/guide/vl-connect-android-3.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 From there, you can easily set up your route, change your location, and simulate movement. With Wondershare Dr.Fone, you’ll have intuitive keyboard controls, 360-degree directions, and automated movement. So, as soon as you set things up in the app, you can start playing the game, completing your field research tasks, and, hopefully, acquiring your Sun Stones.
 
@@ -323,7 +299,7 @@ As you can see, Stardust is crucial for numerous gameplay experiences, so you sh
 ![power up using stardust](https://images.wondershare.com/drfone/article/2024/03/importance-of-stardust-in-pokemon-go-2.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3. Best Ways to Get Stardust in Pokemon Go
@@ -348,6 +324,10 @@ The maximum Stardust you can get in one gift is 300, which may not seem like a l
 
 ![opening gifts in pokemon go](https://images.wondershare.com/drfone/article/2024/03/importance-of-stardust-in-pokemon-go-4.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### By Hatching Pokemon
 
 Hatching a Pokemon is also one of the essential parts of your Pokemon experience. Every time you hatch an egg, you’ll get Stardust points you can spend on numerous instances. The Stardust amount will depend on the egg itself; the higher the rank, the better the prices.
@@ -364,6 +344,10 @@ You can also use the Star Piece item to multiply the Stardust amount by 1.5.
 
 ![eggs in pokemon go](https://images.wondershare.com/drfone/article/2024/03/importance-of-stardust-in-pokemon-go-5.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### By Catching Pokemon
 
 Catching Pokemon is one of the most efficient ways of earning Stardust points. Each Pokemon has a base rate of 100 Stardust points, but you can earn more points depending on the Pokemon’s evolution stage. For instance, if the Pokemon is in the second stage, you’ll earn an additional 500 Stardust points.
@@ -373,6 +357,14 @@ Another thing you should look out for is specific Pokemon characters – some ma
 If you stay consistent and catch at least one Pokemon daily, you can get up to 9,000 Stardust points on the seventh day. Moreover, the first catch of the day will bring you an additional 1,800 points.
 
 ![catch a pokemon](https://images.wondershare.com/drfone/article/2024/03/importance-of-stardust-in-pokemon-go-6.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### By Claiming Raid Rewards
 
@@ -385,7 +377,11 @@ If you defeat the boss, you’ll also get a chance to catch the Pokemon, which c
 ![a raid battle in pokemon go](https://images.wondershare.com/drfone/article/2024/03/importance-of-stardust-in-pokemon-go-7.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### By Getting Rocket Rewards
@@ -395,6 +391,10 @@ Rocket rewards are sets of items you get after fighting the Team Go Rocket. Each
 Additionally, if you ever face Giovanni, you’ll get 5,000 points for fighting and beating him.
 
 ![rocket battle in pokemon go](https://images.wondershare.com/drfone/article/2024/03/importance-of-stardust-in-pokemon-go-8.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### By Earning Research Rewards Through Completed Tasks
 
@@ -460,19 +460,18 @@ If you’re searching for ways to collect these items as quickly as possible and
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-the-ultimate-tutorial-iphoneipad-time-lapse-recording/"><u>[New] In 2024, The Ultimate Tutorial IPhone/iPad Time Lapse Recording</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-master-your-download-installation-and-usage-of-ez-grabber/"><u>[Updated] In 2024, Master Your Download Installation and Usage of EZ Grabber</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-maximizing-earnings-a-beginners-guide-to-vlogging/"><u>[Updated] In 2024, Maximizing Earnings A Beginner's Guide to Vlogging</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/affordable-innovation-with-arcshells-ar-5-review-excellent-performance-meets-low-cost/"><u>Affordable Innovation with ArcShell's AR-5 Review: Excellent Performance Meets Low Cost.</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/comprehensive-review-of-vive-cosmos-outstanding-vr-experience-despite-strong-rivals/"><u>Comprehensive Review of Vive Cosmos – Outstanding VR Experience Despite Strong Rivals</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/dealing-with-hdcp-errors-effective-diagnosis-and-troubleshooting-techniques/"><u>Dealing with HDCP Errors: Effective Diagnosis and Troubleshooting Techniques</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/diagnosing-and-fixing-the-minecraft-not-responding-error-for-smooth-gaming-experience/"><u>Diagnosing and Fixing the 'Minecraft Not Responding' Error for Smooth Gaming Experience</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/economical-yet-abundant-dive-into-the-extensive-collection-available-with-roku-express/"><u>Economical Yet Abundant: Dive Into the Extensive Collection Available with Roku Express</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/ford-f-150-and-galaxy-rivalry-unveiled-the-ultimate-remote-control-truck-faceoff/"><u>Ford F-150 & Galaxy Rivalry Unveiled: The Ultimate Remote Control Truck Faceoff</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-5-most-effective-methods-to-unlock-apple-iphone-6-plus-in-lost-mode-drfone-by-drfone-ios/"><u>In 2024, 5 Most Effective Methods to Unlock Apple iPhone 6 Plus in Lost Mode | Dr.fone</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/mbox2-windows-drivers-easy-download-and-latest-version-update-solutions/"><u>MBox2 Windows Drivers - Easy Download & Latest Version Update Solutions</u></a></li>
-<li><a href="https://fox-that.techidaily.com/overcome-slow-instagram-6-key-steps-to-enhance-app-speed-on-ios-and-android/"><u>Overcome Slow Instagram: 6 Key Steps to Enhance App Speed on iOS & Android</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/overcoming-missing-vcompdll-hurdles-a-step-by-step-approach/"><u>Overcoming 'Missing vcomp.dll' Hurdles: A Step-by-Step Approach</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/troubleshooting-microsoft-teams-microphone-problems-on-windows-1110-devices/"><u>Troubleshooting Microsoft Teams Microphone Problems on Windows 11/10 Devices</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-unleashing-potential-a-guide-for-solitary-showrunners/"><u>[Updated] Unleashing Potential A Guide for Solitary Showrunners</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/a-detailed-pokemon-go-pvp-tier-list-to-make-you-a-pro-trainer-for-apple-iphone-12-pro-max-drfone-by-drfone-virtual-ios/"><u>A Detailed Pokemon Go PvP Tier List to Make you a Pro Trainer For Apple iPhone 12 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/chromatic-shift-strategies-for-skilled-alteration-for-2024/"><u>Chromatic Shift Strategies for Skilled Alteration for 2024</u></a></li>
+<li><a href="https://driver-error.techidaily.com/error-48-cleared-from-device-hub/"><u>Error 48 Cleared From Device Hub</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/from-digital-designs-to-emoji-delights-making-the-most-of-your-gifs/"><u>From Digital Designs to Emoji Delights Making the Most of Your GIFs</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/how-to-enter-the-ispoofer-discord-server-on-apple-iphone-8-drfone-by-drfone-virtual-ios/"><u>How to enter the iSpoofer discord server On Apple iPhone 8 | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-apple-iphone-13-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, Can I use iTools gpx file to catch the rare Pokemon On Apple iPhone 13 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-top-15-augmented-reality-games-like-pokemon-go-to-play-on-apple-iphone-12-drfone-by-drfone-virtual-ios/"><u>In 2024, Top 15 Augmented Reality Games Like Pokémon GO To Play On Apple iPhone 12 | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-apple-iphone-13-drfone-by-drfone-virtual-ios/"><u>In 2024, Will Pokémon Go Ban the Account if You Use PGSharp On Apple iPhone 13 | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/is-mega-mewtwo-the-strongest-pokemon-on-apple-iphone-xs-max-drfone-by-drfone-virtual-ios/"><u>Is Mega Mewtwo The Strongest Pokémon On Apple iPhone XS Max? | Dr.fone</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-iphone-video-editing-essentials-top-picks-for-2024/"><u>New IPhone Video Editing Essentials Top Picks for 2024</u></a></li>
+<li><a href="https://win-blog.techidaily.com/troubleshooting-lost-ark-startup-issues-a-comprehensive-guide/"><u>Troubleshooting Lost Ark Startup Issues : A Comprehensive Guide</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/unveiling-the-leading-triad-of-breakthrough-tech-trends-in-play/"><u>Unveiling the Leading Triad of Breakthrough Tech Trends in Play</u></a></li>
 </ul></div>
 

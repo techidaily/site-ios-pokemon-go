@@ -1,7 +1,7 @@
 ---
 title: What Legendaries Are In Pokemon Platinum On Apple iPhone 12 Pro? | Dr.fone
-date: 2025-01-14T20:22:01.215Z
-updated: 2025-01-21T23:31:15.359Z
+date: 2025-01-22T20:32:09.502Z
+updated: 2025-01-29T19:13:35.227Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -23,16 +23,12 @@ In the game, players control a female or male character. It starts with three Po
 
 In this post, we will learn about all legendaries in Platinum version. You will also learn how to capture legendaries in the game.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: What Legendaries are in Pokemon Platinum?
 
 ![Platinum legendaries 2](https://images.wondershare.com/drfone/Platinum-legendaries-2.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 There are about 18 platinum legendaries Pokemon that you can obtain per game cartridge. These include even Pokemon as well. You can catch them while playing the video game. Here is the list of legendary Pokemon in Pokemon Platinum Version:
@@ -53,6 +49,10 @@ There are about 18 platinum legendaries Pokemon that you can obtain per game car
 
 ![Platinum legendaries 4](https://images.wondershare.com/drfone/Platinum-legendaries-4.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **7\. Heatran:** Found inside a cave around Stark Mountain, Heatran appears as you come back to the place where Charon was arrested. When you try to enter the Mountain, you team up with Buck, another trainer. You follow him and speak to his grandfather. You catch the Level 50 Heatran once you return to Stark Mountain.
 
 **8\. Regigigas:** Found on the basement of Snowpoint Temple, Regigigas Platinum does not require HM moves to be reachable. Resolving puzzles on each floor, you arrive at the Temple, bringing Regirock, Regice, and Registeel. You will need them to battle with this Level 1 Pokemon and capture him. Regigigas is found asleep on the floor.
@@ -62,7 +62,7 @@ There are about 18 platinum legendaries Pokemon that you can obtain per game car
 ![Platinum legendaries 5](https://images.wondershare.com/drfone/Platinum-legendaries-5.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **10\. Articuno:** Like Cresselia, Articuno also roams the grass of Sinnoh. In order for the birds’ release, you visit and speak to Professor Oak who can be found in his house in Eterna City. You need to obtain National Pokedex in order to speak to Professor Oak. The professor tells you that you can find Articuno nearby within Sinnoh. The Level 60 legendary Pokemon can be found roaming the Sinnoh’s grass. So, make sure you are prudent when hunting Articuno.
@@ -85,11 +85,19 @@ There are about 18 platinum legendaries Pokemon that you can obtain per game car
 
 ![Platinum legendaries 7](https://images.wondershare.com/drfone/Platinum-legendaries-7.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **18\. Arceus:** Arceus, the level 80 Pokemon, is also an event-only Pokemon who is accessible with the Azure Flute obtained from Nintendo Event. At the Spear Pillar, you will be asked if you want to play the flute. If yes, the flute is played and a huge staircase appears. Climb up the staircase and you will find the Pokemon resting there. Go up and battle him.
 
 ## Part 2: How do you catch the legendary Pokemon in platinum?
 
 There are a few cheats to capture platinum legendaries in Pokemon. In addition to the official methods discusses above, you can use action replay codes or try location spoofing.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2.1 Action Replay Codes
 
@@ -98,14 +106,6 @@ There are many action replay codes available on the Internet. Using these codes,
 Make sure you get these codes only from reliable websites or sources. Otherwise, you may get banned from playing this game permanently.
 
 ![Platinum legendaries 8](https://images.wondershare.com/drfone/Platinum-legendaries-8.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 2.2 Location Spoofing with Dr. Fone Virtual Location
 
@@ -120,7 +120,7 @@ For this illustration, we will use using Dr.fone to see how to iPhone GPS spoofi
 ![Platinum legendaries 9](https://images.wondershare.com/drfone/guide/drfone-home.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 2:** Tap the ‘Virtual Location’ option at Dr.Fone home screen to change the location of your device. You will see another window opened up on your phone’s screen.
@@ -138,6 +138,10 @@ For this illustration, we will use using Dr.fone to see how to iPhone GPS spoofi
 **Step 5:** For GPS location spoofing on your Apple iPhone 12 Pro map, open your current location. You will see that your virtual address is your current location now. It’s because Dr.Fone has successfully modified the location setting of your device, not just the game.
 
 ![Platinum legendaries 13](https://images.wondershare.com/drfone/guide/virtual-location-07.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Now, enjoy playing Pokemon Platinum and capture more Legendary Pokemon to level up in the game.
 
@@ -178,6 +182,10 @@ The pokemon go dragon scale is one of the new evolution objects that can be empl
 
 ![seadra evolving to kingdra](https://images.wondershare.com/drfone/2020/seadra-evolving-to-kingdra.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Once receiving a Dragon Scale, a player can only use it to evolve Seadra. Any other Pokemon will not evolve with it or even need it to evolve.
 
 ## Part 2：Fast way to get the exclusive Pokémon?
@@ -194,31 +202,23 @@ You can click the ‘Get Started’ button to initiate the action as soon as you
 
 ![virtual location 01](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 2: Mirroring Motion amid steps:**
 
 Unfold the top right area of the initial option before reaching Dr. Fone's GUI, which permits you to imitate maneuver amid the two spots. Pick the positioning pin and click on the ‘transfer here’ button in the search bar.
 
 ![virtual location 08](https://images.wondershare.com/drfone/guide/virtual-location-08.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 To begin the replication, you will be required to make a movement and traverse the 'March' button to reach it multiple times. By default, the action is set to one but can be outweighed by the user, and the plan will change correspondingly.
 
 ![virtual location 09](https://images.wondershare.com/drfone/guide/virtual-location-09.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 The change location will act as genuine for the Pokémon Go application, and it will presume that the player is moving in between the two points you chose on the Dr. Fone GUI screen. At the foot of the screen, the rate of motion can also be modified, making use of the gliding menu. By following these steps, you can use the fake motion of the position of Dr. Virtual Fone without needing to understand it, and your app will not be banned.
 
 ![virtual location 10](https://images.wondershare.com/drfone/guide/virtual-location-10.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![virtual location 11](https://images.wondershare.com/drfone/guide/virtual-location-11.png)
 
@@ -239,10 +239,6 @@ You can get your hands on a dragon scale by spinning a specific Pokestop seven d
 ## Conclusion
 
 Specific Pokémon in Pokémon GO now call for rare evolution items such as a steel coat, a sunstone, a king's rock, a dragon scale, or an upgrade to evolve, all of which are unplanned drops from Pokestops. However, the players can make use of [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) application to gain version exclusive Pokemon and evolution items and make advancements in the game.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Is Mega Mewtwo The Strongest Pokémon On Apple iPhone 12 Pro?
 
@@ -286,6 +282,10 @@ So, Yes!! Mega Mewtwo is the strongest Pokémon.
 
 And if you’re one of those who love to collect Pokémon cards and thinking of getting M Mewtwo EX, then you should be probably wondering about its worth on the market. Isn’t, it right? Then, it starts at $9.99.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 4: How to Get Mega Mewtwo X And Y?
 
 In order to get or evolve into Mega Mewtwo X or Mega Mewtwo Y, you need a special Mega Stone for your Pokémon. In Part 2 of this post, we have given in-depth detail about how to get the job done. Nevertheless, below we have covered some other tips to catch Mega Mewtwo X And Y:
@@ -316,21 +316,17 @@ That’s all on Mewtwo Mega Evolution. Yes, Mega Mewtwo is the strongest Pokémo
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-lens-leaders-showcase-unveiling-the-best-6-4k-dslrs/"><u>[New] Lens Leaders Showcase Unveiling the Best 6 4K DSLRs</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/he-ultimate-vlog-gear-list-17-edition-for-2024/"><u>[New] The Ultimate Vlog Gear List (#17 Edition) for 2024</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-quick-capture-screen-grabs-on-windows-pcs/"><u>2024 Approved Quick Capture Screen Grabs on Windows PCs</u></a></li>
-<li><a href="https://discover-community.techidaily.com/4k4k1080p/"><u>免费4K视频转换器:将任意解析度的4K视频改变为高清1080P，以及相反方向</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/deciphering-chatgpt-limitations-the-ceiling-of-character-input-possibilities/"><u>Deciphering ChatGPT Limitations: The Ceiling of Character Input Possibilities</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/easy-steps-to-enhance-performance-with-a-new-graphics-card-installation/"><u>Easy Steps to Enhance Performance with a New Graphics Card Installation</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/experiencing-days-gone-an-in-depth-look-at-motorcycle-rides-in-a-zombie-world/"><u>Experiencing Days Gone: An In-Depth Look at Motorcycle Rides in a Zombie World</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/exploring-the-lenovo-ideapad-320-sleek-design-meets-iconic-lenovo-typing-experience-reviewed/"><u>Exploring the Lenovo Ideapad 320: Sleek Design Meets Iconic Lenovo Typing Experience Reviewed</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-restore-deleted-12-proplus-5g-contacts-an-easy-method-explained-by-fonelab-android-recover-contacts/"><u>How to Restore Deleted 12 Pro+ 5G Contacts An Easy Method Explained.</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/j5-tactical-v1-pro-flashlight-review/"><u>J5 Tactical V1-Pro Flashlight Review</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/limited-budget-check-out-our-comprehensive-analysis-of-the-remobell-video-doorbell/"><u>Limited Budget? Check Out Our Comprehensive Analysis of the RemoBell Video Doorbell</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/pet-cuddles-anywhere-petcubes-virtual-embrace/"><u>Pet Cuddles Anywhere: Petcube’s Virtual Embrace</u></a></li>
-<li><a href="https://windows11.techidaily.com/sweep-away-unrecognized-interfaces-with-these-tips/"><u>Sweep Away Unrecognized Interfaces with These Tips</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/uninspired-launch-of-godfall-the-long-awaited-ps5-exclusive-game/"><u>Uninspired Launch of Godfall, the Long-Awaited PS5 Exclusive Game</u></a></li>
-<li><a href="https://network-issues.techidaily.com/windows-11-now-supports-amds-radeon-hd-6950-latest-drivers-update/"><u>Windows 11 Now Supports AMD's Radeon HD 6950: Latest Drivers Update</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/yakuza-like-a-dragon-the-ultimate-rpg-experience-you-cant-miss/"><u>Yakuza: Like a Dragon - The Ultimate RPG Experience You Can't Miss!</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-ranking-the-most-accessible-video-chat-applications-top-10-for-businesses-and-schools-for-2024/"><u>[New] Ranking the Most Accessible Video Chat Applications Top 10 For Businesses & Schools for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/breaking-free-from-instagrams-influence/"><u>Breaking Free From Instagram's Influence</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/catch-or-beat-sleeping-snorlax-on-pokemon-go-for-apple-iphone-xs-max-drfone-by-drfone-virtual-ios/"><u>Catch or Beat Sleeping Snorlax on Pokemon Go For Apple iPhone XS Max | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/customized-boxes-at-your-fingertips-top-e-commerce-destinations-revealed/"><u>Customized Boxes at Your Fingertips Top E-Commerce Destinations Revealed</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/how-can-i-catch-the-regional-pokemon-without-traveling-on-apple-iphone-12-pro-max-drfone-by-drfone-virtual-ios/"><u>How Can I Catch the Regional Pokémon without Traveling On Apple iPhone 12 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fix-my-lava-yuva-3-pro-location-is-wrong-drfone-by-drfone-virtual-android/"><u>How to Fix My Lava Yuva 3 Pro Location Is Wrong | Dr.fone</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/1723808147427-how-to-rip-dvds-to-windows-10-easy-steps/"><u>How to Rip DVDs to Windows 10? Easy Steps</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-full-guide-to-catch-100-iv-pokemon-using-a-map-on-apple-iphone-13-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, Full Guide to Catch 100 IV Pokémon Using a Map On Apple iPhone 13 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-pokemon-go-no-gps-signal-heres-every-possible-solution-on-apple-iphone-12-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, Pokemon Go No GPS Signal? Heres Every Possible Solution On Apple iPhone 12 Pro | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/most-asked-questions-about-pokemon-go-battle-league-rewards-on-apple-iphone-se-drfone-by-drfone-virtual-ios/"><u>Most Asked Questions about Pokemon Go Battle League Rewards On Apple iPhone SE | Dr.fone</u></a></li>
+<li><a href="https://win-info.techidaily.com/online-mp3-mp4-convertisseur-sans-frais-apportez-votre-mp3-en-mp4-avec-movavi/"><u>Online MP3-MP4 Convertisseur Sans Frais - Apportez Votre Mp3 en Mp4 Avec Movavi</u></a></li>
+<li><a href="https://win11.techidaily.com/solving-recycle-bin-hang-ups-in-windows-11/"><u>Solving Recycle Bin Hang-Ups in Windows 11</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: What Legendaries Are In Pokemon Platinum On Apple iPhone 8? | Dr.fone
-date: 2025-01-20T23:12:27.141Z
-updated: 2025-01-22T00:22:25.941Z
+date: 2025-01-23T19:29:08.679Z
+updated: 2025-01-29T19:18:00.452Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -26,6 +26,10 @@ In this post, we will learn about all legendaries in Platinum version. You will 
 ## Part 1: What Legendaries are in Pokemon Platinum?
 
 ![Platinum legendaries 2](https://images.wondershare.com/drfone/Platinum-legendaries-2.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 There are about 18 platinum legendaries Pokemon that you can obtain per game cartridge. These include even Pokemon as well. You can catch them while playing the video game. Here is the list of legendary Pokemon in Pokemon Platinum Version:
 
@@ -53,10 +57,6 @@ There are about 18 platinum legendaries Pokemon that you can obtain per game car
 
 ![Platinum legendaries 5](https://images.wondershare.com/drfone/Platinum-legendaries-5.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **10\. Articuno:** Like Cresselia, Articuno also roams the grass of Sinnoh. In order for the birds’ release, you visit and speak to Professor Oak who can be found in his house in Eterna City. You need to obtain National Pokedex in order to speak to Professor Oak. The professor tells you that you can find Articuno nearby within Sinnoh. The Level 60 legendary Pokemon can be found roaming the Sinnoh’s grass. So, make sure you are prudent when hunting Articuno.
 
 **11\. Zapdos:** Once you have got the National Pokédex, you speak to Professor Oak. The professor tells you about Zapdos who roams the grasses of Sinnoh. Like with Articuno, you to be prudent in your hunting to catch this Level 60 legendary Pokemon.
@@ -77,23 +77,11 @@ There are about 18 platinum legendaries Pokemon that you can obtain per game car
 
 ![Platinum legendaries 7](https://images.wondershare.com/drfone/Platinum-legendaries-7.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **18\. Arceus:** Arceus, the level 80 Pokemon, is also an event-only Pokemon who is accessible with the Azure Flute obtained from Nintendo Event. At the Spear Pillar, you will be asked if you want to play the flute. If yes, the flute is played and a huge staircase appears. Climb up the staircase and you will find the Pokemon resting there. Go up and battle him.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 2: How do you catch the legendary Pokemon in platinum?
 
 There are a few cheats to capture platinum legendaries in Pokemon. In addition to the official methods discusses above, you can use action replay codes or try location spoofing.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 2.1 Action Replay Codes
 
@@ -102,6 +90,10 @@ There are many action replay codes available on the Internet. Using these codes,
 Make sure you get these codes only from reliable websites or sources. Otherwise, you may get banned from playing this game permanently.
 
 ![Platinum legendaries 8](https://images.wondershare.com/drfone/Platinum-legendaries-8.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2.2 Location Spoofing with Dr. Fone Virtual Location
 
@@ -223,10 +215,6 @@ To start with, you can just go to the Play Store page of the GPS Joystick app an
 
 ![GPS Joystick Android Install](https://images.wondershare.com/drfone/2020/2020/pokemon-go-joystick-3.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Afterward, go to its Settings > Developer Options and set the Pokemon Go spoofer APK the default mock location app.
 
 **Step 2: Set up the preferences to fake GPS on Pokemon Go**
@@ -234,6 +222,10 @@ Afterward, go to its Settings > Developer Options and set the Pokemon Go spoofer
 Great! Now all you need to do is launch the GPS Joystick app and go to its Settings to spoof your location. Here, you can enter the exact coordinates of the target location to spoof.
 
 ![GPS Joystick Enter Coordinates](https://images.wondershare.com/drfone/2020/2020/pokemon-go-joystick-4.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Besides that, you can also tap on the map option to directly enter the address or the name of the target location.
 
@@ -278,7 +270,7 @@ If you want to avoid getting your account banned and still use a reliable spoofi
     ![Pokemon Go Cooldown Chart](https://images.wondershare.com/drfone/2020/2020/pokemon-go-joystick-10.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 - Make sure that the Pokemon Go joystick you are using is a reliable solution (like the ones listed above).
@@ -335,10 +327,6 @@ On the contrary, it has Dig, Poison Fang, Thunderbolt, and Sludge Bomb as charge
 | --- | --- |
 | **Weaknesses** | Ground, Psychic |
 | **Resistance** | Bug, Fighting, Fairy, Grass, Poison |
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 3\. Timburr
 
@@ -422,6 +410,10 @@ So far, it has scored 156 in attack, 240 in defense, and 155 in stamina categori
 | **Weaknesses** | Bug, Dark, Fire, Flying, Ghost, Rock |
 | **Resistance** | Fighting, Grass, Ground, Psychic |
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 4\. Cramorant
 
 ![caramorant pokemon go ultra league](https://images.wondershare.com/drfone/article/2024/01/best-strongest-pokemon-in-go-pvp-leagues-10.jpg)
@@ -435,6 +427,10 @@ Players can also consider its 173-score record in attack, 163 in defense, and 17
 | **Weaknesses** | Electric, Rock |
 | **Resistance** | Fighting, Ground, Bug, Fire, Water, Steel |
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 5\. Ribombee
 
 ![ribombee pokemon go ultra league](https://images.wondershare.com/drfone/article/2024/01/best-strongest-pokemon-in-go-pvp-leagues-11.jpg)
@@ -447,6 +443,10 @@ Notably, it comes up with a max of 2488 CP under level 50 with 198 attack, 146 d
 | --- | --- |
 | **Weaknesses** | Fire, Flying, Poison, Rock, Steel |
 | **Resistance** | Fighting, Dragon, Ground, Bug, Dark, Grass |
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 4. 5 Strongest Pokémon for Pokémon GO Master League
 
@@ -465,10 +465,6 @@ If we talk about other scores, it comes up with 349 attacks, 199 defense, and 15
 | **Weaknesses** | Dark, Ghost, Ground, Psychic |
 | **Resistance** | Fighting, Bug, Normal, Poison, Fairy, Grass |
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 2\. Mega Y Charizard
 
 ![mega charizard pokemon go master league](https://images.wondershare.com/drfone/article/2024/01/best-strongest-pokemon-in-go-pvp-leagues-13.jpg)
@@ -485,10 +481,6 @@ It scores a maximum of 319 in attack, 212 in defense, and 186 in stamina. For th
 ### 3\. Necrozma (Ultra)
 
 ![necrozma ultra pokemon go master league](https://images.wondershare.com/drfone/article/2024/01/best-strongest-pokemon-in-go-pvp-leagues-14.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Necrozma (Ultra), with a maximum of 5293 CP, is the **best PvP Pokémon GO Master League**. This Pokemon attains this CP value at level 50, and opposingly, at level 1, it accomplishes 66 CP. Uncovering its charged moves shows 35 damage scores in a 2.2-second duration. It is boosted by windy weather and originally belongs to the Alola region.
 
@@ -515,6 +507,10 @@ Reportedly, it shows 193 attack, 310 defense, and 235 stamina scores. Dragon Tai
 ### 5\. Mega Salamence
 
 ![mega salamence pokemon go master league](https://images.wondershare.com/drfone/article/2024/01/best-strongest-pokemon-in-go-pvp-leagues-16.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Mega Salamence is also the strongest Pokémon, with the highest 5688 CP at level 50 in **Pokémon Go PvP**. The best moves it offers are Dragon Tail and Draco Meteor, with 19.87 damage per second. It was first located in the Heonn region and is boosted by Windy weather.
 
@@ -547,6 +543,10 @@ Establish the connection of your phone to the PC or MacBook upon launching Wonde
 
 ![navigate teleport mode dr.fone](https://images.wondershare.com/drfone/guide/virtual-location-03.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 - Step 2. Find the Location To Spoof Using the Search Bar
 
 Once Teleport Mode is activated, head to the top left side, access the search bar, and type the required location. Then, hit the "Enter" key to mark that location on the map.
@@ -565,15 +565,15 @@ To use this feature, navigate to the upper-right section and tap the “One-Stop
 
 ![navigate one-stop route option](https://images.wondershare.com/drfone/guide/virtual-location-08.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 - Step 5. Adjust and Start Simulation Parameters
 
 Upon selecting, decide whether you want a "Round Trip" or "Loop Trip," and enter the number of times you want the trip. Now, drag the slider to choose the speed of spoofing and proceed by tapping on the "Move Here" button. Afterward, the simulation will start, so you can witness your movement now. To hold the simulation, click the "Pause" or "Clear" buttons to stop or return to the actual location.
 
 ![set route parameters to start moving](https://images.wondershare.com/drfone/guide/virtual-location-09.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 - Step 6. Initiate Multi-Sop Route and Define Parameters
 
@@ -599,17 +599,14 @@ To wrap up, Pokémon GO PvP leagues excitedly produce rewards and rankings. To g
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-files.techidaily.com/updated-the-ultimate-phone-for-4k-enthusiasts-sony-xperia-xz-for-2024/"><u>[Updated] The Ultimate Phone for 4K Enthusiasts - Sony Xperia XZ for 2024</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/can-dyson-outshine-apple-with-their-new-ontrac-wireless-headphones-find-out-now/"><u>Can Dyson Outshine Apple with Their New 'OnTrac' Wireless Headphones? Find Out Now!</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/1719369137002-conquer-windows-problems-effective-assistance-guide/"><u>Conquer Windows Problems: Effective Assistance Guide!</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/excellent-camcorders-for-motion-free-videos/"><u>Excellent Camcorders for Motion-Free Videos</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/how-can-i-catch-the-regional-pokemon-without-traveling-on-apple-iphone-xs-drfone-by-drfone-virtual-ios/"><u>How Can I Catch the Regional Pokémon without Traveling On Apple iPhone XS | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-all-you-need-to-know-about-mega-greninja-for-apple-iphone-15-drfone-by-drfone-virtual-ios/"><u>In 2024, All You Need To Know About Mega Greninja For Apple iPhone 15 | Dr.fone</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-forgot-apple-iphone-12-mini-backup-password-heres-what-to-do-by-drfone-ios/"><u>In 2024, Forgot Apple iPhone 12 mini Backup Password? Heres What to Do</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-to-use-pokemon-emerald-master-ball-cheat-on-apple-iphone-15-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Use Pokémon Emerald Master Ball Cheat On Apple iPhone 15 Pro | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-apple-iphone-6s-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Apple iPhone 6s Plus | Dr.fone</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-unlock-the-potential-of-your-camera-creating-stunning-slow-motion-videos-for-instagram/"><u>In 2024, Unlock the Potential of Your Camera Creating Stunning Slow-Motion Videos for Instagram</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/top-15-augmented-reality-games-like-pokemon-go-to-play-on-apple-iphone-14-drfone-by-drfone-virtual-ios/"><u>Top 15 Augmented Reality Games Like Pokémon GO To Play On Apple iPhone 14 | Dr.fone</u></a></li>
-<li><a href="https://discover-brilliant.techidaily.com/transform-your-files-with-movavi-convert-aac-to-mp3-seamlessly/"><u>Transform Your Files with Movavi: Convert AAC to MP3 Seamlessly</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-pro-camera-selection-guide-top-10-films-tools-ranked/"><u>[New] Pro Camera Selection Guide - Top 10 Films Tools Ranked</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-dive-deep-into-the-world-of-timelapses-with-your-ipad/"><u>[Updated] Dive Deep Into the World of Timelapses with Your iPad</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/catch-or-beat-sleeping-snorlax-on-pokemon-go-for-apple-iphone-14-drfone-by-drfone-virtual-ios/"><u>Catch or Beat Sleeping Snorlax on Pokemon Go For Apple iPhone 14 | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-remove-google-frp-lock-on-oneplus-nord-ce-3-5g-by-drfone-android-unlock-remove-google-frp/"><u>How to remove Google FRP Lock on OnePlus Nord CE 3 5G</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-the-cinematic-revolution-exploring-the-best-shots-and-lighting-tips-24-edition/"><u>In 2024, The Cinematic Revolution Exploring the Best Shots & Lighting Tips - '24 Edition</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-why-does-the-pokemon-go-battle-league-not-available-on-apple-iphone-14-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, Why does the pokemon go battle league not available On Apple iPhone 14 Pro | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/privacy-focused-tools-for-unseen-story-watching-for-2024/"><u>Privacy-Focused Tools for Unseen Story Watching for 2024</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/ways-to-trade-pokemon-go-from-far-away-on-apple-iphone-6-drfone-by-drfone-virtual-ios/"><u>Ways to trade pokemon go from far away On Apple iPhone 6? | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/which-pokemon-can-evolve-with-a-moon-stone-for-apple-iphone-14-drfone-by-drfone-virtual-ios/"><u>Which Pokémon can Evolve with a Moon Stone For Apple iPhone 14? | Dr.fone</u></a></li>
 </ul></div>
 

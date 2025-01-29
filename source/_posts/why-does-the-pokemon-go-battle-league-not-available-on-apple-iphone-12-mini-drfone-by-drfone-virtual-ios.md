@@ -1,7 +1,7 @@
 ---
 title: Why does the pokemon go battle league not available On Apple iPhone 12 mini | Dr.fone
-date: 2025-01-15T08:05:15.622Z
-updated: 2025-01-22T01:12:23.194Z
+date: 2025-01-23T18:49:30.408Z
+updated: 2025-01-29T17:12:11.388Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -86,7 +86,7 @@ Although it might seem like a long and hard journey, it doesn’t need to. You c
 Here’s some tips you can put to easy use in Levelling Up in Pokémon Go:
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Tip #1: Use dr.fone Virtual Location
@@ -137,6 +137,10 @@ Before finding various PoGo trainer codes, you should know where you find your o
 
 ![pokemon go profile](https://images.wondershare.com/drfone/2020/pokemon/pokemon-go-profile.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **2.** This will display details regarding your account with your avatar. From the top section, you can tap on the “Friends” field.
 
 ![pokemon go friends section](https://images.wondershare.com/drfone/2020/pokemon/pokemon-go-friends-section.jpg)
@@ -159,6 +163,10 @@ Reddit has a thriving community of Pokemon Go players that you would love to exp
 
 ![pokemon go sub reddit](https://images.wondershare.com/drfone/2020/pokemon/pokemon-go-sub-reddit.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2\. Facebook
 
 Just like Reddit, you can also find tons of dedicated pages and groups made by Pokemon Go players on Facebook. Most of these groups are closed so you have to first join them to exchange trainer codes in Pokemon Go.
@@ -177,10 +185,6 @@ This is a dedicated app and is considered one of the best places to find Pokemon
 
 ![poke friends mobile app](https://images.wondershare.com/drfone/2020/pokemon/poke-friends-mobile-app.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 3: 5 Best Discord Servers to Find Trainer Codes in Pokemon Go
 
 Discord is a hub for social gamers and Pokemon Go is no such exception. If you are looking for PoGo trainer codes, then consider joining these Discord servers.
@@ -194,10 +198,6 @@ This is one of the most popular Discord servers dedicated to Pokemon Go players.
 ### 2\. Pokemon Go Gamers Community
 
 There are thousands of members in this Discord server, making it a friendly community. You can easily find several Pokemon trainer codes to add to your account here.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 3\. Pokemon Go International Raider
 
@@ -225,10 +225,6 @@ Now when you have added trainer codes in Pokemon Go, you can easily fight with o
 
 ![virtual location 05](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 I hope that after reading this post, you would be able to find Pokemon Go trainer codes from different sources. I have also listed a quick guide to add Pokemon Go trainer codes and how to find your code. Also, if you wish to win more matches in Battle Leagues, then try a reliable tool like Dr.Fone – Virtual Location (iOS). Using it, you can easily catch tons of Pokemons without leaving your house.
 
 ## 9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Apple iPhone 12 mini
@@ -242,10 +238,6 @@ If you are also going through a similar situation with Pokemon Go, then this wou
 <iframe allowfullscreen="allowfullscreen" frameborder="0" src="https://www.youtube.com/embed/u8SwzCXW-tc"></iframe>
 
  _Click "Try It Free" to Download Dr.Fone and Hatch Eggs in Pokemon Go Without Walking Now!_
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Way 1: Use an iOS Location Spoofer
 
@@ -294,6 +286,10 @@ Using Dr.Fone – Virtual Location (iOS), you can also simulate an entire route 
 
 ![route between multiple spots](https://images.wondershare.com/drfone/guide/virtual-location-11.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Now, you can mark multiple spots on the map and can also select the number of times you wish to take this route. Click on the "Start Moving" button to start **Pokemon Go hatch eggs without walking**.
 
 ![start walking](https://images.wondershare.com/drfone/guide/virtual-location-12.png)
@@ -312,6 +308,10 @@ While changing your location, make sure that you do it tactfully. For instance, 
 
     ![unlock the Developer Options settings](https://images.wondershare.com/drfone/article/2019/09/hatch-pokemon-eggs-without-walking-2.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 2. Now, go to the Play Store and install a reliable location spoofing app on your phone. Later, visit Settings > Developer Options and turn it on. Also, allow mock locations on the phone and choose the installed app from here.
 
     ![location spoofing app](https://images.wondershare.com/drfone/article/2019/09/hatch-pokemon-eggs-without-walking-3.jpg)
@@ -319,6 +319,10 @@ While changing your location, make sure that you do it tactfully. For instance, 
 3. That’s it! Now you can just launch the fake GPS app and manually change your location to a few meters away to trick Pokemon Go. Do the same a few times to cover a prominent distance.
 
     ![change your location to a few meters away](https://images.wondershare.com/drfone/article/2019/09/hatch-pokemon-eggs-without-walking-4.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Just be sure that Pokemon Go won’t detect that you are using a GPS spoofer to hatch eggs. The regular use of an app like this might result in your account ban.
 
@@ -343,10 +347,6 @@ A while back, Pokemon Go enabled the option to add friends on the app and send t
 
     ![go to your profile](https://images.wondershare.com/drfone/article/2019/09/hatch-pokemon-eggs-without-walking-6.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 2. Here, you can see a list of your friends and an option to add more friends on Pokemon Go. To add a friend, you need to enter their code which can be obtained from any dedicated forum or even Reddit.
 3. That’s it! Once you have added a friend, go to their profile, and choose to trade or send them a gift. For instance, you can send them an exclusive egg and help them hack eggs without walking.
 
@@ -365,18 +365,10 @@ You might already know that Pokecoins is the official currency of Pokemon Go. Us
 
     ![get Pokecoins](https://images.wondershare.com/drfone/article/2019/09/hatch-pokemon-eggs-without-walking-8.jpeg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 3. Great! Once you have enough Pokecoins, go to the Shop again and choose to buy eggs and incubators.
 4. After getting enough incubators, you can go to your collection and apply more incubators to hatch eggs without walking.
 
     ![apply more incubators](https://images.wondershare.com/drfone/article/2019/09/hatch-pokemon-eggs-without-walking-9.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Way 6: Make Use of Your Bike or Skateboard
 
@@ -386,11 +378,19 @@ Just make sure that you stay safe while riding your bike or skateboard. Don’t 
 
 ![play Pokemon Go with Bike or Skateboard](https://images.wondershare.com/drfone/article/2019/09/hatch-pokemon-eggs-without-walking-10.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Way 7: Use a Roomba while Playing Pokemon Go
 
 If you have a Roomba or any other robotic cleaner in the house, then you can also take its assistance to hack Pokemon Go eggs. All you got to do is place your phone on the Roomba and let it move around in your house. Since the robotic cleaner would move slowly, it will make Pokemon Go believe that you are walking instead. Just be sure that your phone will stay safe and protected. I would recommend placing it in a waterproof lock to further protect it from any wear and tear.
 
 ![play Pokemon Go with Roomba](https://images.wondershare.com/drfone/article/2019/09/hatch-pokemon-eggs-without-walking-11.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Way 8: Create a Model Railroad to Play Pokemon Go
 
@@ -399,7 +399,7 @@ If you are already into model railroads, then you won’t face any issues playin
 ![Model Railroad](https://images.wondershare.com/drfone/article/2019/09/hatch-pokemon-eggs-without-walking-12.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Way 9: Use A Turntable to Hatch Eggs without Walking Pokemon Go
@@ -412,6 +412,10 @@ Place your phone on the outermost edge of the turntable > Turn on the turntable 
 
 _**Tips:** Tired of walking to hatch eggs? Using Dr.Fone - Virtual Location to hatch Pokémon Go eggs without taking a step. Explore the world of Pokémon from the comfort of your home. Try it now and level up your Pokémon Go adventure!_
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Bonus Tip: The Different Types of Pokemon Eggs in Pokemon Go
 
 In Pokemon Go, there are several types of Pokemon Eggs that you can collect. These eggs can be obtained by visiting PokeStops or by receiving them as rewards for completing certain in-game tasks. Once an egg is collected, you must walk a certain distance (ranging from 2 to 12 kilometers) to hatch the egg and reveal the Pokemon inside. You can use the ways mentioned above to hatch eggs in Pokemon Go without walking.
@@ -422,10 +426,6 @@ The types of eggs that can be collected in Pokemon Go include:
 2. 5 km eggs - These eggs can hatch a range of Pokemon, including some starters like Charmander and Squirtle, as well as rarer species like Dratini.
 3. 7 km eggs - These eggs usually contain baby Pokemon, like Pichu or Togepi, as well as some Alolan forms.
 4. 10 km eggs - These eggs are the rarest and can hatch some of the strongest and most sought-after Pokémon, such as Snorlax, Lapras, and even certain legendary Pokemon like Moltres or Zapdos.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -445,17 +445,18 @@ Now that you know **how to hatch eggs in Pokemon Go without walking** in 9 diffe
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-compreranimal-webcam-tutorial-achieve-excellent-video-quality/"><u>[New] 2024 Approved Compreranimal Webcam Tutorial Achieve Excellent Video Quality</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-explore-tiktoks-1-game-bloggers-list-for-2024/"><u>[Updated] Explore TikTok's #1 Game Bloggers List for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-transforming-facebook-videos-steps-to-high-definition/"><u>[Updated] In 2024, Transforming Facebook Videos Steps to High Definition</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-mastering-mic-levels-on-a-mac-for-2024/"><u>[Updated] Mastering Mic Levels on a Mac for 2024</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-moviemakermag-all-about-androvid-editor/"><u>[Updated] MovieMakerMag All About AndroVid Editor</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-the-fundamentals-of-human-interface-recognition/"><u>[Updated] The Fundamentals of Human Interface Recognition</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/best-pokemons-for-pvp-matches-in-pokemon-go-for-apple-iphone-xr-drfone-by-drfone-virtual-ios/"><u>Best Pokemons for PVP Matches in Pokemon Go For Apple iPhone XR | Dr.fone</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/future-filming-top-15-video-cameras-to-watch/"><u>Future Filming – Top 15 Video Cameras to Watch</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/heres-everything-you-should-know-about-pokemon-stops-in-detail-on-apple-iphone-13-drfone-by-drfone-virtual-ios/"><u>Heres Everything You Should Know About Pokemon Stops in Detail On Apple iPhone 13 | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-apple-iphone-8-drfone-by-drfone-virtual-ios/"><u>In 2024, 4 solution to get rid of pokemon fail to detect location On Apple iPhone 8 | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-a-detailed-pokemon-go-pvp-tier-list-to-make-you-a-pro-trainer-for-apple-iphone-11-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, A Detailed Pokemon Go PvP Tier List to Make you a Pro Trainer For Apple iPhone 11 Pro | Dr.fone</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/unseen-streamer-how-to-live-stream-privately-on-instagram/"><u>Unseen Streamer How to Live-Stream Privately on Instagram</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-accurate-and-automatic-video-recording-on-diverse-computing-systems-for-2024/"><u>[New] Accurate and Automatic Video Recording on Diverse Computing Systems for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-start-your-quest-for-quick-snapstreaming-today-for-2024/"><u>[New] Start Your Quest for Quick Snapstreaming Today for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-the-ultimate-video-translation-playbook-with-13-expert-recommended-apps/"><u>[New] The Ultimate Video Translation Playbook with 13 Expert-Recommended Apps</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-the-ultimate-plan-to-grow-your-subscriber-base/"><u>[Updated] In 2024, The Ultimate Plan to Grow Your Subscriber Base</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-the-videographers-minecraft-6-proven-ways-to-document-gameplay/"><u>[Updated] The Videographer's Minecraft 6 Proven Ways to Document Gameplay</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/a-comprehensive-guide-to-mastering-ipogo-for-pokemon-go-on-apple-iphone-14-plus-drfone-by-drfone-virtual-ios/"><u>A Comprehensive Guide to Mastering iPogo for Pokémon GO On Apple iPhone 14 Plus | Dr.fone</u></a></li>
+<li><a href="https://windows11.techidaily.com/discovering-distinctive-decor-for-each-monitor-in-windows-11/"><u>Discovering Distinctive Decor for Each Monitor in Windows 11</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/how-does-the-stardust-trade-cost-in-pokemon-go-on-apple-iphone-13-mini-drfone-by-drfone-virtual-ios/"><u>How does the stardust trade cost In pokemon go On Apple iPhone 13 mini? | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-hacks-to-do-pokemon-go-trainer-battles-for-apple-iphone-14-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, Hacks to do pokemon go trainer battles For Apple iPhone 14 Plus | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/pokemon-go-cooldown-chart-on-apple-iphone-xs-max-drfone-by-drfone-virtual-ios/"><u>Pokémon Go Cooldown Chart On Apple iPhone XS Max | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/the-magnificent-art-of-pokemon-go-streaming-on-apple-iphone-11-drfone-by-drfone-virtual-ios/"><u>The Magnificent Art of Pokemon Go Streaming On Apple iPhone 11? | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-apple-iphone-11-pro-max-drfone-by-drfone-virtual-ios/"><u>The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Apple iPhone 11 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://video-capture.techidaily.com/top-6-sustainable-mc-base-designs-for-2024/"><u>Top 6 Sustainable MC Base Designs for 2024</u></a></li>
 </ul></div>
 

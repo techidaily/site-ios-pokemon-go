@@ -1,7 +1,7 @@
 ---
 title: What Legendaries Are In Pokemon Platinum On Apple iPhone 11 Pro? | Dr.fone
-date: 2025-01-18T01:17:08.704Z
-updated: 2025-01-21T16:32:17.683Z
+date: 2025-01-27T18:06:46.205Z
+updated: 2025-01-29T19:44:25.662Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -45,10 +45,6 @@ There are about 18 platinum legendaries Pokemon that you can obtain per game car
 
 ![Platinum legendaries 4](https://images.wondershare.com/drfone/Platinum-legendaries-4.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **7\. Heatran:** Found inside a cave around Stark Mountain, Heatran appears as you come back to the place where Charon was arrested. When you try to enter the Mountain, you team up with Buck, another trainer. You follow him and speak to his grandfather. You catch the Level 50 Heatran once you return to Stark Mountain.
 
 **8\. Regigigas:** Found on the basement of Snowpoint Temple, Regigigas Platinum does not require HM moves to be reachable. Resolving puzzles on each floor, you arrive at the Temple, bringing Regirock, Regice, and Registeel. You will need them to battle with this Level 1 Pokemon and capture him. Regigigas is found asleep on the floor.
@@ -67,10 +63,6 @@ There are about 18 platinum legendaries Pokemon that you can obtain per game car
 
 ![Platinum legendaries 6](https://images.wondershare.com/drfone/Platinum-legendaries-6.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **14\. Regice:** With Regigigas on your team, you can access to a special room located in Mt. Coronet. On the exit to Route 216, you will see a cave names Iceberg Ruins. Enter in the cave with Regigigas and reach out to Iceberg Ruins, where Regice will battle you. Regice is located at level 30.
 
 **15\. Registeel:** Located in the Iron Ruins cave on Iron Island, Registeel is accessible only if you have Regigigas on your team. Enter the cave with a Metal Coat, and as you go up to the statue in the cave, Registeel – the level 30 Pokemon – will attack.
@@ -80,10 +72,6 @@ There are about 18 platinum legendaries Pokemon that you can obtain per game car
 **17\. Shaymin:** Another event-only legendary Pokemon Shaymin is approachable of all legendaries in Platinum. It is accessible only if you have Oak’s Letter from Nintendo Event. Go to the Route 224 with this letter to see Professor Oak standing by a white rock. Speak with him to see Marley, and just after that, Shaymin will appear run north. Follow the Pokemon up to the Flower Paradise to battle it.
 
 ![Platinum legendaries 7](https://images.wondershare.com/drfone/Platinum-legendaries-7.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **18\. Arceus:** Arceus, the level 80 Pokemon, is also an event-only Pokemon who is accessible with the Azure Flute obtained from Nintendo Event. At the Spear Pillar, you will be asked if you want to play the flute. If yes, the flute is played and a huge staircase appears. Climb up the staircase and you will find the Pokemon resting there. Go up and battle him.
 
@@ -100,7 +88,11 @@ Make sure you get these codes only from reliable websites or sources. Otherwise,
 ![Platinum legendaries 8](https://images.wondershare.com/drfone/Platinum-legendaries-8.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 2.2 Location Spoofing with Dr. Fone Virtual Location
@@ -115,9 +107,17 @@ For this illustration, we will use using Dr.fone to see how to iPhone GPS spoofi
 
 ![Platinum legendaries 9](https://images.wondershare.com/drfone/guide/drfone-home.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 2:** Tap the ‘Virtual Location’ option at Dr.Fone home screen to change the location of your device. You will see another window opened up on your phone’s screen.
 
 ![Platinum legendaries 10](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 3:** Next, click on ‘Get Started’ and select the desired fake location on the map you see on the Dr.Fone app. At the top-right corner of the window, there are three icons. Click on the third icon - Teleport. Next, tap on the desired location or enter the name of the location in the search box you see on the left side.
 
@@ -126,10 +126,6 @@ For this illustration, we will use using Dr.fone to see how to iPhone GPS spoofi
 **Step 4:** You have set your virtual location in the Dr.Fone map view. In case you find any controversy in that location, you have to go back and change your location again to be on the safe side.
 
 ![Platinum legendaries 12](https://images.wondershare.com/drfone/guide/virtual-location-06.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Step 5:** For GPS location spoofing on your Apple iPhone 11 Pro map, open your current location. You will see that your virtual address is your current location now. It’s because Dr.Fone has successfully modified the location setting of your device, not just the game.
 
@@ -151,15 +147,15 @@ According to some users, you can get Mewtwo with Pokemon Fire Red or Leaf Green.
 
 Hopefully, these comprehensive guides help you learn about all legendaries in Platinum. Advisably, using the location spoofing with a reliable app like [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) can be a great way to capture more legendary Pokemon in a much easier way.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Planning to Use a Pokemon Go Joystick on Apple iPhone 11 Pro?
 
 Pokemon Go is probably one of the most popular location-based augmented reality games that encourage us to step out. Sadly, players can’t explore their surroundings or travel to play the game all the time. That’s why they often take the assistance of a Pokemon Go joystick. While Pokemon joysticks are extremely popular, they have some downfalls as well if you don’t pick the right tool. Therefore, in this post, I will list the risks and benefits of using a Pokemon Go joystick hack to help you make up your mind.
 
 ![Pokemon Go Joystick Banner](https://images.wondershare.com/drfone/2020/2020/benefits-risks-pokemon-go-joystick-1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Part 1: Pokemon Go Joystick 101: Things to Know**
 
@@ -207,6 +203,10 @@ While there are numerous benefits of using a Pokemon Go joystick, its constant u
 
     ![Pokemon Go Account Ban](https://images.wondershare.com/drfone/2020/2020/benefits-risks-pokemon-go-joystick-3.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
     To avoid the banning of your Pokemon Go account, you can consider a “cooldown duration”. This simply suggests waiting for a specific duration before changing your location in the game.
 
     ![Pokemon Go Cooldown Duration](https://images.wondershare.com/drfone/2020/2020/benefits-risks-pokemon-go-joystick-4.jpg)
@@ -231,15 +231,15 @@ As you can see, picking a reliable Pokemon Go joystick is the most important thi
 
 ![virtual location](https://images.wondershare.com/drfone/guide/virtual-location-15.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 I hope that after following this guide, you would be able to know more about the fake GPS Pokemon Go hacks. As you can see, I have included all kinds of benefits and limitations of using a Pokemon Go joystick in this guide. If you don’t want to get your account banned for using a Pokemon joystick, then consider going with a reliable option like
 
 [Dr. Fone - Virtual Location (iOS)](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/). Without the need for jailbreaking, it will let you enjoy a dedicated GPS joystick and simulate your device movement remotely.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Unova Stone Pokémon Go Evolution List and How Catch Them For Apple iPhone 11 Pro
 
@@ -247,23 +247,23 @@ Pokémon Go players anticipate new evolutions with much excitement. This is beca
 
 ## Part 1. Unova Stone Evolution
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### What is Unova Stone
 
 ![Unova Stone](https://images.wondershare.com/drfone/2020/unova-stone.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Unova Stone is one of the latest evolutions added in Unova's region to the game of Pokémon. It is a black and white item that is used to evolve certain Pokémon, specifically from Unova. This is akin Sinnoh Stone that was used to evolve Pokémon from Sinnoh Regio. However, Unova Stone is only capable of evolving Generation 5 Pokémon from the Unova region. It means you cannot use Unova Stones to evolve Pokémon from previous generations. Even though there are plenty of emerging Pokémon and Shiny Pokémon worth collecting, there are scores of trainers who understand the real value of adding Unova Stones to their inventory. By accumulating them, they can seamlessly achieve evolution with some Pokémon in the Unova region.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### How Can you Obtain Unova Stone in Pokémon Go?
 
 Obtaining Unova Stone in Pokémon is now possible through research breakthroughs. But what exactly is research breakthroughs? Research breakthroughs are when a trainer completes seven research tasks with every research panning a day each. Here, the trainer only needs to complete the seven research pieces but not for seven straight days. This means it is possible to skip a day then resume your research until you complete seven of them without fail.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Which Pokémon Require Unova Stone to Evolve in Pokémon Go?
 
@@ -301,10 +301,6 @@ Panpour is a water type Pokémon also initially found in the Unova region. This 
 
 Unova Stone is a great evolution asset in Pokémon Go generation 5. You are already aware that you need to make a filed research breakthrough to obtain Unova Stones. But what are some of the hacks and tricks that can make you easily claim the Unova Stones?
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 1\. Use iOS Spoofing tool-Dr. Fone Virtual Location
 
 [Dr. Fone Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) is a powerful iOS spoofing tool that can be used to fake your GPS location and hit field research weekly breakthrough with ease. You can teleport to whatever place you want or simulate movements between two places. These places can be real or simply any paths you draw. This makes it ideal for location-based games such as Pokémon Go. If you want to fake your location and trick Pokémon Go to get a research breakthrough with ease using Dr. Fone Virtual Location, then follow the steps below.
@@ -324,6 +320,10 @@ Unova Stone is a great evolution asset in Pokémon Go generation 5. You are alre
 **Step 4.** Finally, click "Move Here" on the dialog box that appears to move to the place you chose.
 
 ![virtual location 06](https://images.wondershare.com/drfone/guide/virtual-location-06.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2\. Use VPN
 
@@ -347,14 +347,19 @@ This is a desktop-based spoofing tool which can help you fake your location. It 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-capture.techidaily.com/new-2024-approved-cam-functioning-post-fix-triumph-for-obs/"><u>[New] 2024 Approved Cam Functioning Post-Fix Triumph for OBS</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-facebook-ad-evolution-the-hottest-trends-to-watch-for-2024/"><u>[New] Facebook Ad Evolution The Hottest Trends to Watch for 2024</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/new-proven-strategies-for-premium-picture-acquisition-gratis/"><u>[New] Proven Strategies for Premium Picture Acquisition Gratis</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/boosting-engagement-learning-to-modify-account-numbers-for-2024/"><u>Boosting Engagement Learning to Modify Account Numbers for 2024</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/excellent-image-quality-with-canon-elph-190/"><u>Excellent Image Quality with Canon ELPH 190</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/how-to-optimize-your-pcps4-settings-stop-assassins-creed-syndicate-from-crashing/"><u>How to Optimize Your PC/PS4 Settings: Stop Assassin's Creed Syndicate From Crashing</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-can-honor-play-8tmirror-share-to-pc-drfone-by-drfone-android/"><u>In 2024, How Can Honor Play 8TMirror Share to PC? | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/stop-the-pops-and-cracks-a-step-by-step-fix-for-logitech-g-pro-x-noise-on-your-pc-tips-for-202amoon/"><u>Stop the Pops and Cracks: A Step-by-Step Fix for Logitech G Pro X Noise on Your PC (Tips for 202Amoon</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/the-definitive-guide-to-using-stellar-file-eraser-5-on-macos-easy-scheduled-deletions/"><u>The Definitive Guide to Using Stellar File Eraser 5 on macOS - Easy Scheduled Deletions</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-critically-acclaimed-vr-film-selections-for-2024/"><u>[New] Critically Acclaimed VR Film Selections for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-how-to-get-a-youtube-video-trending/"><u>[Updated] How to Get a YouTube Video Trending</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-maximizing-impact-partnering-with-influencers-on-youtube/"><u>[Updated] In 2024, Maximizing Impact Partnering with Influencers on YouTube</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/11-best-pokemon-go-spoofers-for-gps-spoofing-on-apple-iphone-se-2020-drfone-by-drfone-virtual-ios/"><u>11 Best Pokemon Go Spoofers for GPS Spoofing on Apple iPhone SE (2020) | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-content-creators-preferences-vimeo-or-youtube/"><u>2024 Approved Content Creators' Preferences Vimeo or YouTube?</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/how-can-i-get-more-stardust-in-pokemon-go-on-apple-iphone-xs-max-drfone-by-drfone-virtual-ios/"><u>How can I get more stardust in pokemon go On Apple iPhone XS Max? | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/how-to-enter-the-ispoofer-discord-server-on-apple-iphone-13-pro-max-drfone-by-drfone-virtual-ios/"><u>How to enter the iSpoofer discord server On Apple iPhone 13 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-apple-iphone-xs-max-drfone-by-drfone-virtual-ios/"><u>In 2024, What is the best Pokemon for pokemon pvp ranking On Apple iPhone XS Max? | Dr.fone</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/in-depth-solutions-how-to-restore-functionality-to-broken-microphones/"><u>In-Depth Solutions: How to Restore Functionality to Broken Microphones</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/speedy-teams-smart-systems-for-businesses/"><u>Speedy Teams, Smart Systems for Businesses</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/the-best-ispoofer-alternative-to-try-on-apple-iphone-14-plus-drfone-by-drfone-virtual-ios/"><u>The Best iSpoofer Alternative to Try On Apple iPhone 14 Plus | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/the-best-ispoofer-alternative-to-try-on-apple-iphone-14-pro-max-drfone-by-drfone-virtual-ios/"><u>The Best iSpoofer Alternative to Try On Apple iPhone 14 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://os-tips.techidaily.com/top-12-itunes-substitutes-best-options-for-windows-and-mac-users/"><u>Top 12 iTunes Substitutes : Best Options for Windows & Mac Users</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/unique-features-comparing-microsoft-vs-native-user-accounts-in-windows/"><u>Unique Features: Comparing Microsoft vs Native User Accounts in Windows</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Will Pokémon Go Ban the Account if You Use PGSharp On Apple iPhone 6s Plus | Dr.fone
-date: 2025-01-17T01:50:52.221Z
-updated: 2025-01-22T05:40:06.363Z
+date: 2025-01-28T20:09:34.475Z
+updated: 2025-01-29T20:02:58.242Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -22,10 +22,6 @@ The best location spoofer for android is PGSharp which you can install on your d
 There are many fake GPS apps available that you can install, but only a few of them are safe and secure. PGSharp is best for android as it is a safe and secure app for spoofing Pokémon Go. And, if you use it, the chances of getting a ban are almost negligible.
 
 In this article, we will discuss more PGSharp and ban.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 1: Why Pokémon Go Account Get Banned
 
@@ -50,6 +46,10 @@ Do not spoof or change location frequently, as this may bring you in the radar o
 
 Use an app with a real map-like interface that is difficult to notice from Niantic.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2.1 Spoof Pokémon with PGSharp without a ban
 
 To spoof location with PGSharp, your first need to install it from the Google Play Store. In the search bar, type “ PGSharp” and click on the install icon.
@@ -61,6 +61,10 @@ Now, when it gets installed, you can opt for a free trial or paid option. For a 
 To get a free beta key, go to the official site of PGSharp and look for a beta key. You may see an “out of stock” message, which means that the server has been changed. Now, you have to check the site for the beta key again. It is quite difficult to find the beta key in the first attempt.
 
 ![drfone](https://images.wondershare.com/drfone/article/2020/09/PGSharp-ban-4.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Once you get the key, you can click on finish and can make payment in virtual currency. Also, you can fake your personal details as it is a beta key.
 
@@ -86,10 +90,6 @@ Spoofing is not legal, thus to spoof Pokemon Go, you need to use the PTC account
 
 Also, make sure to uninstall the official account to spoof the location to help you catch more Pokémon in less time.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 4: Why Opt Dr.Fone Virtual Location?
 
 Spoofing on the iPhone is a little more difficult than on Android. So, if you own an iPhone, you can use [Dr.Fone - Virtual Location app](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) to fake location. It is easy to use and easy to install. Further, this app is 100% safe to install on the iPhone as it causes no threat to your device or data.
@@ -101,10 +101,6 @@ Dr.Fone - Virtual Location also saves you from a ban and doesn’t require jailb
 To use it, you will need to install it on your device from the official site or click the "_Try It Free_" button below directly. Once installed, connect your Apple iPhone 6s Plus to your computer and click on get the started icon. Now you have the world map-like interface where you can search for any desired location to spoof. So, all in all, it is very easy to use for a novice too. The best part is that it causes no ban like other unsafe spoofing apps.
 
 ![drfone](https://images.wondershare.com/drfone/article/2022/11/pgsharp-ban.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -122,11 +118,19 @@ In this article, we will talk about the amazing benefits of Pokemon Go streaming
 
 In all actuality, Pokemon Go streaming is not different from other forms of live game streaming. You just play the game as usual and interact with your viewers throughout the duration. However, we cannot deny that Pokemon Go streaming has a more challenging format compared to others. Why so? Simply because the game itself requires large body movements and a few physical activities. But don’t sweat it. Streaming Pokemon Go online comes with tons of benefits. Check out the list below to find what exactly you can get from this endeavor.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### It can provide an alternative source of income
 
 ![pokemon go streaming live](https://images.wondershare.com/drfone/article/2024/01/pokemon-go-livestream-1.JPG)
 
 We all know that video content online can be monetized through in-feed advertisements and sponsorships. The same thing goes for Pokemon Go streaming. You can earn a specific amount from every ad that appears on your livestream. Don’t worry. It doesn’t take much time and effort to implement. Most of the time, you just need to flash the promotional materials during the broadcast.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### It can help you meet new friends or even famous people in the industry
 
@@ -143,7 +147,7 @@ It’s true to say that multi-tasking is the core of Pokemon Go streaming. Of co
 Fate works in mysterious ways. We never know what’s waiting ahead. One day, you’re just an ordinary Pokemon Go player who enjoys catching Pokemon around the neighborhood. The next, you’re a star trainer competing globally for championship events. That’s possible to happen with Pokemon Go streaming as your ultimate stepping stone. Hence, don’t ever underestimate the power of this venture.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Live-Stream Pokemon Go on Mobile Phones
@@ -153,10 +157,6 @@ The primary mechanics of Pokemon Go involve a lot of outdoor strolling and physi
 ### Check your mobile device and internet connection very well
 
 ![smartphone and internet power](https://images.wondershare.com/drfone/article/2024/01/pokemon-go-livestream-3.JPG)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 It’s fair to say that Pokemon Go streaming is not extremely particular when it comes to equipment. You can actually go live under natural daylight and document your adventure as it is. However, keep in mind that you’re simultaneously doing two different tasks in this regard. One is streaming, and the other is playing. Therefore, ensure your mobile device and internet connection can handle heavy workloads as such. A smartphone with 8 GB RAM (or higher) and an internet connection of at least 25 Mbps is highly recommended.
 
@@ -170,19 +170,15 @@ Of course, you can bring a full computer setup outside while exploring around. T
 
 ![set up live stream](https://images.wondershare.com/drfone/article/2024/01/pokemon-go-livestream-5.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Set up the livestream accordingly. Start by writing a catchy title for your broadcast. Make sure that it clearly states the content and the intent of your Pokemon Go livestream. After that, add some keywords and specify the language of your stream. Yes. It’s very important because it will help interested viewers find you on the internet. Lastly, check the audio output. Adjust the volume clarity if necessary. Once you’re done, it’s time to hit the Go Live button and say “Hi” to the world.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Start playing Pokemon Go
 
 ![play pokemon live](https://images.wondershare.com/drfone/article/2024/01/pokemon-go-livestream-6.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Play Pokemon Go as if nobody is watching you online. Simply put, carry on with your usual gaming routine. Don’t let the audience distract you from the game. However, make sure that you interact with them as you go along. Try talking while you’re on the ground and catching Pokemon nearby. Respond to the comments once in a while. The point is that you have to extend the actual Pokemon Go experience to them. Trust yourself. You can definitely do that.
 
@@ -217,7 +213,7 @@ Is it possible to livestream Pokemon Go from the comfort of your own home? The s
 ![movement simulation ongoing](https://images.wondershare.com/drfone/guide/virtual-location-10.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -233,6 +229,10 @@ Giovani is the grand commander of the Team Go Rocket crime syndicate. The big bo
 ## Part 1. How to Find the Giovani in Pokemon
 
 Locating Giovani’s hideout is never a walk in the park as you need to complete some daunting tasks. A detailed explanation of each task is given below:
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 1\. A Troubling Situation Task
 
@@ -276,6 +276,10 @@ After completing the quest above, Giovani Special Research or Looming in the Sha
 
 On completing one research step, you will be given a reward called the Super Rocket Radar. Like the Rocket Radar, the Super Rocket Radar can be equipped and unequipped from your Bag. This reward doesn't only show Giovani’s hideout, it also shows some of his Grunts hideouts.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2. What does the Pokemon Go Giovani Counter Contain?
 
 Giovani remains the toughest beast amongst all the Team Go Rocket Leaders. When you find him in the game, be prepared to face his wrath. To defeat him, you need a powerful team.
@@ -303,10 +307,6 @@ Now you know the best Giovani Pokemon Go counters to use against each lineup of 
 ## Part 3. Tips to Beat Giovani in Pokemon Go
 
 ![giovani](https://images.wondershare.com/drfone/2020/giovani.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Just as you did against Team Go Rocket Leaders, Arlo, Cliff, and Sierra, you need a Pokemon stronger than two of Giovani’s. With that, you can use the same Pokemon twice, thereby keeping your choice for Legendary Shadow Pokemon safe till you need it to beat Giovani.
 
@@ -339,7 +339,7 @@ Click on Get Started to change your location.
 ![virtual location 04](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 4:** The interface below will pop up on your screen. Click on the Move Here icon to teleport to your chosen location.
@@ -362,17 +362,20 @@ And now you are good to have one of the strongest Pokemon on your team when figh
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-direct.techidaily.com/new-action-ammo-face-off-prodigy-cameras-compared-black-vs-session-for-2024/"><u>[New] Action Ammo Face-Off Prodigy Cameras Compared – Black vs Session for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-top-5-audio-enhanced-image-capture-creators/"><u>[New] Top 5 Audio-Enhanced Image Capture Creators</u></a></li>
-<li><a href="https://fox-sys.techidaily.com/windowsppt/"><u>馬上解決！在Windows系統下PPT失去保存功能時的辦法</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/comprehensive-microsoft-bluetooth-driver-support-latest-download-options-for-windows-users-win-101187-compatible-solutions/"><u>Comprehensive Microsoft Bluetooth Driver Support - Latest Download Options for Windows Users: Win 10/11/8/7 Compatible Solutions</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-change-honor-x9a-lock-screen-password-by-drfone-android/"><u>How To Change Honor X9a Lock Screen Password?</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-change-location-on-facebook-dating-for-your-infinix-hot-30i-drfone-by-drfone-virtual-android/"><u>How to Change Location On Facebook Dating for your Infinix Hot 30i | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/how-to-enter-the-ispoofer-discord-server-on-apple-iphone-14-plus-drfone-by-drfone-virtual-ios/"><u>How to enter the iSpoofer discord server On Apple iPhone 14 Plus | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/how-to-fix-pokemon-go-route-not-working-on-apple-iphone-13-pro-max-drfone-by-drfone-virtual-ios/"><u>How to Fix Pokemon Go Route Not Working On Apple iPhone 13 Pro Max? | Dr.fone</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-obs-upgrade-tips-clearer-footage/"><u>In 2024, OBS Upgrade Tips Clearer Footage</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-apple-iphone-7-drfone-by-drfone-virtual-ios/"><u>In 2024, Unova Stone Pokémon Go Evolution List and How Catch Them For Apple iPhone 7 | Dr.fone</u></a></li>
-<li><a href="https://blog-min.techidaily.com/step-by-step-tutorial-transforming-twitter-videos-into-gif-format-for-windows-users/"><u>Step-by-Step Tutorial: Transforming Twitter Videos Into GIF Format for Windows Users</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/where-is-the-best-place-to-catch-dratini-on-apple-iphone-13-pro-drfone-by-drfone-virtual-ios/"><u>Where Is the Best Place to Catch Dratini On Apple iPhone 13 Pro | Dr.fone</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-family-fantasy-films-this-summers-best-10-classics/"><u>[New] Family Fantasy Films This Summer's Best 10 Classics</u></a></li>
+<li><a href="https://win11.techidaily.com/advanced-imaging-separating-subjects-from-surroundings/"><u>Advanced Imaging: Separating Subjects From Surroundings</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/catchemall-celebrate-national-pokemon-day-with-virtual-location-on-apple-iphone-xs-max-drfone-by-drfone-virtual-ios/"><u>CatchEmAll Celebrate National Pokémon Day with Virtual Location On Apple iPhone XS Max | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/class-action-lawsuit-claims-t-mobiles-promised-price-match-policy-is-deceptive/"><u>Class-Action Lawsuit Claims T-Mobile's Promised Price Match Policy Is Deceptive</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/exploring-the-lags-chatgpt-4-versus-its-predecessor-gpt-35/"><u>Exploring the Lags: ChatGPT-4 Versus Its Predecessor GPT-3.5</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-all-you-need-to-know-about-mega-greninja-for-apple-iphone-13-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, All You Need To Know About Mega Greninja For Apple iPhone 13 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-to-use-pokemon-go-joystick-on-apple-iphone-7-drfone-by-drfone-virtual-ios/"><u>In 2024, How to use Pokemon Go Joystick on Apple iPhone 7? | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-ipogo-will-be-the-new-ispoofer-on-apple-iphone-se-2020-drfone-by-drfone-virtual-ios/"><u>In 2024, iPogo will be the new iSpoofer On Apple iPhone SE (2020)? | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-most-asked-questions-about-pokemon-go-battle-league-rewards-on-apple-iphone-14-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, Most Asked Questions about Pokemon Go Battle League Rewards On Apple iPhone 14 Plus | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-apple-iphone-se-2022-drfone-by-drfone-virtual-ios/"><u>In 2024, Unova Stone Pokémon Go Evolution List and How Catch Them For Apple iPhone SE (2022) | Dr.fone</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/new-2024-approved-the-art-of-fashioning-slow-motions-has-remained-popular-ever-since-read-this-article-to-learn-how-to-do-slow-mo-in-capcut-and-other-powerf/"><u>New 2024 Approved The Art of Fashioning Slow Motions Has Remained Popular Ever Since. Read This Article to Learn How to Do Slow-Mo in CapCut and Other Powerful Tools</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1818259-9781782797166-of-course/"><u>Of Course! | Free Book</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/cutter-studio-for-2024/"><u>PixelCutter Studio for 2024</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/the-art-of-manipulating-the-windows-11-registry-to-unlock-themes/"><u>The Art of Manipulating the Windows 11 Registry to Unlock Themes</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/what-pokemon-evolve-with-a-dawn-stone-for-apple-iphone-7-drfone-by-drfone-virtual-ios/"><u>What Pokémon Evolve with A Dawn Stone For Apple iPhone 7? | Dr.fone</u></a></li>
 </ul></div>
 

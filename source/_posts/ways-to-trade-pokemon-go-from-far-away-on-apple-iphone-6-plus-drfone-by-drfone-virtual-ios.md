@@ -1,7 +1,7 @@
 ---
 title: Ways to trade pokemon go from far away On Apple iPhone 6 Plus? | Dr.fone
-date: 2025-01-17T03:07:12.187Z
-updated: 2025-01-21T20:17:12.978Z
+date: 2025-01-23T16:43:04.737Z
+updated: 2025-01-29T18:12:34.863Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -47,19 +47,11 @@ Now on the interface, you'd see a map with your location highlighted on it. If y
 
 ![virtual location 03](https://images.wondershare.com/drfone/guide/virtual-location-03.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 4: Activate Teleport Mode**
 
 Subsequently, activate the "teleport mode" by clicking the icon shown in the image. Now enter the location to which you want your fake location to be set to in the upper left field. Now click on "go"
 
 ![virtual location 04](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Step 5: Change Location**
 
@@ -86,9 +78,17 @@ However, trading Pokemons in Pokemon go could be slightly tricky without having 
 
 You need a Special Trade whenever you wish to trade a legendary Pokemon or a shiny Pokemon in Pokemon Go. These pokemon are very rare to find and hence you won’t want to trade these rare Pokemons very often, however, you can trade a rare Pokemon only once per day. To trade a rare Pokemon would also need to be a Great or Best friend, two of the highest levels of friendship in the game Pokemon go. To increase your friendship level you need to battle and trade more and more. It'll take quite a bit of time to reach that stature of a friendship level. This could cost as much as one million, this amount will however decrease with increasing friendship levels.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Final Words
 
 Trading in Pokemon go was introduced in recent times and had now become one of the most integral factors of the game. Pokemon go trading has changed the gaming trend. However, you could get an upper hand by using a virtual location changer such as [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) . This can help you to even trade pokemons seamlessly with friends staying at far-off places. Using the pokemon trade feature and evolving pokemons is a smart and handy way to progress further in the game. As a Pokemon go player, you must try it out!
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Will Pokémon Go Ban the Account if You Use PGSharp On Apple iPhone 6 Plus
 
@@ -116,7 +116,7 @@ The following are the reasons that may cause to ban your account:
 If you think your account may get terminated, you should keep the terms and conditions of the game in mind. However, you can spoof location smartly with safe fake GPS like PGSharp for Android and Dr.Fone virtual location iOS.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: Thumb Rule for spoofing with PGSharp
@@ -138,10 +138,6 @@ Now, when it gets installed, you can opt for a free trial or paid option. For a 
 To get a free beta key, go to the official site of PGSharp and look for a beta key. You may see an “out of stock” message, which means that the server has been changed. Now, you have to check the site for the beta key again. It is quite difficult to find the beta key in the first attempt.
 
 ![drfone](https://images.wondershare.com/drfone/article/2020/09/PGSharp-ban-4.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Once you get the key, you can click on finish and can make payment in virtual currency. Also, you can fake your personal details as it is a beta key.
 
@@ -165,10 +161,6 @@ Spoofing is not legal, thus to spoof Pokemon Go, you need to use the PTC account
 
 ![drfone](https://images.wondershare.com/drfone/article/2020/09/PGSharp-ban-6.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Also, make sure to uninstall the official account to spoof the location to help you catch more Pokémon in less time.
 
 ## Part 4: Why Opt Dr.Fone Virtual Location?
@@ -183,9 +175,17 @@ To use it, you will need to install it on your device from the official site or 
 
 ![drfone](https://images.wondershare.com/drfone/article/2022/11/pgsharp-ban.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 Pokemon Go is a very interesting game and brings a lot of fun while playing. With reliable and trusted apps like PGsharp for android, you can spoof it without a ban. For iOS, [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) app is best for fake GPS without a ban. Try these apps now to get more fun in the game without getting a ban.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## A Comprehensive Guide to Mastering iPogo for Pokémon GO On Apple iPhone 6 Plus
 
@@ -208,10 +208,6 @@ Ideally, iPogo is a dedicated iOS app that can help you play Pokemon Go remotely
 
 ![iPogo iOS App](https://images.wondershare.com/drfone/2020/202010/2021/guide-for-ipogo-1.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Price**: The basic version of iPogo is available for free that would let you teleport your location in Pokemon Go. To access more features of iPogo for Pokemon Go, you can get its premium subscription for $4.99 per month.
 
 ## Part 2: How to Use iPogo to Improve your Pokemon Go Gameplay?
@@ -225,7 +221,7 @@ At first, you can just jailbreak your device by using any freely available resou
 ![Download iPogo IPA](https://images.wondershare.com/drfone/2020/202010/2021/guide-for-ipogo-2.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 2: Set up your Pokemon Go account**
@@ -243,7 +239,7 @@ You can further use the filter option to search for specific Pokemons on the map
 ![iPogo Location Spoofing](https://images.wondershare.com/drfone/2020/202010/2021/guide-for-ipogo-4.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3: Why you Should Look for iPogo Alternatives?
@@ -255,10 +251,6 @@ Even though iPogo would let you access all kinds of Pokemon Go hacks, it has num
 - Ideally, iPogo for Pokemon Go is against the terms and conditions of Niantic and its constant use can cause a permanent ban on your account.
 - Since the installation process for the iPogo iOS app is a bit complicated, it would need prior technical experience.
 - Please note that iPogo is not a reliable service and it can stop working anytime (like [iSpoofer](https://drfone.wondershare.com/virtual-location/ispoofer-shut-down.html)). This can cause a sudden loss of your money and progress in Pokemon Go.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 4: How to Spoof iPhone Location without Jailbreak Using the Best iPogo Alternative?
 
@@ -272,6 +264,10 @@ Simply connect your Apple iPhone 6 Plus to the computer and launch the Dr.Fone �
 
 ![iPogo Location Spoofing](https://images.wondershare.com/drfone/guide/vl-connect-ios-1.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 2: Spoof your Apple iPhone 6 Plus location to anywhere you like**
 
 The application will automatically detect and display the present location of your device. You can now click on the Teleport Mode feature from the top to spoof your Apple iPhone 6 Plus’s location.
@@ -279,12 +275,16 @@ The application will automatically detect and display the present location of yo
 ![virtual-location](https://images.wondershare.com/drfone/guide/virtual-location-03.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Afterward, you can just enter the name, address, or coordinates of the target location on the search bar and load it on the map.
 
 ![virtual location 04](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 You can now adjust the location on the map by moving the pin around or even zoom in/out. Lastly, click on the “Move Here” button and wait as your device’s location would be updated on Pokemon Go.
 
@@ -320,20 +320,21 @@ I’m sure that after reading this post, you would be able to know more about iP
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-stabilizing-shaky-images-a-realistic-benefit-or-hype-for-2024/"><u>[New] Stabilizing Shaky Images A Realistic Benefit or Hype for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-shift-photo-realism-to-a-more-distinctive-outer-glow-psx/"><u>2024 Approved Shift Photo Realism to a More Distinctive Outer Glow PSX</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/ais-dark-side-5-methods-enabling-cybercrime/"><u>AI's Dark Side: 5 Methods Enabling Cybercrime</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/all-you-need-to-know-about-mega-greninja-for-apple-iphone-12-pro-drfone-by-drfone-virtual-ios/"><u>All You Need To Know About Mega Greninja For Apple iPhone 12 Pro | Dr.fone</u></a></li>
-<li><a href="https://article-files.techidaily.com/beat-infused-imagery-mobile-video-making-on-iphone-for-2024/"><u>Beat-Infused Imagery Mobile Video Making on iPhone for 2024</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/ex-tech-giant-employees-forge-new-paths-as-startup-founders-rivaling-previous-companies-exclusive-on-zdnet/"><u>Ex-Tech Giant Employees Forge New Paths as Startup Founders, Rivaling Previous Companies | Exclusive on ZDNET</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-apple-iphone-x-drfone-by-drfone-virtual-ios/"><u>In 2024, Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Apple iPhone X | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-does-the-stardust-trade-cost-in-pokemon-go-on-apple-iphone-12-mini-drfone-by-drfone-virtual-ios/"><u>In 2024, How does the stardust trade cost In pokemon go On Apple iPhone 12 mini? | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-apple-iphone-se-drfone-by-drfone-virtual-ios/"><u>In 2024, What is the best Pokemon for pokemon pvp ranking On Apple iPhone SE? | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-apple-iphone-xs-drfone-by-drfone-virtual-ios/"><u>Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Apple iPhone XS | Dr.fone</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/master-kinemasters-features-with-ease-ranked-by-best-opponent-games/"><u>Master KineMaster's Features with Ease, Ranked by Best Opponent Games</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/planning-to-use-a-pokemon-go-joystick-on-apple-iphone-6-drfone-by-drfone-virtual-ios/"><u>Planning to Use a Pokemon Go Joystick on Apple iPhone 6? | Dr.fone</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/step-by-step-guide-linking-airpods-to-your-macbook-air/"><u>Step-by-Step Guide: Linking AirPods to Your MacBook Air</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/which-pokemon-can-evolve-with-a-moon-stone-for-apple-iphone-15-plus-drfone-by-drfone-virtual-ios/"><u>Which Pokémon can Evolve with a Moon Stone For Apple iPhone 15 Plus? | Dr.fone</u></a></li>
-<li><a href="https://win-online.techidaily.com/1728477506575-windows-11/"><u>Windows 11でのオフラインファイル利用可能か?有効/無効化手順詳細</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-ignite-engagement-how-to-employ-youtubes-featured-channel-spotlighting-strategies/"><u>2024 Approved Ignite Engagement How to Employ YouTube’s Featured Channel Spotlighting Strategies</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/a-comprehensive-guide-to-mastering-ipogo-for-pokemon-go-on-apple-iphone-se-2020-drfone-by-drfone-virtual-ios/"><u>A Comprehensive Guide to Mastering iPogo for Pokémon GO On Apple iPhone SE (2020) | Dr.fone</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/analyzing-apples-xr-headset-popularity-insights-from-visionpro-shipping-dates-a-deep-dive/"><u>Analyzing Apple's XR Headset Popularity: Insights From VisionPro Shipping Dates – A Deep Dive</u></a></li>
+<li><a href="https://fake-location.techidaily.com/does-life360-notify-when-you-log-out-on-nokia-105-classic-drfone-by-drfone-virtual-android/"><u>Does Life360 Notify When You Log Out On Nokia 105 Classic? | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/here-are-some-of-the-best-pokemon-discord-servers-to-join-on-apple-iphone-15-drfone-by-drfone-virtual-ios/"><u>Here are Some of the Best Pokemon Discord Servers to Join On Apple iPhone 15 | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-apple-iphone-se-2020-drfone-by-drfone-virtual-ios/"><u>In 2024, 15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Apple iPhone SE (2020) | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-where-is-the-best-place-to-catch-dratini-on-apple-iphone-8-drfone-by-drfone-virtual-ios/"><u>In 2024, Where Is the Best Place to Catch Dratini On Apple iPhone 8 | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-apple-iphone-8-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, Will Pokémon Go Ban the Account if You Use PGSharp On Apple iPhone 8 Plus | Dr.fone</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/new-2024-approved-10-best-podcast-recording-software/"><u>New 2024 Approved 10 Best Podcast Recording Software</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/rise-above-the-noise-nine-strategies-for-instagram-prominence/"><u>Rise Above the Noise Nine Strategies for Instagram Prominence</u></a></li>
+<li><a href="https://program-issues.techidaily.com/solution-overcoming-download-and-installation-problems-for-age-of-empires-iv-in-the-microsoft-marketplace/"><u>Solution: Overcoming Download and Installation Problems for Age of Empires IV in the Microsoft Marketplace</u></a></li>
+<li><a href="https://win-answers.techidaily.com/troubleshooting-snap-camera-solutions-for-missing-camera-access/"><u>Troubleshooting Snap Camera - Solutions for Missing Camera Access</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/what-pokemon-evolve-with-a-dawn-stone-for-apple-iphone-se-2022-drfone-by-drfone-virtual-ios/"><u>What Pokémon Evolve with A Dawn Stone For Apple iPhone SE (2022)? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/what-pokemon-evolve-with-a-dawn-stone-for-xiaomi-13t-pro-drfone-by-drfone-virtual-android/"><u>What Pokémon Evolve with A Dawn Stone For Xiaomi 13T Pro? | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/which-pokemon-can-evolve-with-a-moon-stone-for-apple-iphone-8-plus-drfone-by-drfone-virtual-ios/"><u>Which Pokémon can Evolve with a Moon Stone For Apple iPhone 8 Plus? | Dr.fone</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/1726030461870-windows-10mp4/"><u>Windows 10にて安定したパフォーマンスでMP4動画統合テクニック</u></a></li>
 </ul></div>
 

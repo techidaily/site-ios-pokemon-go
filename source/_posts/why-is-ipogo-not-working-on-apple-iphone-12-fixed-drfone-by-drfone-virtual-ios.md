@@ -1,7 +1,7 @@
 ---
 title: Why is iPogo not working On Apple iPhone 12? Fixed | Dr.fone
-date: 2025-01-20T07:33:10.915Z
-updated: 2025-01-21T16:17:37.446Z
+date: 2025-01-24T17:26:48.753Z
+updated: 2025-01-29T19:52:36.006Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -63,15 +63,15 @@ It is often said that short cuts can cut you short or in this case, hacked! Disr
 
 If using the iPogo mod to enhance your gaming experience on Pokémon Go seem less appealing with all the added hassle then there is a better alternative for you to use. You can employ a much simpler and easier to install GPS mocking application like Wondershare’s [Dr.Fone Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/). It offers amazing user-friendly features like speed modulation, joystick control and map routing with none of the drawbacks that you had to previously overcome. It is a highly efficient virtual location tool that can be used to conveniently spoof your location without running the risk of detection on a GPS based game like Pokémon Go.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Primary Features of Dr. Fone
 
 - Adjust the speed of travel with three speed modes, like walking, cycling or even driving.
 - Manually move your GPS on the map freely using a virtual joystick in a 360 degree direction.
 - Simulate your avatar’s movements to travel on a determined route of your choice.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Step by Step Tutorial
 
@@ -89,6 +89,10 @@ Now, grab your Apple iPhone 12 and get it connected with the PC using the lighte
 
 ![virtual location 01](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 3: Check Location**
 
 You will notice a map on the screen now. As it comes, you got to click on ‘Centre On’ to accurately pin point the GPS to your location.
@@ -101,6 +105,10 @@ Now, you are required to turn on the ‘teleport mode’. To do this, simply cli
 
 ![virtual location 04](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 5: Start Teleporting**
 
 Once you enter the location, a pop-up will appear. Here, you can see the distance of the location you have chosen. Click on ‘Move here’ in the pop up box and you are good to go.
@@ -112,10 +120,6 @@ Now, the location is changed. You can now open any location based app on your Ap
 ## Conclusion
 
 Pokémon Go Plus mods like iPogo involves a certain degree of care in order to have a healthy game experience. Be sure to take pre-emptive measures suggested in this article and you would notice your device running smoothly in no time.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Will Pokémon Go Ban the Account if You Use PGSharp On Apple iPhone 12
 
@@ -142,6 +146,10 @@ The following are the reasons that may cause to ban your account:
 
 If you think your account may get terminated, you should keep the terms and conditions of the game in mind. However, you can spoof location smartly with safe fake GPS like PGSharp for Android and Dr.Fone virtual location iOS.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2: Thumb Rule for spoofing with PGSharp
 
 Once you decided to spoof Pokémon Go, you need to install a reliable and secure spoofing app. Also, you should not use your main account while spoofing. With PGSharp, you need to create a PTC account to safely spoof the game.
@@ -162,10 +170,6 @@ To get a free beta key, go to the official site of PGSharp and look for a beta k
 
 ![drfone](https://images.wondershare.com/drfone/article/2020/09/PGSharp-ban-4.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Once you get the key, you can click on finish and can make payment in virtual currency. Also, you can fake your personal details as it is a beta key.
 
 ![drfone](https://images.wondershare.com/drfone/article/2020/09/PGSharp-ban-5.jpg)
@@ -175,10 +179,6 @@ Now, once you got the beta key, fill it in the login details to use the PGSharp.
 The best part is that the app needs no root or jailbreak your device, making it a secure fake GPS tool for android.
 
 Your account will not get banned when you use PGSharp to spoof Pokémon Go with little smartness.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 2.2 Maximum Safe Distance to Teleport with PGSharp
 
@@ -231,6 +231,10 @@ Yes, you read it right! With [Pokemon Go spoofing](https://drfone.wondershare.co
 
 ![Pokemon Go 100 IV Map introduction](https://images.wondershare.com/drfone/2023/virtuallocation/Pokemon-Go-100-IV-Map-1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 In the following parts, we will discuss in detail the possible ways to catch Pokémon Go IV 100 on the map, including location spoofer.
 
 Keeping reading!
@@ -239,6 +243,10 @@ Keeping reading!
 
 Before you put effort into catching the Pokémon IV 100 map, you should have knowledge about which Pokémon has a stat of 100 IV. Following are the ways with which you can check the IVs of Pokémon in the Pokémon Go game.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2.1 Check IVs within the app
 
 You can check the true percentages of your characters’ IVs in the gaming app itself. Now, if you use the appraisal system of the app, your team leader will show the stats of each Pokémon and can give it a star rating as well.
@@ -246,7 +254,7 @@ You can check the true percentages of your characters’ IVs in the gaming app i
 Further, you can also click on the arrows on the left and right to see the stats of the next Pokémon.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 2.2 Know Pokémon IV using search filters
@@ -258,7 +266,7 @@ Pokémon Go app has a search feature that you can use to know the exact IV of Po
 Now check the Pokémon by their star rating, as this is the easy way to know about the IVs of characters. Type “4\*” in the search bar, and you will see characters with a 4-star rating. Mostly a star Pokémon are a 100 IV Pokémon map.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3: Tips to Catch 100 IV Pokémon in the Game
@@ -283,10 +291,6 @@ Trading is one way to improve the chances of catching the 100 IV Pokémon Go map
 
 But, again, trading Pokémon is not very helpful. If you only rely on trading, you may have to wait for a long time for perfect IVs.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 4: The 5 Best 100 IV Pokémon Go Maps to Try
 
 Apart from the above-listed tips, you can also use a **100 IV Pokémon Go map** to check the spawning location of these Pokémon. The populated areas and cities heavily rely on reporting rare Pokémon locations. To know the location of the best Pokémon, you can use Pokémon maps. With the maps, you can get live locations of all the rarest and 100 IV Pokémon Go maps.
@@ -301,10 +305,6 @@ The Silph Road is the most extensive crowd-sourced resource for Pokémon Go that
 
 ![The Silph Road](https://images.wondershare.com/drfone/article/2024/03/the-silph-road-map.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 2\. Pokémon Go Map
 
 Pokémon Go Map is another Pokémon Go 100 IV map for you if you want to quickly find and catch rare Pokémon without spending hours wandering around. It is free to use and regularly updated with new features and bug fixes. You can customize your search preferences and receive notifications when new Pokémon appear in your area. You also can connect your game account to the map and chat with other characters in the game. This map has a built-in chat function.
@@ -313,17 +313,9 @@ Pokémon Go Map is another Pokémon Go 100 IV map for you if you want to quickly
 
 ![pokemap](https://images.wondershare.com/drfone/article/2023/05/pokemon-go-100-iv-map.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Further, the map shows the gym in red and Pokestops in blue by default. Therefore, it helps you to your route and trip to catch the Pokémon and to shop as well. Also, when you click on a particular Pokestop or Gym, this will show you the look of the stop, which you can share with other players.
 
 ![pokemongomap](https://images.wondershare.com/drfone/2023/virtuallocation/EX-Raid-Gym-Map-7.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 You can also search for postcodes in Pokémon Go Map. But this map is not affiliated with Pokémon Go or Niantic. So, you need to download it from the site.
 
@@ -338,6 +330,10 @@ This is another popular directory of Pokémon that is solely dedicated to 100 IV
 This **Pokémon Go 100 IV map** is available for free for Android users and can be downloaded from the Play Store. You can just launch the app and use its filter to select the specific Pokémon you wish to catch. It will look into its database and would display the 100 IV Pokémon Go map for that specific Pokémon. This will display the exact coordinates that you can later use on a spoofer app to catch this Pokémon.
 
 **Download link:** [https://play.google.com/store/apps/details?id=com.herreralemus.iv100.client&hl=en\_IN](https://play.google.com/store/apps/details?id=com.herreralemus.iv100.client&hl=en_IN)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 5\. Poke Radar for Android
 
@@ -354,6 +350,10 @@ _You may be interested in: [8 Best Alternatives of PokeCrew: Find Pokemons on an
 ## Part 5: An Expert Tip to Catch 100 IV Pokémon Sitting at Home?
 
 Using a 100 IV Pokémon Go map, you can easily know their spawning locations and whereabouts. Since it is not possible to physically visit these locations to catch Pokémon, you can spoof your Apple iPhone 12 location instead. To do that, just take the assistance of [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/). With just a few clicks, it will let you spoof your Apple iPhone 12 location without jailbreaking or undergoing any technical hassle.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Dr.Fone - Virtual Location
 
@@ -401,18 +401,15 @@ That’s a wrap, everyone! Now that you know about the Pokémon Go 100 IV maps t
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-capture.techidaily.com/new-in-2024-creating-a-seamless-virtual-workspace-slack-filmora-combo-for-teams/"><u>[New] In 2024, Creating a Seamless Virtual Workspace Slack-Filmora Combo for Teams</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-trending-image-memes-unveiling-the-real-story-for-2024/"><u>[New] Trending Image Memes Unveiling the Real Story for 2024</u></a></li>
-<li><a href="https://extra-information.techidaily.com/advanced-techniques-for-syncing-b-roll-with-main-shots-for-2024/"><u>Advanced Techniques for Syncing B-Roll with Main Shots for 2024</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/how-can-i-catch-the-regional-pokemon-without-traveling-on-apple-iphone-6s-drfone-by-drfone-virtual-ios/"><u>How Can I Catch the Regional Pokémon without Traveling On Apple iPhone 6s | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-apple-iphone-13-drfone-by-drfone-virtual-ios/"><u>How PGSharp Save You from Ban While Spoofing Pokemon Go On Apple iPhone 13? | Dr.fone</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-screen-share-on-apple-iphone-x-drfone-by-drfone-ios/"><u>How to Screen Share on Apple iPhone X? | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-to-use-pokemon-go-joystick-on-apple-iphone-6-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, How to use Pokemon Go Joystick on Apple iPhone 6 Plus? | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-unlocking-the-power-of-smart-lock-a-beginners-guide-for-honor-x8b-users-by-drfone-android/"><u>In 2024, Unlocking the Power of Smart Lock A Beginners Guide for Honor X8b Users</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-ways-to-trade-pokemon-go-from-far-away-on-apple-iphone-13-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, Ways to trade pokemon go from far away On Apple iPhone 13 Pro? | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/is-mega-mewtwo-the-strongest-pokemon-on-apple-iphone-6-drfone-by-drfone-virtual-ios/"><u>Is Mega Mewtwo The Strongest Pokémon On Apple iPhone 6? | Dr.fone</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/simple-solutions-to-fix-android-systemui-has-stopped-error-for-honor-x50i-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Simple Solutions to Fix Android SystemUI Has Stopped Error For Honor X50i | Dr.fone</u></a></li>
-<li><a href="https://audio-editing.techidaily.com/top-8-ios-digital-audio-workstations-daw-for-creative-minds-on-ipad-and-iphone-for-2024/"><u>Top 8 iOS Digital Audio Workstations (DAW) for Creative Minds on iPad & iPhone for 2024</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-apple-iphone-12-pro-max-drfone-by-drfone-virtual-ios/"><u>What is the best Pokemon for pokemon pvp ranking On Apple iPhone 12 Pro Max? | Dr.fone</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-in-2024-the-ultimate-selfie-stick-showdown-for-iphone-8-winners/"><u>[New] In 2024, The Ultimate Selfie Stick Showdown for iPhone (#8 Winners)</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/nfusing-storytelling-with-subtitles-enhancing-online-video-experience/"><u>[New] Infusing Storytelling with Subtitles Enhancing Online Video Experience</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-pioneering-basics-in-dynamic-design-techniques-for-2024/"><u>[New] Pioneering Basics in Dynamic Design Techniques for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-cutting-edge-capture-top-10-windows-11-cam-recorders/"><u>[Updated] Cutting-Edge Capture Top 10 Windows 11 Cam Recorders</u></a></li>
+<li><a href="https://howto.techidaily.com/4-ways-to-fix-android-blue-screen-of-death-on-infinix-zero-5g-2023-turbo-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>4 Ways to Fix Android Blue Screen of Death On Infinix Zero 5G 2023 Turbo | Dr.fone</u></a></li>
+<li><a href="https://fox-access.techidaily.com/chucklecraft-sign-up-now-and-laugh-later/"><u>ChuckleCraft Sign Up Now & Laugh Later</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/how-and-where-to-find-a-shiny-stone-pokemon-for-apple-iphone-11-pro-max-drfone-by-drfone-virtual-ios/"><u>How and Where to Find a Shiny Stone Pokémon For Apple iPhone 11 Pro Max? | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-additional-tips-about-sinnoh-stone-for-apple-iphone-xr-drfone-by-drfone-virtual-ios/"><u>In 2024, Additional Tips About Sinnoh Stone For Apple iPhone XR | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-apple-iphone-7-plus-drfone-by-drfone-virtual-ios/"><u>Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Apple iPhone 7 Plus | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/pokemon-go-no-gps-signal-heres-every-possible-solution-on-apple-iphone-xr-drfone-by-drfone-virtual-ios/"><u>Pokemon Go No GPS Signal? Heres Every Possible Solution On Apple iPhone XR | Dr.fone</u></a></li>
 </ul></div>
 
