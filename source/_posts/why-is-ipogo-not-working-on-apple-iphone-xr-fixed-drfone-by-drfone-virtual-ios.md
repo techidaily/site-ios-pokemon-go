@@ -1,7 +1,7 @@
 ---
 title: Why is iPogo not working On Apple iPhone XR? Fixed | Dr.fone
-date: 2025-01-28T16:27:11.545Z
-updated: 2025-01-29T18:16:38.657Z
+date: 2025-02-07T22:17:26.531Z
+updated: 2025-02-10T02:25:36.275Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -42,6 +42,10 @@ Read on to understand the reasons why your device is unable to run the iPogo mod
 - Another plausible reason could be that your iPogo application has not been properly installed. It is widely agreed upon that iPogo is a difficult app to install as it involves going through complex steps making it easier for mistakes to be made, eventually leading to a complete breakdown of the software.
 - Since installing iPogo is a cumbersome process, players would often resort to using downloading hacks to get the job done faster. However, not all such hacks can be relied upon as they may end up jail breaking your device or make your version of the app even more unstable.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Some Easy Solutions for fixing the “iPogo not working” issue
 
 It is often said that short cuts can cut you short or in this case, hacked! Disrupting the framework of your device is not price you should pay for enjoying the game at its best. Although, there are other safer and more reliable solutions to making the iPogo app run better on your iOS device. Let’s take a brief peak at some of them.
@@ -59,10 +63,6 @@ It is often said that short cuts can cut you short or in this case, hacked! Disr
 
 **Note:** All of these installation methods have specific varied requirements which must be checked appropriately.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 2: A better alternative for iPogo - virtual location
 
 If using the iPogo mod to enhance your gaming experience on Pokémon Go seem less appealing with all the added hassle then there is a better alternative for you to use. You can employ a much simpler and easier to install GPS mocking application like Wondershare’s [Dr.Fone Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/). It offers amazing user-friendly features like speed modulation, joystick control and map routing with none of the drawbacks that you had to previously overcome. It is a highly efficient virtual location tool that can be used to conveniently spoof your location without running the risk of detection on a GPS based game like Pokémon Go.
@@ -72,10 +72,6 @@ If using the iPogo mod to enhance your gaming experience on Pokémon Go seem les
 - Adjust the speed of travel with three speed modes, like walking, cycling or even driving.
 - Manually move your GPS on the map freely using a virtual joystick in a 360 degree direction.
 - Simulate your avatar’s movements to travel on a determined route of your choice.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Step by Step Tutorial
 
@@ -123,6 +119,10 @@ If you have been playing Pokemon PvP battle leagues, then you might already know
 
 ![pokemon go pvp tier list banner](https://images.wondershare.com/drfone/2020/pokemon-go-pvp-tier-list-banner.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: How are Pokemon Go PvP Tier Lists Evaluated?
 
 Before you go through our carefully calculated great, ultra, and master league Pokemon Go tier list, you should know some basics. Ideally, the following parameters are considered while placing any Pokemon in a tier list.
@@ -138,18 +138,26 @@ Before you go through our carefully calculated great, ultra, and master league P
 ![cp levels pokemon leagues](https://images.wondershare.com/drfone/2020/cp-levels-pokemon-leagues.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: A Complete Pokemon Go PvP Tier List: Great, Ultra, and Master Leagues
 
 Since Pokemon Go PvP matches are based on different leagues, I have also come up with Pokemon ultra, great, and master league tier lists to help you pick the most powerful Pokemon in every match.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Pokemon Go Great League Tier List
 
 In Great League matches, the maximum CP of any Pokemon can be 1500. Considering this in mind, I have picked the following Pokemons from tier 1 (most powerful) to tier 5 (least powerful).
 
 <table><tbody><tr><td>Tier 1 (5/5 rating)</td><td>Altaria, Skarmory, Azumarill, and Glarian Stunfisk</td></tr></tbody><tbody><tr><td>Tier 2 (4.5/5 rating)</td><td>Umbreon, Swampert, Lanturn, Stunfisk, Dexoxys, Venusaur, Haunter, Jirachi, Lapras, Mew, and Whiscash</td></tr><tr><td>Tier 3 (4/5 rating)</td><td>Ivysaur, Uxie, Alolan Ninetales, Scrafty, Mawile, Wigglytuff, Clefable, Marshtomp, and Skuntank</td></tr><tr><td>Tier 4 (3.5/5 rating)</td><td>Qwilfish, Dustox, Glalie, Raichu, Dusclops, Serperior, Minun, Chandelure, Venomoth, Bayleef, and Golbat</td></tr><tr><td>Tier 5 (3/5 rating)</td><td>Pidgeot, Slowking, Garchomp, Golduck, Entei, Crobat, Jolteon, Duosion, Buterfree, and Sandslash</td></tr></tbody></table>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Pokemon Go Ultra League Tier List
 
@@ -162,6 +170,10 @@ You might already know that in the ultra league, we are allowed to pick Pokemons
 Lastly, in the Master League, we don’t have any CP limits for Pokemons. Keeping this in mind, I have included some of the most powerful Pokemons in Tier 1 and 2 here.
 
 <table><tbody><tr><td>Tier 1 (5/5 rating)</td><td>Togekiss, Groudon, Kyogre, and Dialga</td></tr></tbody><tbody><tr><td>Tier 2 (4.5/5 rating)</td><td>Lugia, Mewtwo, Garchomp, Zekrom, Metagross, and Melmetal</td></tr><tr><td>Tier 3 (4/5 rating)</td><td>Zapdos, Moltres, Machamp, Darkrai, Kyurem, Articuno, Jirachi, and Rayquaza</td></tr><tr><td>Tier 4 (3.5/5 rating)</td><td>Gallade, Golurk, Usie, Cresselia, Entei, Lapras, and Pinsir</td></tr><tr><td>Tier 5 (3/5 rating)</td><td>Scizor, Crobat, Electivire, Emboar, Sawk, Victini, Exeggutor, Flygon, and Torterra</td></tr></tbody></table>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3: How to Catch Powerful Pokemons Remotely?
 
@@ -198,10 +210,6 @@ The two main and frequent errors that are related to the Pokémon are error 11 a
 1. The Mock location on the Apple iPhone XR device is enabled can lead to failed to detect location GPS joystick or error 12 on the Apple iPhone XR device. It is therefore advised to make sure that the location in question is disabled to get the gaming experience back on track.
 2. The other and the most common reason for the error 12 is the fact that the GPS signals are not received by the Apple iPhone XR device. It also leads to Pokémon failed to detect location error and will make sure that you get all the enjoyment for which the game has been downloaded.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 2: 3 solutions to fix Pokémon fails to detect the location
 
 ### Solution 1: Turn on GPS
@@ -224,17 +232,9 @@ If the right permissions are not given to the application then it can also lead 
 
 ![Pokemon failed to detect location3](https://images.wondershare.com/drfone/2020/2020/Pokemon_failed_to_detect_location_3.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **ii.** Go to Pokémon Go > Permissions > Turn on location to get the issue resolved.
 
 ![Pokemon failed to detect location 4](https://images.wondershare.com/drfone/2020/2020/Pokemon_failed_to_detect_location_4.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Solution 3: Clear Cache
 
@@ -247,19 +247,27 @@ If the right permissions are not given to the application then it can also lead 
 ![Pokemon failed to detect location 6](https://images.wondershare.com/drfone/2020/2020/Pokemon_failed_to_detect_location_6.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **iii.** Click on the storage option.
 
 ![Pokemon failed to detect location 7](https://images.wondershare.com/drfone/2020/2020/Pokemon_failed_to_detect_location_7.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **iv.** Clear data and cache and restart the Apple iPhone XR device to get the issue fixed.
 
 ![Pokemon failed to detect location 8](https://images.wondershare.com/drfone/2020/2020/Pokemon_failed_to_detect_location_8.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3: Dr.Fone Virtual location change your location in one click
@@ -282,19 +290,11 @@ Click the get started icon once the iPhone has been connected to the system and 
 
 ![virtual location 01](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 3: Locate the Apple iPhone XR device**
 
 Click the center on a button to make sure that your location is detected by the program.
 
 ![virtual location 03](https://images.wondershare.com/drfone/guide/virtual-location-03.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Step 4: Change Location**
 
@@ -332,17 +332,20 @@ Dr. Fone's virtual location is the best and the most advanced program that will 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-2024-approved-onscreen-excellence-flexible-talent-access/"><u>[New] 2024 Approved Onscreen Excellence Flexible Talent Access</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-perfect-your-video-pacing-with-these-snapchat-tips/"><u>[New] In 2024, Perfect Your Video Pacing with These Snapchat Tips</u></a></li>
-<li><a href="https://fox-access.techidaily.com/new-in-2024-snap-away-the-best-cams-for-novice-photographers/"><u>[New] In 2024, Snap Away The Best Cams for Novice Photographers</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/accessibility-achieved-the-simple-setup-of-ifunny-app-for-2024/"><u>Accessibility Achieved The Simple Setup of iFunny App for 2024</u></a></li>
-<li><a href="https://driver-install.techidaily.com/easy-wi-fi-extender-installation-for-w7/"><u>Easy Wi-Fi Extender Installation for W7</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/here-are-some-of-the-best-pokemon-discord-servers-to-join-on-apple-iphone-xr-drfone-by-drfone-virtual-ios/"><u>Here are Some of the Best Pokemon Discord Servers to Join On Apple iPhone XR | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-pokemon-go-error-12-failed-to-detect-location-on-apple-iphone-12-drfone-by-drfone-virtual-ios/"><u>In 2024, Pokemon Go Error 12 Failed to Detect Location On Apple iPhone 12? | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-why-is-ipogo-not-working-on-apple-iphone-xs-fixed-drfone-by-drfone-virtual-ios/"><u>In 2024, Why is iPogo not working On Apple iPhone XS? Fixed | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/list-of-pokemon-go-joysticks-on-apple-iphone-se-2020-drfone-by-drfone-virtual-ios/"><u>List of Pokémon Go Joysticks On Apple iPhone SE (2020) | Dr.fone</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210571421-9781398824348-nostradamus-and-other-prophets-and-seers/"><u>Nostradamus and Other Prophets and Seers | Free Book</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/top-15-augmented-reality-games-like-pokemon-go-to-play-on-apple-iphone-6s-drfone-by-drfone-virtual-ios/"><u>Top 15 Augmented Reality Games Like Pokémon GO To Play On Apple iPhone 6s | Dr.fone</u></a></li>
-<li><a href="https://driver-install.techidaily.com/upgrading-w10-install-latest-lenovo-drivers/"><u>Upgrading W10: Install Latest Lenovo Drivers</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-the-smart-way-to-store-video-meetings-on-devices/"><u>[New] 2024 Approved The Smart Way to Store Video Meetings on Devices</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-pixelated-personae-effective-face-covering-tactics/"><u>2024 Approved Pixelated Personae Effective Face Covering Tactics</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ing-captivating-asmr-scenes-techniques-for-successful-recording-for-2024/"><u>Crafting Captivating ASMR Scenes Techniques for Successful Recording for 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/dial-down-dysfunction-restore-your-pcs-essential-esc-keys/"><u>Dial Down Dysfunction: Restore Your PC's Essential Esc Keys</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-do-i-stop-someone-from-tracking-my-lava-blaze-curve-5g-drfone-by-drfone-virtual-android/"><u>How Do I Stop Someone From Tracking My Lava Blaze Curve 5G? | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-apple-iphone-8-drfone-by-drfone-virtual-ios/"><u>In 2024, 15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Apple iPhone 8 | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-here-are-some-of-the-best-pokemon-discord-servers-to-join-on-apple-iphone-7-drfone-by-drfone-virtual-ios/"><u>In 2024, Here are Some of the Best Pokemon Discord Servers to Join On Apple iPhone 7 | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-to-enter-the-ispoofer-discord-server-on-apple-iphone-7-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, How to enter the iSpoofer discord server On Apple iPhone 7 Plus | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-to-use-pokemon-emerald-master-ball-cheat-on-apple-iphone-7-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Use Pokémon Emerald Master Ball Cheat On Apple iPhone 7 | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-ways-to-trade-pokemon-go-from-far-away-on-apple-iphone-13-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, Ways to trade pokemon go from far away On Apple iPhone 13 Pro Max? | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-apple-iphone-8-drfone-by-drfone-virtual-ios/"><u>In 2024, What is the best Pokemon for pokemon pvp ranking On Apple iPhone 8? | Dr.fone</u></a></li>
+<li><a href="https://os-tips.techidaily.com/navigate-without-worry-apples-latest-update-brings-offline-functionality-to-its-mapping-service/"><u>Navigate Without Worry! Apple's Latest Update Brings Offline Functionality to Its Mapping Service</u></a></li>
+<li><a href="https://win-forum.techidaily.com/solving-the-mystery-of-your-pcs-constant-freezing-a-step-by-step-guide/"><u>Solving the Mystery of Your PC's Constant Freezing: A Step-by-Step Guide</u></a></li>
+<li><a href="https://ai-video-translation.techidaily.com/updated-2024-approved-translate-video-from-english-to-arabic-with-ease/"><u>Updated 2024 Approved Translate Video From English to Arabic with Ease</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/what-pokemon-evolve-with-a-dawn-stone-for-apple-iphone-x-drfone-by-drfone-virtual-ios/"><u>What Pokémon Evolve with A Dawn Stone For Apple iPhone X? | Dr.fone</u></a></li>
 </ul></div>
 

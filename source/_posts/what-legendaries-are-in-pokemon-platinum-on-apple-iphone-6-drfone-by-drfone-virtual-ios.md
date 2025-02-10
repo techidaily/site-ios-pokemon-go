@@ -1,7 +1,7 @@
 ---
 title: What Legendaries Are In Pokemon Platinum On Apple iPhone 6? | Dr.fone
-date: 2025-01-27T18:14:26.998Z
-updated: 2025-01-29T19:21:30.445Z
+date: 2025-02-09T06:13:14.626Z
+updated: 2025-02-10T01:41:42.693Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -45,6 +45,10 @@ There are about 18 platinum legendaries Pokemon that you can obtain per game car
 
 ![Platinum legendaries 4](https://images.wondershare.com/drfone/Platinum-legendaries-4.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **7\. Heatran:** Found inside a cave around Stark Mountain, Heatran appears as you come back to the place where Charon was arrested. When you try to enter the Mountain, you team up with Buck, another trainer. You follow him and speak to his grandfather. You catch the Level 50 Heatran once you return to Stark Mountain.
 
 **8\. Regigigas:** Found on the basement of Snowpoint Temple, Regigigas Platinum does not require HM moves to be reachable. Resolving puzzles on each floor, you arrive at the Temple, bringing Regirock, Regice, and Registeel. You will need them to battle with this Level 1 Pokemon and capture him. Regigigas is found asleep on the floor.
@@ -52,6 +56,10 @@ There are about 18 platinum legendaries Pokemon that you can obtain per game car
 **9\. Cresselia:** Cresselia is the Level 50 Pokemon that roams Sinnoh after you communicate with it on Fullmoon Island. So, you must reach the Full Moon Island to heal the Sailor’s child, and after that you will meet Cresselia. After you interact with it, the Pokemon runs and roams Sinnoh’s grass.
 
 ![Platinum legendaries 5](https://images.wondershare.com/drfone/Platinum-legendaries-5.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **10\. Articuno:** Like Cresselia, Articuno also roams the grass of Sinnoh. In order for the birds’ release, you visit and speak to Professor Oak who can be found in his house in Eterna City. You need to obtain National Pokedex in order to speak to Professor Oak. The professor tells you that you can find Articuno nearby within Sinnoh. The Level 60 legendary Pokemon can be found roaming the Sinnoh’s grass. So, make sure you are prudent when hunting Articuno.
 
@@ -79,10 +87,6 @@ There are about 18 platinum legendaries Pokemon that you can obtain per game car
 
 There are a few cheats to capture platinum legendaries in Pokemon. In addition to the official methods discusses above, you can use action replay codes or try location spoofing.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 2.1 Action Replay Codes
 
 There are many action replay codes available on the Internet. Using these codes, you can easily capture legendary Pokemon available with the Pokemon Platinum Version.
@@ -92,7 +96,7 @@ Make sure you get these codes only from reliable websites or sources. Otherwise,
 ![Platinum legendaries 8](https://images.wondershare.com/drfone/Platinum-legendaries-8.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 2.2 Location Spoofing with Dr. Fone Virtual Location
@@ -106,10 +110,6 @@ For this illustration, we will use using Dr.fone to see how to iPhone GPS spoofi
 **Step 1:** Load the app on your iOS device. For this purpose, you have to go to Dr.fone official website. Next, download and install the app on your smartphone. Next, connect your iOS device with your PC.
 
 ![Platinum legendaries 9](https://images.wondershare.com/drfone/guide/drfone-home.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Step 2:** Tap the ‘Virtual Location’ option at Dr.Fone home screen to change the location of your device. You will see another window opened up on your phone’s screen.
 
@@ -127,6 +127,10 @@ For this illustration, we will use using Dr.fone to see how to iPhone GPS spoofi
 
 ![Platinum legendaries 13](https://images.wondershare.com/drfone/guide/virtual-location-07.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Now, enjoy playing Pokemon Platinum and capture more Legendary Pokemon to level up in the game.
 
 ## Part 3: How to get Mewtwo in Pokemon Platinum?
@@ -136,10 +140,6 @@ Mewtwo in the Pokemon game was introduced to be the strongest Pokemon. It lives 
 Frankly, Mewtwo can be located only in the Cerulean Cave that further locates in Kanto. That’s why you cannot find Mewtwo in Platinum. And, if you want to obtain Mewtwo, you have to migrate or trade for one.
 
 ![Platinum legendaries 14](https://images.wondershare.com/drfone/Platinum-legendaries-14.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 According to some users, you can get Mewtwo with Pokemon Fire Red or Leaf Green. With these in hand, you can obtain Mewtwo in cerulean cave once you have defeated the Elite 4.
 
@@ -169,6 +169,10 @@ Ideally, iPogo is a dedicated iOS app that can help you play Pokemon Go remotely
 ![iPogo iOS App](https://images.wondershare.com/drfone/2020/202010/2021/guide-for-ipogo-1.jpg)
 
 **Price**: The basic version of iPogo is available for free that would let you teleport your location in Pokemon Go. To access more features of iPogo for Pokemon Go, you can get its premium subscription for $4.99 per month.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: How to Use iPogo to Improve your Pokemon Go Gameplay?
 
@@ -204,6 +208,10 @@ Even though iPogo would let you access all kinds of Pokemon Go hacks, it has num
 - Since the installation process for the iPogo iOS app is a bit complicated, it would need prior technical experience.
 - Please note that iPogo is not a reliable service and it can stop working anytime (like [iSpoofer](https://drfone.wondershare.com/virtual-location/ispoofer-shut-down.html)). This can cause a sudden loss of your money and progress in Pokemon Go.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 4: How to Spoof iPhone Location without Jailbreak Using the Best iPogo Alternative?
 
 Since iPogo needs jailbreak access and is not that reliable, a lot of players look for its alternative. For instance, you can use [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) to easily spoof the location on your Apple iPhone 6 without jailbreaking it. The application is super easy to use and also provides a GPS joystick to stimulate your movement between multiple spots. Besides that, you can also mark any location as a favorite and can even import/export GPX files using the desktop application.
@@ -222,25 +230,13 @@ The application will automatically detect and display the present location of yo
 
 ![virtual-location](https://images.wondershare.com/drfone/guide/virtual-location-03.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Afterward, you can just enter the name, address, or coordinates of the target location on the search bar and load it on the map.
 
 ![virtual location 04](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 You can now adjust the location on the map by moving the pin around or even zoom in/out. Lastly, click on the “Move Here” button and wait as your device’s location would be updated on Pokemon Go.
 
 ![virtual location 05](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Step 3: Simulate your Apple iPhone 6’s movement between multiple spots**
 
@@ -251,10 +247,6 @@ Apart from that, you can also simulate the movement of your device by selecting 
 Furthermore, you can enter the number of times to cover the route and even select a preferred speed for the movement. Once you click on the “March” button, the simulation of the movement would be started. You can also access a GPS joystick at the bottom to move realistically on the map in any direction.
 
 ![Safe download](https://images.wondershare.com/drfone/article/2022/05/security.svg) safe & secure
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **4,039,074** people have downloaded it
 
@@ -279,10 +271,6 @@ The meltan box is actually a mystery box that you cannot receive through the tra
 1. The first and foremost thing you need to do is deport a Pokemon from Pokemon Go to Pokemon Let’s Go. You don’t have to transfer it to your own copy of Let’s Go. A friend’s copy would come in great help here.
 2. For making the transfer, you will get a mystery box in Pokemon Go. This box will allow the meltan to run into the wild for about 30 minutes. It gives you the chance to latch the pokemon.
 3. If you cannot catch meltan in 30 minutes, you will have to wait and repeat the above process again. As the mystery box will close after 30 minutes, and meltan will vanish from the wild.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 2: How to connect pokemon go to pokemon switch
 
@@ -312,6 +300,10 @@ The steps to connect Pokemon Go to Switch is clearly defined in the following po
 
 ![pokemon switch pair2](https://images.wondershare.com/drfone/2020/pokemon-switch-pair2.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 9:** This will allow Pokemon Go to search for a Nintendo Switch game to connect with.
 
 **Step 10:** When you finally see that the Nintendo Switch console is locating the Pokemon Go account, select the “Yes” button on the console to establish the pairing.
@@ -319,7 +311,7 @@ The steps to connect Pokemon Go to Switch is clearly defined in the following po
 ![pokemon switch pair3](https://images.wondershare.com/drfone/2020/pokemon-switch-pair3.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 11:** Once the pairing is done, you can now transfer the Pokemon from the Pokemon Go smoothly. Let’s get to know that too.
@@ -331,6 +323,10 @@ After the pairing is complete, you are now ready to send your Pokemon to the Go 
 **Step 2:** In Fuschia City, talk to the Go Park Complex Attendant and select the “Bring Pokemon” option.
 
 ![bring pokemon](https://images.wondershare.com/drfone/2020/bring-pokemon.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 3:** Open Pokemon Go.
 
@@ -347,6 +343,10 @@ After the pairing is complete, you are now ready to send your Pokemon to the Go 
 ![send to nintendo switch](https://images.wondershare.com/drfone/2020/send-to-nintendo-switch.jpg)
 
 Following the aforementioned steps will allow you to get the pokemon go mystery box.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3: Tips to get more meltan boxes
 
@@ -388,17 +388,16 @@ Resolving your query about getting meltan box and offering you a detailed guide 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-online-tutorial-adding-youtube-playlists-to-your-site/"><u>[Updated] 2024 Approved Online Tutorial Adding YouTube Playlists to Your Site</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-apple-iphone-6-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, 4 solution to get rid of pokemon fail to detect location On Apple iPhone 6 Plus | Dr.fone</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-gamers-ultimate-guide-selecting-the-best-video-card-brands/"><u>In 2024, Gamer’s Ultimate Guide Selecting the Best Video Card Brands</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-apple-iphone-se-2020-drfone-by-drfone-virtual-ios/"><u>In 2024, Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Apple iPhone SE (2020) | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-to-use-pokemon-emerald-master-ball-cheat-on-apple-iphone-12-mini-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Use Pokémon Emerald Master Ball Cheat On Apple iPhone 12 mini | Dr.fone</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-top-10-fingerprint-lock-apps-to-lock-your-vivo-s17-pro-phone-by-drfone-android/"><u>In 2024, Top 10 Fingerprint Lock Apps to Lock Your Vivo S17 Pro Phone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-what-pokemon-evolve-with-a-dawn-stone-for-apple-iphone-14-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, What Pokémon Evolve with A Dawn Stone For Apple iPhone 14 Plus? | Dr.fone</u></a></li>
-<li><a href="https://solve-news.techidaily.com/melhores-metodos-para-combinar-clipes-de-video-no-windows-11-guia-completo/"><u>Melhores Métodos Para Combinar Clipes De Vídeo No Windows 11 – Guia Completo</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/overcoming-lameencdll-errors-in-your-audio-editing-workflow-with-audacity/"><u>Overcoming lame_enc.dll Errors in Your Audio Editing Workflow with Audacity</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/resounding-victory-solve-no-sound-problems-in-world-of-warcraft/"><u>Resounding Victory: Solve No-Sound Problems in World of Warcraft</u></a></li>
-<li><a href="https://fox-info.techidaily.com/top-10-must-have-features-in-drone-gimbals-for-2024/"><u>Top 10 Must-Have Features in Drone Gimbals for 2024</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/top-ranking-virtual-reality-headsets/"><u>Top-Ranking Virtual Reality Headsets</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-accurate-age-reporting-tips-for-perfecting-your-tiktok-profile-for-2024/"><u>[New] Accurate Age Reporting Tips for Perfecting Your TikTok Profile for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/reaking-even-on-youtube-key-view-figures-explored/"><u>[New] Breaking Even on YouTube Key View Figures Explored</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/apple-slashes-prices-on-entry-level-series-se-watch-anticipated-upgrades-revealed/"><u>Apple Slashes Prices on Entry-Level Series SE Watch: Anticipated Upgrades Revealed</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/how-to-come-up-with-the-best-pokemon-team-on-apple-iphone-se-drfone-by-drfone-virtual-ios/"><u>How to Come up With the Best Pokemon Team On Apple iPhone SE? | Dr.fone</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/how-to-update-samsung-usb-driver-for-mobile-phones/"><u>How To Update Samsung USB Driver for Mobile Phones</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-a-comprehensive-guide-to-mastering-ipogo-for-pokemon-go-on-apple-iphone-8-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, A Comprehensive Guide to Mastering iPogo for Pokémon GO On Apple iPhone 8 Plus | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-can-i-catch-the-regional-pokemon-without-traveling-on-apple-iphone-x-drfone-by-drfone-virtual-ios/"><u>In 2024, How Can I Catch the Regional Pokémon without Traveling On Apple iPhone X | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-pokemon-go-error-12-failed-to-detect-location-on-apple-iphone-8-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, Pokemon Go Error 12 Failed to Detect Location On Apple iPhone 8 Plus? | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-why-does-the-pokemon-go-battle-league-not-available-on-apple-iphone-8-drfone-by-drfone-virtual-ios/"><u>In 2024, Why does the pokemon go battle league not available On Apple iPhone 8 | Dr.fone</u></a></li>
+<li><a href="https://network-issues.techidaily.com/smooth-gaming-fix-fallout-4-crashes/"><u>Smooth Gaming: Fix Fallout 4 Crashes</u></a></li>
+<li><a href="https://facebook.techidaily.com/uncovering-lately-watched-fb-content/"><u>Uncovering Lately Watched FB Content</u></a></li>
 </ul></div>
 
