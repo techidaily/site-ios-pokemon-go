@@ -1,7 +1,7 @@
 ---
 title: Where Is the Best Place to Catch Dratini On Apple iPhone 8 Plus | Dr.fone
-date: 2025-02-04T17:11:08.162Z
-updated: 2025-02-10T01:15:11.218Z
+date: 2025-02-14T04:47:58.811Z
+updated: 2025-02-19T18:54:52.634Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -49,6 +49,10 @@ Dratini has a 5% spawning chance every day, so if you have the time, you can spe
 
 Dratini nests can also be found in other parts of the world, such as Tokyo, Japan; Sydney and New South Wales, Australia; Paris, France and others.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 3: Are the Dratini nest and spawn spot in the same place?
 
 This is quite a common question for those who are new to the Pokémon universe. Basically, Dratini nests and spawn points are the same for a period of two weeks. The nests then migrate leaving the spawn points to spawn different types of Pokémon.
@@ -76,6 +80,10 @@ On the official Dr.Fone page, download and install Dr.Fone on your computer or y
 
 ![drfone home](https://images.wondershare.com/drfone/guide/drfone-home.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 After entering the virtual location module, connect your iOS device to your computer using an original USB cable.
 
 Next, click on “Get Started”; you will now be able to start the spoofing process.
@@ -100,13 +108,13 @@ Camping and looking for other Pokémon in the area will help you cool down and t
 
 ![virtual location 05](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 This is how your location will be viewed on the map.
 
 ![virtual location 06](https://images.wondershare.com/drfone/guide/virtual-location-06.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 This is how your location will be viewed on another iPhone device.
 
@@ -126,10 +134,6 @@ However, it’s perhaps safe to say that Pokemon Go Routes is still far from per
 
 In this article, we will discuss how Pokemon Go Routes basically work. We will also talk about the main reasons why **Pokemon Go Routes is not showing up** sometimes. Lastly, we will provide some helpful tips to fix this kind of problem. Continue reading below to learn more.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1. How Do Routes in Pokemon Go Work?
 
 The logic behind the Pokemon Go Routes is very simple. There are only two things you need to remember about it. First, you can record a walking path anywhere and submit it for review. Your Route will immediately appear on the Pokemon Go map once it receives approval from the game developer. Of course, the quality and safety of the Route must be checked thoroughly before it becomes available to the public. Another thing about the Route is that you can use it to discover and explore new walking paths near you. All you need to do is pick your preferred Route and finish the entire trail. Afterward, you can obtain special rewards and extra bonus points upon its completion.
@@ -145,6 +149,10 @@ Do you want to try Pokemon Go Routes now? Here’s a quick guide for you on how 
 
 ![pokemon go route](https://images.wondershare.com/drfone/article/2024/01/pokemon-go-route-not-working-2.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 - **Step 4:** From there, decide if you wish to discover nearby Routes or create your own.
 
 **NOTE:** The Create New Route feature is only available to selected Pokemon Go players. If Pokemon Go Routes is not showing up on your end, it’s probably because you’re not yet eligible.
@@ -155,19 +163,23 @@ As previously mentioned, the root causes of the Pokemon Go Routes glitch vary fr
 
 ![pokemon go route missing](https://images.wondershare.com/drfone/article/2024/01/pokemon-go-route-not-working-4.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### There are no recorded Routes near your location
 
 It’s possible that the Pokemon Routes are not showing up because you’re too far from them. Try to move around and see if the walking paths will finally appear on your radar. In this case, all you need to do is find the perfect spot where Routes are recorded.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### The Pokemon Go application has no adequate location access on your smartphone
 
 ![pokemon go location access](https://images.wondershare.com/drfone/article/2024/01/pokemon-go-route-not-working-5.JPG)
 
 Is Pokemon Go Route not working on your end? Well, it’s possibly because the application has limited or restricted access to GPS on your smartphone. Don’t worry. It’s nothing serious. You can easily fix this kind of misconfiguration by adjusting your privacy settings.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Your internet connection is unstable while playing Pokemon Go
 
@@ -193,10 +205,6 @@ Is Pokemon Go Route not working on your mobile device? Don’t sweat it. There a
 - Try to use a newer mobile device when playing Pokemon Go. It’s possible that the Pokemon Go Route is not working because your old smartphone is not compatible with the feature.
 - Visit other locations near you. Who knows? Pokemon Go Routes might finally show up when you travel to a different neighborhood.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 4. <u>Wondershare Dr.Fone</u>
 
 In simple terms, DeFit is a third-party application that allows trainers to play Pokemon Go without moving physically. You can walk the required distance for egg hatching or explore Routes from the comfort of your own home. However, there have been reports recently about Pokemon Go DeFit not working. Is there a substitute for this software? The short answer is absolutely yes. Wondershare Dr.Fone has a powerful Virtual Location feature that works exactly like DeFit. It can also simulate GPD movement to complete Pokemon Go Routes without going outdoors. Do you want to try it? Here’s a short guide for you.
@@ -208,6 +216,10 @@ In simple terms, DeFit is a third-party application that allows trainers to play
 
 ![wondershare drfone virtual location](https://images.wondershare.com/drfone/guide/virtual-location-08.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 - **Step 5:** Calibrate the necessary settings according to your liking. Start by choosing your preferred type and number of trips. Right after, adjust the movement speed by moving the slider from left to write. Then, click **Move Here** to commence the simulation. If you wish to reset your inputs, click **Clear** instead.
 
 ![movement settings](https://images.wondershare.com/drfone/guide/virtual-location-09.png)
@@ -216,17 +228,9 @@ In simple terms, DeFit is a third-party application that allows trainers to play
 
 ![movement simulation ongoing](https://images.wondershare.com/drfone/guide/virtual-location-10.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Conclusion
 
 Pokemon Go players must try the Routes and explore this feature. It’s indeed an incredible development that can certainly take your game experience to a whole new level. Is Pokemon Go Route not working on your end? Don’t worry. It’s not a big problem. Refer to the troubleshooting tips listed above. One of them can surely help you a lot in this regard. If you need a substitute for the Pokemon Go DeFit that’s not working on your smartphone, try [<u>Wondershare Dr.Fone.</u>](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) It has a potent Virtual Location feature that is capable of simulating GPS movements needed in Pokemon Go. Download it for free.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Pokemon Go Error 12 Failed to Detect Location On Apple iPhone 8 Plus?
 
@@ -243,12 +247,16 @@ The best part of this game is that it has been compiled keeping in view the loca
 The best part of this attribute is that it is the center of the user experience of the game. The second part is the fact that this map has evolved and there are no shortcuts to its success. Ingress was the previous game that was developed by Niantic and the crowdsourcing of this map started with the evolution of this application. This was developed by the same team that is working on the core of Google Earth.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### ii. Real World Gestures
 
 The augmented reality is another important aspect that is related to Pokemon Go and this also means that the location services are relied on when it comes to this application. The android and the iOS location services are continuously used by the game to provide the pinpoint locations as well as the game features that are not found in other applications. The use of location through GPS satellites even becomes more important for such gestures. Especially when the player is outdoors it becomes too important to deal with using GPS location.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### iii. Place Attribution
 
@@ -282,6 +290,10 @@ This is another important and easy way to make sure that the Pokémon failed to 
 
 ![pokemon error 12 4](https://images.wondershare.com/drfone/2020/2020/pokemon_error_12_4.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 2.** Tap on the passwords and security to proceed with the process:
 
 ![pokemon error 12 5](https://images.wondershare.com/drfone/2020/2020/pokemon_error_12_5.jpg)
@@ -290,10 +302,6 @@ This is another important and easy way to make sure that the Pokémon failed to 
 
 ![pokemon error 12 6](https://images.wondershare.com/drfone/2020/2020/pokemon_error_12_6.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Method 3: Reboot the Apple iPhone 8 Plus device
 
 This might seems weird but this trick has been working to quiet some time now and has been proven to eliminate the failed location 12 Pokémon Go issue. There is a possibility that the server location is not synced with the Apple iPhone 8 Plus device. Restarting the Apple iPhone 8 Plus device will make sure that both the locations are sync and the problem is resolved with ease.
@@ -301,10 +309,6 @@ This might seems weird but this trick has been working to quiet some time now an
 Just long-press the power button and choose the reboot option from the menu that appears to complete the process in full.
 
 ![pokemon error 12 7](https://images.wondershare.com/drfone/2020/2020/pokemon_error_12_7.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 3: Best Way to Overcome Location Error 12 on Pokémon Go for iOS Devices
 
@@ -344,10 +348,6 @@ Click on move here and the system will move you to the location that has been en
 
 ![virtual location 05](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 6: Validate and Completion**
 
 The location will be locked by the program and your Apple iPhone 8 Plus will also show the same location as on Dr. Fone. This also completes the process in full:
@@ -372,17 +372,14 @@ The location will be locked by the program and your Apple iPhone 8 Plus will als
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/ed-boosting-engagement-a-guide-to-more-youtube-shorts-success-for-2024/"><u>[Updated] Boosting Engagement A Guide to More YouTube Shorts Success for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-pinnacle-of-participation-events-post-vidcon/"><u>[Updated] Pinnacle of Participation Events Post-VidCon</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/2024-approved-protecting-privacy-top-10-webcam-covers/"><u>2024 Approved Protecting Privacy Top 10 Webcam Covers</u></a></li>
-<li><a href="https://common-error.techidaily.com/how-to-fix-excessive-cpu-drain-by-wudfhostexe-process-on-windows-10/"><u>How to Fix Excessive CPU Drain by wudfhost.exe Process on Windows 10</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-intercept-text-messages-on-xiaomi-mix-fold-3-drfone-by-drfone-virtual-android/"><u>How to Intercept Text Messages on Xiaomi Mix Fold 3 | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-pokemon-go-error-12-failed-to-detect-location-on-apple-iphone-8-drfone-by-drfone-virtual-ios/"><u>In 2024, Pokemon Go Error 12 Failed to Detect Location On Apple iPhone 8? | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-reasons-why-pokemon-gps-does-not-work-on-apple-iphone-x-drfone-by-drfone-virtual-ios/"><u>In 2024, Reasons why Pokémon GPS does not Work On Apple iPhone X? | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-apple-iphone-12-mini-drfone-by-drfone-virtual-ios/"><u>In 2024, Will Pokémon Go Ban the Account if You Use PGSharp On Apple iPhone 12 mini | Dr.fone</u></a></li>
-<li><a href="https://win-dash.techidaily.com/instant-solutions-highly-efficient-and-compatible-wireless-device-driver-packs-free-reviewed/"><u>Instant Solutions: Highly Efficient & Compatible Wireless Device Driver Packs Free [REVIEWED]</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/lightning-flicker-viewer-windows-photos/"><u>Lightning Flicker Viewer - Windows Photos</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/the-smart-technique-for-iphone-videos-reduction-and-scaling/"><u>The Smart Technique for iPhone Videos Reduction & Scaling</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/where-is-the-best-place-to-catch-dratini-on-apple-iphone-11-drfone-by-drfone-virtual-ios/"><u>Where Is the Best Place to Catch Dratini On Apple iPhone 11 | Dr.fone</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-from-raw-files-to-artwork-beginners-guide-to-lunapic/"><u>[Updated] From Raw Files to Artwork Beginner’s Guide to LunaPic</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/effective-solutions-when-your-steelseries-arctis-7-microphone-stops-working/"><u>Effective Solutions When Your SteelSeries Arctis 7 Microphone Stops Working</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/1723016954025-fixing-the-silent-bluetooth-connection-solutions-that-work/"><u>Fixing the Silent Bluetooth Connection: Solutions That Work</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/here-are-different-ways-to-find-pokemon-go-trainer-codes-to-add-to-your-account-on-apple-iphone-6-plus-drfone-by-drfone-virtual-ios/"><u>Here are Different Ways to Find Pokemon Go Trainer Codes to Add to Your Account On Apple iPhone 6 Plus | Dr.fone</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/how-to-edit-and-personalize-images-with-apples-photo-cutout-feature-on-iphones-ios-16-update/"><u>How to Edit and Personalize Images with Apple’s Photo Cutout Feature on iPhone's iOS 16 Update</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-how-to-elevate-your-images-with-instagrams-new-filter-options/"><u>In 2024, How to Elevate Your Images with Instagram's New Filter Options</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-ipogo-will-be-the-new-ispoofer-on-apple-iphone-7-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, iPogo will be the new iSpoofer On Apple iPhone 7 Plus? | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-list-of-pokemon-go-joysticks-on-apple-iphone-xs-max-drfone-by-drfone-virtual-ios/"><u>In 2024, List of Pokémon Go Joysticks On Apple iPhone XS Max | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/top-15-augmented-reality-games-like-pokemon-go-to-play-on-apple-iphone-8-plus-drfone-by-drfone-virtual-ios/"><u>Top 15 Augmented Reality Games Like Pokémon GO To Play On Apple iPhone 8 Plus | Dr.fone</u></a></li>
 </ul></div>
 

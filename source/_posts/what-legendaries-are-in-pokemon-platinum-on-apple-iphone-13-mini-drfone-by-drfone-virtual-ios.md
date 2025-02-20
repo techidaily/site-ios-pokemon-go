@@ -1,7 +1,7 @@
 ---
 title: What Legendaries Are In Pokemon Platinum On Apple iPhone 13 mini? | Dr.fone
-date: 2025-02-08T18:55:52.894Z
-updated: 2025-02-10T08:14:57.154Z
+date: 2025-02-14T07:11:48.540Z
+updated: 2025-02-20T06:38:45.948Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -27,10 +27,6 @@ In this post, we will learn about all legendaries in Platinum version. You will 
 
 ![Platinum legendaries 2](https://images.wondershare.com/drfone/Platinum-legendaries-2.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 There are about 18 platinum legendaries Pokemon that you can obtain per game cartridge. These include even Pokemon as well. You can catch them while playing the video game. Here is the list of legendary Pokemon in Pokemon Platinum Version:
 
 **1\. Giratina:** First encountered in its powerful Origin Forme, Girartina exists, after defeating Cyrus, at the ened of the Distortion World. The Level 47 Pokemon occurs before you get the National Dex. When you flee from it or KO it, the Pokemon re-appears at the end of Turnback Cave after you defeat the Elite Four. You have to reach Giratina within 30 rooms, and advisably, never turn back; else you will be left at the cave’s beginning.
@@ -48,6 +44,10 @@ There are about 18 platinum legendaries Pokemon that you can obtain per game car
 **6\. Palkia:** When you arrive at the Spear Pillar, you will see a Pink portal. Interact with it by pressing A to have Palkia Platinum battle you. Another popular among platinum legendaries, Palkia is a hassle-free Pokemon to capture.
 
 ![Platinum legendaries 4](https://images.wondershare.com/drfone/Platinum-legendaries-4.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **7\. Heatran:** Found inside a cave around Stark Mountain, Heatran appears as you come back to the place where Charon was arrested. When you try to enter the Mountain, you team up with Buck, another trainer. You follow him and speak to his grandfather. You catch the Level 50 Heatran once you return to Stark Mountain.
 
@@ -129,29 +129,21 @@ Frankly, Mewtwo can be located only in the Cerulean Cave that further locates in
 
 ![Platinum legendaries 14](https://images.wondershare.com/drfone/Platinum-legendaries-14.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 According to some users, you can get Mewtwo with Pokemon Fire Red or Leaf Green. With these in hand, you can obtain Mewtwo in cerulean cave once you have defeated the Elite 4.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
 Hopefully, these comprehensive guides help you learn about all legendaries in Platinum. Advisably, using the location spoofing with a reliable app like [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) can be a great way to capture more legendary Pokemon in a much easier way.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Most Asked Questions about Pokemon Go Battle League Rewards On Apple iPhone 13 mini
 
 Ever since Pokemon Go Battle League matches have been introduced, players have shifted their focus on ranking up. After all, once the season ends, you can collect amazing Pokemon Go Battle league rewards. You might already know that the 5th season of Battle League is currently running with tons of Pokemon Go PvP rewards up for grabs. Let’s get to know more about these Pokemon Go League rewards and how we can level up in the game easily.
 
 ![pokemon go battle league rewards](https://images.wondershare.com/drfone/2020/pokemon-go-battle-league-rewards.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## What are the Pokemon Go Battle League Rewards?
 
@@ -163,10 +155,6 @@ Pokemon Go Battle League runs different seasons and once a season would end, pla
 - **Rank 10:** If you finish at the highest rank, you will get a free avatar post and avatar items (Libre or Stone inspired)
 
 ![pokemon battle rewards for ranks](https://images.wondershare.com/drfone/2020/pokemon-battle-rewards-for-ranks.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Apart from these Pokemon Go League awards, you will also get a free encounter with different Pokemons. For instance, if you finish at Rank 10, then you can even get a chance to catch a Pikachu Libre.
 
@@ -184,6 +172,10 @@ Apart from these Pokemon Go League awards, you will also get a free encounter wi
 | 10 | Pikachu Libre | Previous Pokemons |
 
 ![pokemon go pikachu libre](https://images.wondershare.com/drfone/2020/pokemon-go-pikachu-libre.jpeg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Get Battle League Pokemon Go Rewards?
 
@@ -205,12 +197,16 @@ When you start playing in Pokemon Go Battle League, Rank 1 would be unlocked. As
 
 ![rank 10 pokemon pvp](https://images.wondershare.com/drfone/2020/rank-10-pokemon-pvp.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Once the Battle League season is finished, you can just go to your profile to see the eligible Pokemon Go PvP rewards. Now, you can just tap on the “Collect” button to claim your rewards.
 
 ![collecting pokemon pvp rewards](https://images.wondershare.com/drfone/2020/collecting-pokemon-pvp-rewards.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Tips to Level-up in Pokemon Battle Leagues
@@ -223,15 +219,15 @@ Most of the rookie PvP trainers make the common mistake of only picking attack-b
 
 ![pokemon go pvp battle](https://images.wondershare.com/drfone/2020/pokemon-go-pvp-battle.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Tip 2: Know the Current Meta Tier
 
 Just like any other PvP game, Pokemon Go Battle Leagues also has a tier-list. That is, some Pokemons are just more powerful than others. Therefore, before you pick your Pokemons, get to know about the current meta-list. This will help you pick more powerful Pokemons that can easily carry a game.
 
 ![meta pokemons in pvp](https://images.wondershare.com/drfone/2020/meta-pokemons-in-pvp.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Tip 3: Catch More Pokemons Easily
 
@@ -247,7 +243,15 @@ Since it is not feasible to step out and look for Pokemons, you can use a locati
 
 ![virtual location 05](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Now when you know about the updated Pokemon Go Battle League rewards, you must be inspired to rank-up in the game. To do that, you can follow the above-listed tips and collect more powerful Pokemons. For this, a location spoofer tool like Dr.Fone – Virtual Location (iOS) would certainly come in handy as it will help you catch your favorite Pokemons remotely.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Pokemon Go No GPS Signal? Here's Every Possible Solution On Apple iPhone 13 mini
 
@@ -282,15 +286,15 @@ Before taking any drastic measures, make sure that the location services on your
 
 After that, you can restart the app and check if it would fix the GPS Pokemon Go issue or not.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Fix 2: Grant the Pokemon Go app Location Access
 
 Turning on the location services on your Apple iPhone 13 mini is not enough and you need to grant the GPS access to the Pokemon Go app. To fix the Pokemon Go GPS problem on your Apple iPhone 13 mini, simply visit its Settings > Privacy > Location Services. Now, from the list of the installed apps, select Pokemon Go and make sure it can access the GPS on your Apple iPhone 13 mini while running (or always).
 
 ![pokemon go location services](https://images.wondershare.com/drfone/2020/pokemon/pokemon-go-location-services.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Fix 3: Set Precise Location for Pokemon Go
 
@@ -300,17 +304,9 @@ To fix these Pokemon Go GPS issues, you can go to your phone’s Settings > Priv
 
 ![iphone precise location](https://images.wondershare.com/drfone/2020/pokemon/iphone-precise-location.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Fix 4: Step Into an Open Area
 
 If you're currently in an area with poor GPS reception due to buildings or trees, try moving to an open area with a clear view of the sky. This can significantly improve your GPS signal strength.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Fix 5: Restart the App and the Apple iPhone 13 mini device
 
@@ -331,6 +327,10 @@ Needless to say, the first thing that you should do is to check the location set
 You can just slide down the Control Center and tap on the GPS button to enable the location services. Besides that, you can also go to your phone’s Settings > Locations and turn it on.
 
 ![android location services](https://images.wondershare.com/drfone/2020/pokemon/android-location-services.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Fix 2: Grant Location access to Pokemon Go
 
@@ -388,18 +388,19 @@ If you're experiencing GPS issues while playing Pokemon GO, consider using Dr. F
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-files.techidaily.com/new-easy-peasy-ffvegior-grab-facebook-video-mp4-files/"><u>[New] Easy Peasy FFVEGIOR Grab Facebook Video MP4 Files</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-2024-approved-unraveling-sierras-icloud-full-access-guide/"><u>[Updated] 2024 Approved Unraveling Sierra's iCloud Full Access Guide</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-cross-platform-connectivity-sharing-youtube-and-twitter-videos-on-snapchat/"><u>[Updated] Cross Platform Connectivity Sharing YouTube & Twitter Videos on Snapchat</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/historys-heaviest-battles-rts-review-of-7-epic-games-for-2024/"><u>History's Heaviest Battles RTS Review of 7 Epic Games for 2024</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/how-can-i-get-more-stardust-in-pokemon-go-on-apple-iphone-15-pro-drfone-by-drfone-virtual-ios/"><u>How can I get more stardust in pokemon go On Apple iPhone 15 Pro? | Dr.fone</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-activate-and-use-life360-ghost-mode-on-poco-c51-drfone-by-drfone-virtual-android/"><u>How To Activate and Use Life360 Ghost Mode On Poco C51 | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/how-to-fix-pokemon-go-route-not-working-on-apple-iphone-6s-drfone-by-drfone-virtual-ios/"><u>How to Fix Pokemon Go Route Not Working On Apple iPhone 6s? | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-additional-tips-about-sinnoh-stone-for-apple-iphone-13-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, Additional Tips About Sinnoh Stone For Apple iPhone 13 Pro Max | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-does-life360-notify-when-you-log-out-on-infinix-smart-8-hd-drfone-by-drfone-virtual-android/"><u>In 2024, Does Life360 Notify When You Log Out On Infinix Smart 8 HD? | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-to-use-pokemon-emerald-master-ball-cheat-on-apple-iphone-6-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Use Pokémon Emerald Master Ball Cheat On Apple iPhone 6 Plus | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-ways-to-trade-pokemon-go-from-far-away-on-apple-iphone-7-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, Ways to trade pokemon go from far away On Apple iPhone 7 Plus? | Dr.fone</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/the-best-gopro-accessories-for-beginners-for-2024/"><u>The Best GoPro Accessories for Beginners for 2024</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-apple-iphone-xs-max-drfone-by-drfone-virtual-ios/"><u>Unova Stone Pokémon Go Evolution List and How Catch Them For Apple iPhone XS Max | Dr.fone</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-in-2024-breaking-ground-in-editing-an-examination-of-the-vida-app/"><u>[Updated] In 2024, Breaking Ground in Editing An Examination of the Vida App</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/a-detailed-pokemon-go-pvp-tier-list-to-make-you-a-pro-trainer-for-apple-iphone-11-pro-drfone-by-drfone-virtual-ios/"><u>A Detailed Pokemon Go PvP Tier List to Make you a Pro Trainer For Apple iPhone 11 Pro | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/elevate-online-media-selecting-the-best-5-quality-boosters/"><u>Elevate Online Media Selecting the Best 5 Quality Boosters</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/ensuring-legitimacy-of-your-youtube-sign-in/"><u>Ensuring Legitimacy of Your YouTube Sign-In</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-a-detailed-pokemon-go-pvp-tier-list-to-make-you-a-pro-trainer-for-apple-iphone-xs-drfone-by-drfone-virtual-ios/"><u>In 2024, A Detailed Pokemon Go PvP Tier List to Make you a Pro Trainer For Apple iPhone XS | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-exclusive-changes-in-photo-backgrounds-visionshift-elite/"><u>In 2024, Exclusive Changes in Photo Backgrounds VisionShift Elite</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-does-the-stardust-trade-cost-in-pokemon-go-on-apple-iphone-13-drfone-by-drfone-virtual-ios/"><u>In 2024, How does the stardust trade cost In pokemon go On Apple iPhone 13? | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-list-of-pokemon-go-joysticks-on-apple-iphone-xs-drfone-by-drfone-virtual-ios/"><u>In 2024, List of Pokémon Go Joysticks On Apple iPhone XS | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-pokemon-go-cooldown-chart-on-apple-iphone-6-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, Pokémon Go Cooldown Chart On Apple iPhone 6 Plus | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-apple-iphone-se-drfone-by-drfone-virtual-ios/"><u>In 2024, Unova Stone Pokémon Go Evolution List and How Catch Them For Apple iPhone SE | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/nsiders-tips-for-youtube-shorts-mastery-for-2024/"><u>The Insider's Tips for YouTube Shorts Mastery for 2024</u></a></li>
+<li><a href="https://techidaily.com/undelete-lost-music-from-poco-f5-5g-by-fonelab-android-recover-music/"><u>Undelete lost music from Poco F5 5G</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/understanding-dall-e-3s-integration-of-editing-tools-work-still-to-be-done/"><u>Understanding DALL-E 3'S Integration of Editing Tools – Work Still to Be Done</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/unveiling-the-secrets-of-performing-advanced-image-queries-on-facebook/"><u>Unveiling the Secrets of Performing Advanced Image Queries on Facebook</u></a></li>
 </ul></div>
 

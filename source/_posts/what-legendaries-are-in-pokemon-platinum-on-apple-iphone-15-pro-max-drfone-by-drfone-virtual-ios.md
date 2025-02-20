@@ -1,7 +1,7 @@
 ---
 title: What Legendaries Are In Pokemon Platinum On Apple iPhone 15 Pro Max? | Dr.fone
-date: 2025-02-08T00:20:00.608Z
-updated: 2025-02-09T16:34:22.883Z
+date: 2025-02-13T06:50:11.603Z
+updated: 2025-02-19T16:32:21.474Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -24,7 +24,7 @@ In the game, players control a female or male character. It starts with three Po
 In this post, we will learn about all legendaries in Platinum version. You will also learn how to capture legendaries in the game.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1: What Legendaries are in Pokemon Platinum?
@@ -67,6 +67,10 @@ There are about 18 platinum legendaries Pokemon that you can obtain per game car
 
 ![Platinum legendaries 6](https://images.wondershare.com/drfone/Platinum-legendaries-6.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **14\. Regice:** With Regigigas on your team, you can access to a special room located in Mt. Coronet. On the exit to Route 216, you will see a cave names Iceberg Ruins. Enter in the cave with Regigigas and reach out to Iceberg Ruins, where Regice will battle you. Regice is located at level 30.
 
 **15\. Registeel:** Located in the Iron Ruins cave on Iron Island, Registeel is accessible only if you have Regigigas on your team. Enter the cave with a Metal Coat, and as you go up to the statue in the cave, Registeel – the level 30 Pokemon – will attack.
@@ -77,11 +81,11 @@ There are about 18 platinum legendaries Pokemon that you can obtain per game car
 
 ![Platinum legendaries 7](https://images.wondershare.com/drfone/Platinum-legendaries-7.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **18\. Arceus:** Arceus, the level 80 Pokemon, is also an event-only Pokemon who is accessible with the Azure Flute obtained from Nintendo Event. At the Spear Pillar, you will be asked if you want to play the flute. If yes, the flute is played and a huge staircase appears. Climb up the staircase and you will find the Pokemon resting there. Go up and battle him.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: How do you catch the legendary Pokemon in platinum?
 
@@ -94,10 +98,6 @@ There are many action replay codes available on the Internet. Using these codes,
 Make sure you get these codes only from reliable websites or sources. Otherwise, you may get banned from playing this game permanently.
 
 ![Platinum legendaries 8](https://images.wondershare.com/drfone/Platinum-legendaries-8.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 2.2 Location Spoofing with Dr. Fone Virtual Location
 
@@ -129,10 +129,6 @@ For this illustration, we will use using Dr.fone to see how to iPhone GPS spoofi
 
 Now, enjoy playing Pokemon Platinum and capture more Legendary Pokemon to level up in the game.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 3: How to get Mewtwo in Pokemon Platinum?
 
 Mewtwo in the Pokemon game was introduced to be the strongest Pokemon. It lives up to that and has a mega evolution that makes Mewtwo even stronger when compared to its original form. The Pokemon can learn powerful psychic moves, such as confusion and recover.
@@ -143,13 +139,13 @@ Frankly, Mewtwo can be located only in the Cerulean Cave that further locates in
 
 According to some users, you can get Mewtwo with Pokemon Fire Red or Leaf Green. With these in hand, you can obtain Mewtwo in cerulean cave once you have defeated the Elite 4.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Conclusion
 
 Hopefully, these comprehensive guides help you learn about all legendaries in Platinum. Advisably, using the location spoofing with a reliable app like [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) can be a great way to capture more legendary Pokemon in a much easier way.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Here are Different Ways to Find Pokemon Go Trainer Codes to Add to Your Account On Apple iPhone 15 Pro Max
 
@@ -167,21 +163,17 @@ Before finding various PoGo trainer codes, you should know where you find your o
 
 ![pokemon go profile](https://images.wondershare.com/drfone/2020/pokemon/pokemon-go-profile.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **2.** This will display details regarding your account with your avatar. From the top section, you can tap on the “Friends” field.
 
 ![pokemon go friends section](https://images.wondershare.com/drfone/2020/pokemon/pokemon-go-friends-section.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **3.** Here, you can view all the trainers in the game you have already added to your account. Now, tap on the “Add Friends” option here to invite a user with their trainer code in Pokemon Go.
 
 ![pokemon go add friends](https://images.wondershare.com/drfone/2020/pokemon/pokemon-go-add-friends.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **4.** That’s it! To add anyone else, you can just enter their PoGo trainer code, and send a request. Besides that, you can view your Pokemon Go trainer code and can even share it with others from here.
 
@@ -190,6 +182,10 @@ Before finding various PoGo trainer codes, you should know where you find your o
 ## Part 2: 5 Best Websites to Find Pokemon Go Trainer Codes
 
 If you are looking for reliable websites to find Pokemon trainer codes, then you can explore these options.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 1\. Reddit
 
@@ -214,6 +210,10 @@ This is a dedicated website to exchange code by trainers in Pokemon Go. You can 
 This is a dedicated app and is considered one of the best places to find Pokemon Go trainer codes. You can look for other players from all over the world in this directory and share your trainer QR codes for Pokemon Go with them.
 
 ![poke friends mobile app](https://images.wondershare.com/drfone/2020/pokemon/poke-friends-mobile-app.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3: 5 Best Discord Servers to Find Trainer Codes in Pokemon Go
 
@@ -243,10 +243,6 @@ Pokesnipers is another popular Pokemon Go Discord server you can consider joinin
 
 ![dicord server pokesnipers](https://images.wondershare.com/drfone/2020/pokemon/dicord-server-pokesnipers.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 4: How to Win Pokemon Go Trainer Battles by Catching Powerful Pokemons
 
 Now when you have added trainer codes in Pokemon Go, you can easily fight with other players. Though, if you want to win more battles, then you need to have the most powerful and meta Pokemons. To catch the Pokemons of your choice remotely, you can use a location spoofing tool like [Dr.Fone – Virtual Location (iOS)](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/).
@@ -266,10 +262,6 @@ I hope that after reading this post, you would be able to find Pokemon Go traine
 Pokémon Go is a viral game; hence many people try to cheat to achieve high scores and invade others' privacy. The good news is that the Pokémon company is very responsive to preventing and combating such attacks. Cooldown Pokémon go another such feature to deter cheating. So let us discuss what cooldown means.
 
 What is a cooldown? Cooldown Time restricts to stop a player from repeating multiple actions at different locations in a specified period.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 1: What does Soft Banned & Cooldown Mean?
 
@@ -319,10 +311,6 @@ So, what action of a player can trigger a cooldown? Let us list them here for qu
 - When you feed a gym defender on a screen radar.
 - Gym battles.
 - When a Pokémon flees, if you try to catch it.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 4\. Actions that DO NOT trigger cooldown?
 
@@ -378,6 +366,10 @@ Looking for a Pokémon Go Spoofer that's still working? Or thinking about [how t
 
 ![drfone-home](https://images.wondershare.com/drfone/guide/drfone-home.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Connect your phone to the system and click on the "Get Started" button to start the process.
 
 ![virtual-location](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
@@ -387,6 +379,10 @@ Connect your phone to the system and click on the "Get Started" button to start 
 In the new screen, navigate to the teleport option on the menu in the top-right corner and click the button to launch it.
 
 ![virtual-location](https://images.wondershare.com/drfone/guide/virtual-location-03.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Now, you can choose the location by entering its name in the search bar or coordinates if you want to be more precise. Then, you can see the desired location on the map on the screen.
 
@@ -401,6 +397,10 @@ When you reach the target location and move your pin, click the "Move Here" butt
 Voila! You have teleported your location to the desired place.
 
 ![virtual-location](https://images.wondershare.com/drfone/guide/virtual-location-07.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 When you want to stop this teleporting, simply click the "Stop Simulation" button and your real location will take effect.
 
@@ -422,16 +422,19 @@ Pokémon Go is a viral and fantastic game. However, sometimes players get into t
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://on-screen-recording.techidaily.com/new-how-to-fix-obs-full-screen-not-working-issue/"><u>[New] How To Fix OBS Full Screen Not Working Issue?</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-journey-to-joyrides-top-6-essential-mc-house-plans/"><u>[Updated] In 2024, Journey to Joyrides Top 6 Essential MC House Plans</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/detailed-guide-of-ispoofer-for-pogo-installation-on-apple-iphone-12-drfone-by-drfone-virtual-ios/"><u>Detailed guide of ispoofer for pogo installation On Apple iPhone 12 | Dr.fone</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/extraction-of-dvd-audio-on-macos-free-ripper-tool/"><u>Extraction of DVD Audio on macOS - Free Ripper Tool</u></a></li>
-<li><a href="https://win-cloud.techidaily.com/guide-facile-pour-debarrasser-vos-doubles-sauvegardes-sous-windows/"><u>Guide Facile Pour Débarrasser Vos Doubles-Sauvegardes Sous Windows</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-fix-it-honor-play-7t-wont-turn-on-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix It Honor Play 7T Wont Turn On | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/how-to-use-pokemon-go-joystick-on-apple-iphone-14-pro-drfone-by-drfone-virtual-ios/"><u>How to use Pokemon Go Joystick on Apple iPhone 14 Pro? | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-apple-iphone-15-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, Here are Some Pro Tips for Pokemon Go PvP Battles On Apple iPhone 15 Plus | Dr.fone</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-high-quality-vector-graphics-top-10-sources/"><u>In 2024, High-Quality Vector Graphics Top 10 Sources</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-pokemon-go-cooldown-chart-on-apple-iphone-8-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, Pokémon Go Cooldown Chart On Apple iPhone 8 Plus | Dr.fone</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-top-5-tracking-apps-to-track-nokia-c32-without-them-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, Top 5 Tracking Apps to Track Nokia C32 without Them Knowing | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-garmin-virb-ultra-30-an-insider-look-at-an-adventure-staple/"><u>[New] Garmin VIRB Ultra 30 An Insider Look at an Adventure Staple</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-top-15-innovative-tools-perfecting-your-virtual-tone/"><u>[Updated] Top 15 Innovative Tools Perfecting Your Virtual Tone</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-how-to-build-a-career-in-graphic-design/"><u>2024 Approved How to Build A Career In Graphic Design</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/effortlessly-strengthen-wi-fi-security-on-windows-10781-a-step-by-step-guide/"><u>Effortlessly Strengthen Wi-Fi Security on Windows 10/7/8.1: A Step-by-Step Guide</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-a-working-guide-for-pachirisu-pokemon-go-map-on-apple-iphone-6s-drfone-by-drfone-virtual-ios/"><u>In 2024, A Working Guide For Pachirisu Pokemon Go Map On Apple iPhone 6s | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-here-are-different-ways-to-find-pokemon-go-trainer-codes-to-add-to-your-account-on-apple-iphone-11-drfone-by-drfone-virtual-ios/"><u>In 2024, Here are Different Ways to Find Pokemon Go Trainer Codes to Add to Your Account On Apple iPhone 11 | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-and-where-to-find-a-shiny-stone-pokemon-for-apple-iphone-14-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, How and Where to Find a Shiny Stone Pokémon For Apple iPhone 14 Pro Max? | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-do-oppo-a1x-5g-screen-sharing-drfone-by-drfone-android/"><u>In 2024, How To Do Oppo A1x 5G Screen Sharing | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-to-use-pokemon-emerald-master-ball-cheat-on-apple-iphone-11-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Use Pokémon Emerald Master Ball Cheat On Apple iPhone 11 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/optimizing-techniques-broadcasting-via-obs-to-facebook-for-2024/"><u>Optimizing Techniques Broadcasting via OBS to Facebook for 2024</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/the-magnificent-art-of-pokemon-go-streaming-on-apple-iphone-12-pro-drfone-by-drfone-virtual-ios/"><u>The Magnificent Art of Pokemon Go Streaming On Apple iPhone 12 Pro? | Dr.fone</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/ultimate-beginners-choice-of-linux-distributions-thoroughly-evaluated-and-ranked-with-expert-reviews-zdnet/"><u>Ultimate Beginner's Choice of Linux Distributions: Thoroughly Evaluated & Ranked with Expert Reviews | ZDNET</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/updated-2024-approved-transforming-lyrics-into-visual-masterpieces-using-adobe-ae/"><u>Updated 2024 Approved Transforming Lyrics Into Visual Masterpieces Using Adobe AE</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/why-is-ipogo-not-working-on-apple-iphone-7-plus-fixed-drfone-by-drfone-virtual-ios/"><u>Why is iPogo not working On Apple iPhone 7 Plus? Fixed | Dr.fone</u></a></li>
 </ul></div>
 

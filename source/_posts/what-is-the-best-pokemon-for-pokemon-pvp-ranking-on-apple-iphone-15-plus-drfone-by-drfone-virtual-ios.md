@@ -1,7 +1,7 @@
 ---
 title: What is the best Pokemon for pokemon pvp ranking On Apple iPhone 15 Plus? | Dr.fone
-date: 2025-02-07T05:33:55.396Z
-updated: 2025-02-10T05:07:47.656Z
+date: 2025-02-18T06:47:28.790Z
+updated: 2025-02-19T18:04:31.567Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -34,14 +34,22 @@ There are lots of sensible reasons why you should engage in the Pokemon Go PvP r
 ![pokemon go battles](https://images.wondershare.com/drfone/article/2024/02/pokemon-go-pvp-rank-1.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Doing the same thing over and over sometimes frustrates us. Therefore, playing Pokemon Go PvP rank battles for a change of scenery is great. It somehow gives us a perfect dose of distraction at times when we feel bored and unmotivated.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### It allows players to learn new gaming skills and improve their techniques
 
 Sure. Catching Pokemon in the wild and visiting nearby PokeStops are incredibly fun activities. However, these tasks are not enough to give players a very constructive gaming training. You must participate in certain undertakings like the Pokemon Go PvP rank battles to hone your gaming skills efficiently. Don’t worry. You can take it slowly and try to work your way up one step at a time.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### It serves as your key to special tournaments and worldwide events
 
@@ -80,10 +88,6 @@ Go Battle League features a total of 24 ranks starting from Rank 1. The last fou
 
 For your information, the Pokemon PvP ranking in the Go Battle League refreshes every season. That means the participants will all go back to Rank 1 once the new season approaches and sets in. Don’t worry. It’s not a big deal. If you’re able to make it last season, you can absolutely do it again one more time. Just stick to your original strategy and be patient at every turn. That’s how you do it.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Tips For Winning Pokemon Go PvP Rank Battles
 
 Do you want to win many Pokemon Go PvP rank battles? Of course, you are. Check out the expert tips listed below. Implement each of them on your next trainer duel.
@@ -93,7 +97,7 @@ Do you want to win many Pokemon Go PvP rank battles? Of course, you are. Check o
 - Deploy Charged Attacks as often as possible during the battle. As for your defense, make sure to utilize Protect Shield for the most valuable member of your team.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 4. Win Pokemon Go PvP Rank Battles With <u>Wondershare Dr.Fone</u>
@@ -135,6 +139,10 @@ Following are the additional evolution items observed in Pokémon Go:
 - Upgrade
 
 ![pokemon go](https://images.wondershare.com/drfone/2020/pokemon-go.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 1：What Pokémon can I evolve with a dragon scale on Pokémon Go?
 
@@ -182,31 +190,23 @@ To let the system duplicate flow by choosing the accurate choices, press the 'Ma
 
 ![virtual location 12](https://images.wondershare.com/drfone/guide/virtual-location-12.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 3: How to get the dragon scale on Pokémon Go?
 
 Pokemon go dragon scale can be obtained by taking charge of Gyms and spinning, waiting for the Pokestops to give you free dragon scales, but the chances are extremely low. PokeStops are symbolized by little blue box images on the map and usually can be observed in places of recreation such as a train station, a landmark, or even a regional post office. When your avatar is near to entering a PokeStop, the blue box image changes into a disc shape. The next thing you need to do is tap the disc, and it will exhibit a picture of the landmark, which is a chance to get a few free products.
 
 You can get your hands on a dragon scale by spinning a specific Pokestop seven days in a row to get the required streak bonus. This won't ensure you a dragon scale; however, it will give you the possibility of achieving other evolutionary objects such as the Sun Stone, Upgrade, Sinnoh Stone, Unova Stone, Metal Coat, and King's Rock.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Conclusion
 
 Specific Pokémon in Pokémon GO now call for rare evolution items such as a steel coat, a sunstone, a king's rock, a dragon scale, or an upgrade to evolve, all of which are unplanned drops from Pokestops. However, the players can make use of [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) application to gain version exclusive Pokemon and evolution items and make advancements in the game.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How Can I Catch the Regional Pokémon without Traveling On Apple iPhone 15 Plus
 
 The main goal that the designers of Pokémon Go had in mind for the past few years was to create a framework that prompts players to get off their loungers and go into the real world in search of Pokémon. If you are wondering why there are certain types of Pokémon enlisted as ‘blanks’ in your Pokedex and you haven’t yet found them, it’s probably because they are marked as ‘regional’ types. This means that these Pokémon are exclusively locked in select regions around the world. Don’t Panic! You don’t have to spend a boat load of cash in order to catch these special regional Pokémon as there are tricks you can apply to catch them without even stepping out of your kitchen.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 1: List of the regional Pokémon that have been announced
 
@@ -222,9 +222,17 @@ List of different Regional Pokémon – Where and How to Catch them All!
 
 As of now, there are over 40 different regional Pokémon divided across generations that can be captured or hatched only in specific expanses of the world. There are of course occasional overlaps of Pokémon slipping out of their region and into other sectors. Let’s get into the list of all the region-specific Pokémon of different generations and where to find them.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Gen 1/ Kanto Pokémon
 
 ![kanto pokemon](https://images.wondershare.com/drfone/2020/202010/kanto-pokemon.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 - **Taouros:** North America.
 - **Farfetch’d:** Asia.
@@ -238,13 +246,13 @@ As of now, there are over 40 different regional Pokémon divided across generati
 - **Heracross:** South America/ Southern Florida.
 - **Corsola:** Equatorial Latitudes.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Gen 3/ Hoenn Pokémon
 
 ![hoenn pokemon](https://images.wondershare.com/drfone/2020/202010/hoenn-pokemon.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 - **Tropius:** The Middle East and Africa.
 - **Torkoal:** Southeast Asia.
@@ -283,10 +291,6 @@ Catching regionally exclusive Pokémon requires you to travel to that location o
 
 To get the best out of your mock location and also to avoid the risk of hitting a light ban on your account, [Dr.Fone Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) by Wondershare has been reviewed as a Mock GPS you can easily rely on. It offers a number of features that can come in handy while faking your location such as adjusting the speed so that it may seem like you’re actually traveling, you can use a 360-degree virtual joystick for manual control over your movements and you can also select specific routes on the map on which you want your in-game avatar to move on.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Step-by-Step Tutorial
 
 You can follow these easy steps to set up and access your Dr.Fone Virtual Location in an instant and teleport to anywhere in the world.
@@ -296,10 +300,6 @@ You can follow these easy steps to set up and access your Dr.Fone Virtual Locati
 Download Dr.Fone – Virtual Location. Install and launch the program. Click ‘Virtual Location’ to get access to the options window.
 
 ![drfone home](https://images.wondershare.com/drfone/guide/drfone-home.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Step 2: Connect Device**
 
@@ -327,10 +327,6 @@ Once the location of your choice pops up, click ‘Move here’ in the pop-up bo
 
 Once the location has been changed, you can center your GPS or move the location on your device, it will still be set to the location you have selected.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 3: Tips to help catch Regional Pokémon
 
 Catching regional Pokémon is just like catching any regular Pokémon. When they spawn near your location, you catch it by throwing a Poke ball at it. If the Poke ball is seen shaking, it means that the Pokémon is resisting and may just pop out from the ball in which case you may have to throw another one at it. Now, if you are traveling and you have limited time or a number of spawns then here are a few tips you can utilize to enhance your chances of landing a catch.
@@ -340,6 +336,10 @@ Catching regional Pokémon is just like catching any regular Pokémon. When they
 - **Keep Consistent:** The algorithm of the game is quite complex but eventually, a pattern emerges. You will notice that if you keep practicing with great or excellent catches with the smaller (low XP) Pokémon, it increases your chances of catching the ones that put up a fight.
 - **Save your Berries:** Feeding a Pokémon with Razz Berries increases your assurances of catching the Pokémon while also giving you a 15x bonus when you land a successful catch. Save your berries for those persistent Pokémon spawns.
 - **Use Powerful Poke balls:** Last but definitely not least, use powerful balls like the Great Ball or Ultra Ball to maximize your chances of catching Pokémon. You should also remember that these are diminishable resources so use them wisely. On catching a Pokémon with a Great ball you will get 15x and with an Ultra ball you would get 2x so utilize them accordingly to catch rare and super rare Pokémon.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -359,22 +359,14 @@ The journey to completing your Pokedex may not be a short one as there are hundr
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-deciphering-the-meaning-of-facebooks-blue-video-icon/"><u>[New] Deciphering the Meaning of Facebook's Blue Video Icon</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/new-unbox-and-discover-samsungs-ue590-4k-freesync-marvel/"><u>[New] Unbox and Discover Samsung's UE590 4K, FreeSync Marvel</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-exploring-8-superior-youtube-to-avi-software-for-2024/"><u>[Updated] Exploring 8 Superior YouTube-to-AVI Software for 2024</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/11-best-pokemon-go-spoofers-for-gps-spoofing-on-apple-iphone-se-drfone-by-drfone-virtual-ios/"><u>11 Best Pokemon Go Spoofers for GPS Spoofing on Apple iPhone SE | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/how-can-i-create-my-pokemon-overworld-maps-on-apple-iphone-15-drfone-by-drfone-virtual-ios/"><u>How Can I Create My Pokemon Overworld Maps On Apple iPhone 15? | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/how-does-the-stardust-trade-cost-in-pokemon-go-on-apple-iphone-7-drfone-by-drfone-virtual-ios/"><u>How does the stardust trade cost In pokemon go On Apple iPhone 7? | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/how-to-enter-the-ispoofer-discord-server-on-apple-iphone-12-drfone-by-drfone-virtual-ios/"><u>How to enter the iSpoofer discord server On Apple iPhone 12 | Dr.fone</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/hp-officejet-pro-8740-drivers-download-guide-compatible-with-windows-11-10-and-8/"><u>HP Officejet Pro 8740 Drivers Download Guide - Compatible with Windows 11, 10 & 8</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/icloud-photo-library-troubleshooting-how-to-overcome-sync-errors-successfully/"><u>ICloud Photo Library Troubleshooting - How to Overcome Sync Errors Successfully</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-a-comprehensive-guide-to-mastering-ipogo-for-pokemon-go-on-apple-iphone-14-drfone-by-drfone-virtual-ios/"><u>In 2024, A Comprehensive Guide to Mastering iPogo for Pokémon GO On Apple iPhone 14 | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-best-pokemons-for-pvp-matches-in-pokemon-go-for-apple-iphone-11-drfone-by-drfone-virtual-ios/"><u>In 2024, Best Pokemons for PVP Matches in Pokemon Go For Apple iPhone 11 | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-what-pokemon-evolve-with-a-dawn-stone-for-apple-iphone-7-drfone-by-drfone-virtual-ios/"><u>In 2024, What Pokémon Evolve with A Dawn Stone For Apple iPhone 7? | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-apple-iphone-11-drfone-by-drfone-virtual-ios/"><u>In 2024, Will Pokémon Go Ban the Account if You Use PGSharp On Apple iPhone 11 | Dr.fone</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/maximize-your-iphone-film-shoots-mastering-8-key-skills-for-2024/"><u>Maximize Your iPhone Film Shoots Mastering 8 Key Skills for 2024</u></a></li>
-<li><a href="https://discover-exceptional.techidaily.com/solving-hardware-compatibility-problems-expert-guide-by-yl-computing/"><u>Solving Hardware Compatibility Problems: Expert Guide by YL Computing</u></a></li>
-<li><a href="https://techidaily.com/three-solutions-to-hard-reset-honor-v-purse-drfone-by-drfone-reset-android-reset-android/"><u>Three Solutions to Hard Reset Honor V Purse? | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/traveling-tips-top-100plus-basic-russian-verbs-and-nouns/"><u>Traveling Tips: Top 100+ Basic Russian Verbs & Nouns</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-best-slow-motion-cameras/"><u>[New] Best Slow-Motion Cameras</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-unlock-creative-potentials-youtube-trailers-with-filmora/"><u>[Updated] 2024 Approved Unlock Creative Potentials YouTube Trailers with Filmora</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/full-guide-to-catch-100-iv-pokemon-using-a-map-on-apple-iphone-xr-drfone-by-drfone-virtual-ios/"><u>Full Guide to Catch 100 IV Pokémon Using a Map On Apple iPhone XR | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/hacks-to-do-pokemon-go-trainer-battles-for-apple-iphone-12-drfone-by-drfone-virtual-ios/"><u>Hacks to do pokemon go trainer battles For Apple iPhone 12 | Dr.fone</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/honeyed-audio-nirvana-at-economical-prices/"><u>Honeyed Audio Nirvana at Economical Prices</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-apple-iphone-xs-drfone-by-drfone-virtual-ios/"><u>How to get the dragon scale and evolution-enabled pokemon On Apple iPhone XS? | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-additional-tips-about-sinnoh-stone-for-apple-iphone-12-drfone-by-drfone-virtual-ios/"><u>In 2024, Additional Tips About Sinnoh Stone For Apple iPhone 12 | Dr.fone</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/solving-the-internet-explorer-no-longer-responding-error-a-step-by-step-guide/"><u>Solving the 'Internet Explorer No Longer Responding' Error: A Step-by-Step Guide</u></a></li>
+<li><a href="https://network-issues.techidaily.com/step-by-step-windows-8-troubleshooting-with-safe-mode-and-clean-reinstalls/"><u>Step-by-Step Windows 8: Troubleshooting with Safe Mode & Clean Reinstalls</u></a></li>
 </ul></div>
 

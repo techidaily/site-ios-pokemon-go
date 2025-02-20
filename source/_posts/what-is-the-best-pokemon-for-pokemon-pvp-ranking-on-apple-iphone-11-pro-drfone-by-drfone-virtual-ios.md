@@ -1,7 +1,7 @@
 ---
 title: What is the best Pokemon for pokemon pvp ranking On Apple iPhone 11 Pro? | Dr.fone
-date: 2025-02-08T01:45:38.087Z
-updated: 2025-02-10T01:49:40.282Z
+date: 2025-02-14T17:04:12.202Z
+updated: 2025-02-19T21:14:01.657Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -30,12 +30,16 @@ Pokemon Go PvP rank battles are far different from other forms of duel in the ga
 There are lots of sensible reasons why you should engage in the Pokemon Go PvP rank game. Some of them are enumerated below. Check out the list to learn more.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### It upgrades the gaming experience to a whole new level
 
 ![pokemon go battles](https://images.wondershare.com/drfone/article/2024/02/pokemon-go-pvp-rank-1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Doing the same thing over and over sometimes frustrates us. Therefore, playing Pokemon Go PvP rank battles for a change of scenery is great. It somehow gives us a perfect dose of distraction at times when we feel bored and unmotivated.
 
@@ -60,6 +64,10 @@ Accessing the Go Battle League and participating in your preferred battle is ind
 
 ![poke ball option](https://images.wondershare.com/drfone/article/2024/02/pokemon-go-pvp-rank-3.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 - **Step 3:** From there, click **Battle.**
 
 ![battle option](https://images.wondershare.com/drfone/article/2024/02/pokemon-go-pvp-rank-4.jpg)
@@ -69,7 +77,7 @@ Accessing the Go Battle League and participating in your preferred battle is ind
 ![gbl reward track](https://images.wondershare.com/drfone/article/2024/02/pokemon-go-pvp-rank-5.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 - **Step 5:** Finalize your three-member Pokemon team and start battling against another trainer you match with.
@@ -103,17 +111,21 @@ It’s fair to say that winning Pokemon Go PvP rank battles relies heavily on ho
 
 ![wondershare drfone virtual location](https://images.wondershare.com/drfone/guide/virtual-location-08.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 - **Step 5:** Configure the settings according to your liking. Start by specifying your preferred number and type of trips. Then, adjust the movement speed by dragging the slider from left to right. After that, it’s time to commence the simulation. Click **Move Here** to proceed. If you wish to reset your inputs, click **Clear** instead.
 
 ![simulation settings](https://images.wondershare.com/drfone/guide/virtual-location-09.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 - **Step 6:** The simulation will begin in a second. Use the details on the map to monitor the real-time progress. If you wish to halt the movement for a little while, click **Pause.** Should you wish to start all over again, click **Clear** instead and repeat the entire process one more time.
 
 ![movement simulation ongoing](https://images.wondershare.com/drfone/guide/virtual-location-10.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -136,15 +148,15 @@ Following are the additional evolution items observed in Pokémon Go:
 
 ![pokemon go](https://images.wondershare.com/drfone/2020/pokemon-go.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1：What Pokémon can I evolve with a dragon scale on Pokémon Go?
 
 The pokemon go dragon scale is one of the new evolution objects that can be employed in association with Pokemon Candy to evolve some of the generation 1 Pokemon to new generation 2 evolutions. The dragon scale is extremely strong and rigid. We can only make use of our Dragon Scale on a specific Pokemon. Dragon scale pokemon go evolutions contain the alteration of Seadra into Kingdra by combining the dragon scale along with 100 Horsea candies - making Kingdra a sturdy pocket monster ideal for raids and taking charge over the gyms.
 
 ![seadra evolving to kingdra](https://images.wondershare.com/drfone/2020/seadra-evolving-to-kingdra.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Once receiving a Dragon Scale, a player can only use it to evolve Seadra. Any other Pokemon will not evolve with it or even need it to evolve.
 
@@ -162,10 +174,6 @@ You can click the ‘Get Started’ button to initiate the action as soon as you
 
 ![virtual location 01](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 2: Mirroring Motion amid steps:**
 
 Unfold the top right area of the initial option before reaching Dr. Fone's GUI, which permits you to imitate maneuver amid the two spots. Pick the positioning pin and click on the ‘transfer here’ button in the search bar.
@@ -180,7 +188,15 @@ The change location will act as genuine for the Pokémon Go application, and it 
 
 ![virtual location 10](https://images.wondershare.com/drfone/guide/virtual-location-10.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![virtual location 11](https://images.wondershare.com/drfone/guide/virtual-location-11.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 3: Movement Simulation between more than two spots:**
 
@@ -189,14 +205,6 @@ Dr. Fone's application also lets you fake your motion joining more than two posi
 To let the system duplicate flow by choosing the accurate choices, press the 'March' button. You will have to do the Pokémon Go walking trick at some point. Dr. Fone's virtual motion replicator application makes your life a lot easier and lets you do the job without having to worry about travel charges.
 
 ![virtual location 12](https://images.wondershare.com/drfone/guide/virtual-location-12.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 3: How to get the dragon scale on Pokémon Go?
 
@@ -207,10 +215,6 @@ You can get your hands on a dragon scale by spinning a specific Pokestop seven d
 ## Conclusion
 
 Specific Pokémon in Pokémon GO now call for rare evolution items such as a steel coat, a sunstone, a king's rock, a dragon scale, or an upgrade to evolve, all of which are unplanned drops from Pokestops. However, the players can make use of [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) application to gain version exclusive Pokemon and evolution items and make advancements in the game.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Preparation to Beat Giovani in Pokemon Go For Apple iPhone 11 Pro
 
@@ -258,6 +262,10 @@ For this step, you’ve got nothing to do. All three objectives have been automa
 
 ![giovani special research](https://images.wondershare.com/drfone/2020/giovani-special-research.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 After completing the quest above, Giovani Special Research or Looming in the Shadows is the next and final quest you have to complete to face Giovani. It's a six-step Special Research that introduces the Team Go Rocket Grunts and Leaders: Cliff, Arlo, and Sierra.
 
 ![a troubling situation task](https://images.wondershare.com/drfone/2020/a-troubling-situation-task.jpg)
@@ -288,10 +296,6 @@ Once you defeat Team Go Rocket's second lineup creatures, you will have to battl
 
 Now you know the best Giovani Pokemon Go counters to use against each lineup of creatures, leverage it to advance to the next phase of the game where you will face the big bad boss himself, Giovani.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 3. Tips to Beat Giovani in Pokemon Go
 
 ![giovani](https://images.wondershare.com/drfone/2020/giovani.jpg)
@@ -317,10 +321,6 @@ Guide to Use Dr.fone Virtual Location to Get Stronger Pokemon in Giovanni Pokemo
 **Step 2:** The interface above will appear on your screen. With the aid of a lightning cable, connect your Apple iPhone 11 Pro to a PC, then click on the Virtual Location icon. A new interface will pop up as shown in the image below
 
 ![drfone home](https://images.wondershare.com/drfone/guide/drfone-home.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Click on Get Started to change your location.
 
@@ -350,18 +350,21 @@ And now you are good to have one of the strongest Pokemon on your team when figh
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-journey-journaling-paving-your-way-in-the-world-of-travel-vlogging/"><u>[Updated] In 2024, Journey Journaling Paving Your Way in the World of Travel Vlogging</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-secure-your-memories-long-term-webcam-video-storage-in-vlc/"><u>[Updated] In 2024, Secure Your Memories Long-Term Webcam Video Storage in VLC</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/3-easy-solutions-to-hard-reset-gionee-f3-pro-drfone-by-drfone-reset-android-reset-android/"><u>3 Easy Solutions to Hard Reset Gionee F3 Pro | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-apple-iphone-11-drfone-by-drfone-virtual-ios/"><u>4 solution to get rid of pokemon fail to detect location On Apple iPhone 11 | Dr.fone</u></a></li>
-<li><a href="https://iphone-transfer.techidaily.com/effortless-ways-to-transfer-data-from-your-apple-iphone-7-plus-to-iphone-15-drfone-by-drfone-transfer-from-ios/"><u>Effortless Ways to Transfer Data from Your Apple iPhone 7 Plus to iPhone 15 | Dr.fone</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/flipping-photo-lightness-for-an-alternate-look/"><u>Flipping Photo Lightness for an Alternate Look</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/heres-everything-you-should-know-about-pokemon-stops-in-detail-on-apple-iphone-x-drfone-by-drfone-virtual-ios/"><u>Heres Everything You Should Know About Pokemon Stops in Detail On Apple iPhone X | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/how-do-you-get-sun-stone-evolutions-in-pokemon-for-apple-iphone-7-plus-drfone-by-drfone-virtual-ios/"><u>How Do You Get Sun Stone Evolutions in Pokémon For Apple iPhone 7 Plus? | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-transfer-data-from-iphone-14-plus-to-other-iphone-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From iPhone 14 Plus To Other iPhone? | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-tecno-spark-20c-to-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Tecno Spark 20C To Phone | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-apple-iphone-x-drfone-by-drfone-virtual-ios/"><u>In 2024, Will Pokémon Go Ban the Account if You Use PGSharp On Apple iPhone X | Dr.fone</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/solving-the-problem-of-broken-usb-connections-on-your-windows-10-or-11-device/"><u>Solving the Problem of Broken USB Connections on Your Windows 10 or 11 Device</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/ways-to-trade-pokemon-go-from-far-away-on-apple-iphone-xr-drfone-by-drfone-virtual-ios/"><u>Ways to trade pokemon go from far away On Apple iPhone XR? | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/onserve-space-not-time-youtube-video-length-adjustment-for-2024/"><u>[New] Conserve Space, Not Time YouTube Video Length Adjustment for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-the-ultimate-guide-incorporating-facebook-live-into-websites/"><u>[New] The Ultimate Guide Incorporating Facebook LIVE Into Websites</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-fixing-audio-gaps-in-social-network-videos-for-2024/"><u>[Updated] Fixing Audio Gaps in Social Network Videos for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-simple-screen-capture-techniques-to-grab-youtube-soundtracks/"><u>[Updated] Simple Screen-Capture Techniques to Grab YouTube Soundtracks</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-enhance-viewing-experience-by-adjusting-snapchats-frame-rate/"><u>2024 Approved Enhance Viewing Experience by Adjusting Snapchat's Frame Rate</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/a-detailed-pokemon-go-pvp-tier-list-to-make-you-a-pro-trainer-for-apple-iphone-13-drfone-by-drfone-virtual-ios/"><u>A Detailed Pokemon Go PvP Tier List to Make you a Pro Trainer For Apple iPhone 13 | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/how-and-where-to-find-a-shiny-stone-pokemon-for-apple-iphone-se-2022-drfone-by-drfone-virtual-ios/"><u>How and Where to Find a Shiny Stone Pokémon For Apple iPhone SE (2022)? | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-a-working-guide-for-pachirisu-pokemon-go-map-on-apple-iphone-14-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, A Working Guide For Pachirisu Pokemon Go Map On Apple iPhone 14 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-all-you-need-to-know-about-mega-greninja-for-tecno-pova-5-drfone-by-drfone-virtual-android/"><u>In 2024, All You Need To Know About Mega Greninja For Tecno Pova 5 | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-catch-or-beat-sleeping-snorlax-on-pokemon-go-for-apple-iphone-13-mini-drfone-by-drfone-virtual-ios/"><u>In 2024, Catch or Beat Sleeping Snorlax on Pokemon Go For Apple iPhone 13 mini | Dr.fone</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/in-2024-expert-choice-list-ultimate-streaming-audio-gear/"><u>In 2024, Expert Choice List Ultimate Streaming Audio Gear</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-what-legendaries-are-in-pokemon-platinum-on-apple-iphone-15-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, What Legendaries Are In Pokemon Platinum On Apple iPhone 15 Plus? | Dr.fone</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/in-depth-review-unpacking-the-power-and-mobility-of-the-new-samsung-galaxy-chromebook/"><u>In Depth Review: Unpacking the Power & Mobility of the New Samsung Galaxy Chromebook</u></a></li>
+<li><a href="https://win-able.techidaily.com/sony-vegas-stability-solutions-how-to-prevent-unexpected-software-shutdowns/"><u>Sony Vegas Stability Solutions: How To Prevent Unexpected Software Shutdowns</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/the-magnificent-art-of-pokemon-go-streaming-on-apple-iphone-12-drfone-by-drfone-virtual-ios/"><u>The Magnificent Art of Pokemon Go Streaming On Apple iPhone 12? | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/top-15-augmented-reality-games-like-pokemon-go-to-play-on-apple-iphone-12-pro-drfone-by-drfone-virtual-ios/"><u>Top 15 Augmented Reality Games Like Pokémon GO To Play On Apple iPhone 12 Pro | Dr.fone</u></a></li>
 </ul></div>
 

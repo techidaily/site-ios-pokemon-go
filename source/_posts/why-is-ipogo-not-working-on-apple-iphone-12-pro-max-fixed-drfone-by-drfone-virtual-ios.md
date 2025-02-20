@@ -1,7 +1,7 @@
 ---
 title: Why is iPogo not working On Apple iPhone 12 Pro Max? Fixed | Dr.fone
-date: 2025-02-06T02:12:11.048Z
-updated: 2025-02-09T17:13:14.829Z
+date: 2025-02-14T22:42:34.685Z
+updated: 2025-02-20T06:19:48.593Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -29,10 +29,6 @@ iPogo is a free to use Pokémon Go++ mod which can be downloaded as an APK file 
 - You keep track of Pokémon spawns, quests and raids using the feed on your iPogo.
 
 With all these amazing benefits at hand, it seems almost unfair to not be able to make the best of it if iPogo keeps crashing or stops working. Let’s look into the probable reasons why your iPogo is not working and explore methods to solve this dilemma.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 1: Common problem that iPogo is not working
 
@@ -101,10 +97,6 @@ Now, you are required to turn on the ‘teleport mode’. To do this, simply cli
 
 ![virtual location 04](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 5: Start Teleporting**
 
 Once you enter the location, a pop-up will appear. Here, you can see the distance of the location you have chosen. Click on ‘Move here’ in the pop up box and you are good to go.
@@ -112,7 +104,7 @@ Once you enter the location, a pop-up will appear. Here, you can see the distanc
 ![virtual location 05](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Now, the location is changed. You can now open any location based app on your Apple iPhone 12 Pro Max and check the location. It will show the location you have selected.
@@ -146,16 +138,12 @@ Catching all Pokemon GO regional exclusive creatures and completing your Pokedex
 
 Avid Pokemon trainers can use one or a combination of these strategies to swiftly fill up their Pokedex with complete data about all Pokemon in the wild.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 3. Continents of Regional Pokemon
 
 ![regional spawn points in pokemon go](https://images.wondershare.com/drfone/article/2024/03/catch-all-pokemon-go-regional-exclusives-2.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 The spawn points of regional Pokemon vary significantly between creatures. Some are exclusive to a hemisphere, others to a continent, while the third group only spawns in a few specific countries. Keeping track of it all can be challenging, and that’s why we’ve created a detailed information table with regions and specific Pokemon GO regional exclusives you can find in each.
@@ -177,13 +165,13 @@ While they’re categorized as available on the entire continent, it’s worth n
 
 With almost 60 Pokemon GO regional exclusives in 2024, keeping track of where each creature spawns can be a nightmare, especially when some Pokemon can only be found in tiny and specific areas. However, you don’t necessarily have to remember the location of each regional Pokemon, as there are other ways of learning about their distribution.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Getting Information From the Community
 
 The primary method of acquiring information that most players rely on is keeping in touch with the Pokemon GO community. Players can follow Pokemon GO creators, watch YouTube news channels covering new releases, and join countless forums and social media pages dedicated to the game.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Using Official Pokemon Go Announcements
 
@@ -202,6 +190,10 @@ Using Dr.Fone to change your virtual location is remarkably straightforward and 
 3. Click **Toolbox**in the upper left part of the screen and select **Virtual Location**.
 
 ![wondershare dr.fone’s home page](https://images.wondershare.com/drfone/guide/drfone-home.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 5. Connect your Apple iPhone 12 Pro Max or Android to the computer via USB or Wi-Fi.
 6. Select the **Teleport Mode**in the top right part.
@@ -224,6 +216,10 @@ Using Dr.Fone to change your virtual location is remarkably straightforward and 
 
 ![confirm location change on the phone](https://images.wondershare.com/drfone/guide/virtual-location-07.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Wondershare Dr.Fone also includes a Jump Teleport Mode, allowing you to swiftly swap virtual locations and simulate movement along a predestined route. This feature can be remarkably beneficial for Pokemon GO players, and here’s how you can use it:
 
 1. Click the **Jump Teleport Mode**button (the second button in the row).
@@ -237,6 +233,10 @@ Wondershare Dr.Fone also includes a Jump Teleport Mode, allowing you to swiftly 
 5. Switch your virtual location by clicking **Next Point**and **Last Point** to move forward or backward.
 
 ![move along the created route](https://images.wondershare.com/drfone/guide/start-use-jump-teleport-mode.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Movement simulation works exceptionally well for catching Pokemon around the globe, and you’ll be able to encounter dozens of these. Use Wondershare Dr.Fone to progress swiftly through the game and catch them all!
 
@@ -268,6 +268,10 @@ Pokemon Go is one of the most popular augmented reality location-based games tha
 
 <iframe allowfullscreen="allowfullscreen" frameborder="0" src="https://www.youtube.com/embed/qLfCHnwsagk"></iframe>
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: What’s the Need for a Pokemon Go Joystick?
 
 If you are an avid Pokemon Go player, then you might already know that the game demands us to step outside to catch Pokemons or participate in raids. Sadly, not everyone can travel so much on their own. Therefore, you might consider using a Pokemon Go joystick on iOS/Android under the following circumstances.
@@ -286,17 +290,9 @@ Please note that the use of any location spoofing or Pokemon Go hack (joystick) 
 
 ![Pokemon Go Warnings](https://images.wondershare.com/drfone/2020/2020/pokemon-go-joystick-2.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 3: How to Fake GPS in Pokemon Go: 3 Foolproof Solutions
 
 Out of all the Pokemon Go joystick and location spoofing solutions, I would recommend trying the following tools.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 3.1 Pokemon Go Joystick for iOS (No Jailbreak Needed)
 
@@ -316,10 +312,6 @@ Once your Apple iPhone 12 Pro Max is connected, its present location would autom
 
 ![virtual location 04](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Afterward, you can select the target location and the interface would automatically load it. You can now move the pin around and even zoom in/out the map to get the desired spot. Lastly, click on the “Move Here” button to spoof the fake GPS on Pokemon Go.
 
 ![virtual location](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
@@ -330,9 +322,17 @@ To use the Pokemon Go joystick iOS solution, you can select the One-stop or Mult
 
 ![virtual location](https://images.wondershare.com/drfone/guide/virtual-location-11.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Afterward, you can enter the number of times you want to cover the route and even set up a preferred speed. Lastly, click on the “March” button to start the simulation on the map. You can also use a joystick at the bottom to move around realistically on Pokemon Go.
 
 ![virtual location](https://images.wondershare.com/drfone/guide/virtual-location-12.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Video Guide:** Teleport to anywhere in the world!
 
@@ -347,10 +347,6 @@ Just like iPhone, Android device owners can also implement these Pokemon Go hack
 To start with, you can just go to the Play Store page of the GPS Joystick app and install it on your device. Later, you can enable the Developer Options on the phone by going to its Settings > About Phone and tapping the “Build Number” field 7 times.
 
 ![GPS Joystick Android Install](https://images.wondershare.com/drfone/2020/2020/pokemon-go-joystick-3.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Afterward, go to its Settings > Developer Options and set the Pokemon Go spoofer APK the default mock location app.
 
@@ -392,6 +388,10 @@ Great! Now, you can just launch the FGL Pro app on your phone and tap on the sea
 
 ![FBL Pro Fake GPS](https://images.wondershare.com/drfone/2020/2020/pokemon-go-joystick-9.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 4: Tips to Avoid your Pokemon Go Account from Getting Banned
 
 If you want to avoid getting your account banned and still use a reliable spoofing app for Pokemon Go, then consider the following tips:
@@ -421,16 +421,22 @@ There you go! By now, you would be able to implement these spoofing Pokemon Go t
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-craft-your-contents-voyage-from-camera-to-instagram-tv-for-2024/"><u>[Updated] Craft Your Content's Voyage From Camera to Instagram TV for 2024</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-harnessing-online-revenue-multiplatform-studio-use-for-2024/"><u>[Updated] Harnessing Online Revenue Multiplatform Studio Use for 2024</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/2024-approved-revamping-youtube-images-adding-electric-neon-frames/"><u>2024 Approved Revamping YouTube Images Adding Electric Neon Frames</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/chagpt-side-job-potential-a-money-making-perspective/"><u>ChaGPT Side Job Potential: A Money-Making Perspective</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ning-your-musical-journey-youtube-playlist-construction-tips-webapp-for-2024/"><u>Designing Your Musical Journey YouTube Playlist Construction Tips Web/App for 2024</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/exploring-the-inherent-add-ons-of-chatgpt-and-their-functionalities/"><u>Exploring the Inherent Add-Ons of ChatGPT and Their Functionalities</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/in-2024-mastering-the-art-of-crafting-engaging-youtube-screen-closures/"><u>In 2024, Mastering the Art of Crafting Engaging YouTube Screen Closures</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-passfab-iphone-se-2022-backup-unlocker-top-4-alternatives-drfone-by-drfone-ios/"><u>In 2024, PassFab iPhone SE (2022) Backup Unlocker Top 4 Alternatives | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/overcoming-common-challenges-solving-persistent-chivalry-ii-crash-errors/"><u>Overcoming Common Challenges: Solving Persistent Chivalry II Crash Errors</u></a></li>
-<li><a href="https://games-able.techidaily.com/razer-redefines-mechanics-with-their-blackwidow-v4-launch/"><u>Razer Redefines Mechanics with Their BlackWidow V4 Launch</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/troubleshooting-steps-for-faulty-onikuma-mic-setup-fixed/"><u>Troubleshooting Steps for Faulty Onikuma Mic Setup [FIXED]</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-the-biggest-tweet-waves-of-2023-decoded/"><u>[New] 2024 Approved The Biggest Tweet Waves of 2023 Decoded</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-embark-into-the-best-youtube-vr-content-ever/"><u>[Updated] 2024 Approved Embark Into the Best YouTube VR Content Ever</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-navigating-the-intricacies-of-networked-livestream-with-vlc/"><u>[Updated] 2024 Approved Navigating the Intricacies of Networked Livestream with VLC</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/11-best-pokemon-go-spoofers-for-gps-spoofing-on-apple-iphone-x-drfone-by-drfone-virtual-ios/"><u>11 Best Pokemon Go Spoofers for GPS Spoofing on Apple iPhone X | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/how-does-the-stardust-trade-cost-in-pokemon-go-on-apple-iphone-6-drfone-by-drfone-virtual-ios/"><u>How does the stardust trade cost In pokemon go On Apple iPhone 6? | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-apple-iphone-6s-plus-to-windows-10-drfone-by-drfone-ios/"><u>How to Mirror Apple iPhone 6s Plus to Windows 10? | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-use-snapchat-location-spoofer-to-protect-your-privacy-on-xiaomi-redmi-12-5g-drfone-by-drfone-virtual-android/"><u>How to use Snapchat Location Spoofer to Protect Your Privacy On Xiaomi Redmi 12 5G? | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-to-get-and-use-pokemon-go-promo-codes-on-apple-iphone-14-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Get and Use Pokemon Go Promo Codes On Apple iPhone 14 Plus | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-straightforward-steps-for-hassle-free-high-dynamic-range/"><u>In 2024, Straightforward Steps for Hassle-Free High Dynamic Range</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-the-magnificent-art-of-pokemon-go-streaming-on-apple-iphone-12-drfone-by-drfone-virtual-ios/"><u>In 2024, The Magnificent Art of Pokemon Go Streaming On Apple iPhone 12? | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-the-top-5-android-apps-that-use-fingerprint-sensor-to-lock-your-apps-on-xiaomi-redmi-note-13-5g-by-drfone-android/"><u>In 2024, The Top 5 Android Apps That Use Fingerprint Sensor to Lock Your Apps On Xiaomi Redmi Note 13 5G</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-why-cant-i-install-the-ipogo-on-apple-iphone-xs-max-drfone-by-drfone-virtual-ios/"><u>In 2024, Why cant I install the ipogo On Apple iPhone XS Max | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/pokemon-go-error-12-failed-to-detect-location-on-apple-iphone-13-pro-drfone-by-drfone-virtual-ios/"><u>Pokemon Go Error 12 Failed to Detect Location On Apple iPhone 13 Pro? | Dr.fone</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/rapid-solution-for-printer-not-plugged-in/"><u>Rapid Solution for Printer Not Plugged In</u></a></li>
+<li><a href="https://techidaily.com/recover-apple-iphone-6s-data-from-ios-icloud-drfone-by-drfone-ios-data-recovery-ios-data-recovery/"><u>Recover Apple iPhone 6s Data From iOS iCloud | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/ultimate-guide-to-catch-the-regional-located-pokemon-for-apple-iphone-12-mini-drfone-by-drfone-virtual-ios/"><u>Ultimate Guide to Catch the Regional-Located Pokemon For Apple iPhone 12 mini | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-apple-iphone-11-drfone-by-drfone-virtual-ios/"><u>What is the best Pokemon for pokemon pvp ranking On Apple iPhone 11? | Dr.fone</u></a></li>
 </ul></div>
 

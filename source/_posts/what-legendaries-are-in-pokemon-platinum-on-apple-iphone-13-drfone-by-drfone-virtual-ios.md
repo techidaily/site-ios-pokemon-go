@@ -1,7 +1,7 @@
 ---
 title: What Legendaries Are In Pokemon Platinum On Apple iPhone 13? | Dr.fone
-date: 2025-02-07T17:36:15.579Z
-updated: 2025-02-10T00:02:52.816Z
+date: 2025-02-16T19:45:15.286Z
+updated: 2025-02-19T22:01:55.798Z
 tags: 
   - virtual location change
   - pokemon-go
@@ -74,14 +74,10 @@ There are about 18 platinum legendaries Pokemon that you can obtain per game car
 ![Platinum legendaries 7](https://images.wondershare.com/drfone/Platinum-legendaries-7.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **18\. Arceus:** Arceus, the level 80 Pokemon, is also an event-only Pokemon who is accessible with the Azure Flute obtained from Nintendo Event. At the Spear Pillar, you will be asked if you want to play the flute. If yes, the flute is played and a huge staircase appears. Climb up the staircase and you will find the Pokemon resting there. Go up and battle him.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 2: How do you catch the legendary Pokemon in platinum?
 
@@ -107,9 +103,17 @@ For this illustration, we will use using Dr.fone to see how to iPhone GPS spoofi
 
 ![Platinum legendaries 9](https://images.wondershare.com/drfone/guide/drfone-home.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 2:** Tap the ‘Virtual Location’ option at Dr.Fone home screen to change the location of your device. You will see another window opened up on your phone’s screen.
 
 ![Platinum legendaries 10](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 3:** Next, click on ‘Get Started’ and select the desired fake location on the map you see on the Dr.Fone app. At the top-right corner of the window, there are three icons. Click on the third icon - Teleport. Next, tap on the desired location or enter the name of the location in the search box you see on the left side.
 
@@ -133,10 +137,6 @@ Frankly, Mewtwo can be located only in the Cerulean Cave that further locates in
 
 ![Platinum legendaries 14](https://images.wondershare.com/drfone/Platinum-legendaries-14.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 According to some users, you can get Mewtwo with Pokemon Fire Red or Leaf Green. With these in hand, you can obtain Mewtwo in cerulean cave once you have defeated the Elite 4.
 
 ## Conclusion
@@ -144,7 +144,7 @@ According to some users, you can get Mewtwo with Pokemon Fire Red or Leaf Green.
 Hopefully, these comprehensive guides help you learn about all legendaries in Platinum. Advisably, using the location spoofing with a reliable app like [Dr.Fone - Virtual Location](https://tools.techidaily.com/wondershare/drfone/virtual-location-changer/) can be a great way to capture more legendary Pokemon in a much easier way.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How Can I Create My Pokemon Overworld Maps On Apple iPhone 13?
@@ -163,7 +163,7 @@ Pokemon Go location map is very useful when you are playing Pokemon Go.
 - 4.It will be easy to find any recent Pokemon locations in Go. You can follow them and catch them up before they see you.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2. Create a Pokemon Go Map using WordPress Google Maps
@@ -181,29 +181,17 @@ With WordPress Google Maps, you can create custom maps with high-end markers, pr
 
 Once you create Pokestop maps, you can now check the location with the best gpx map creator for Pokemon Go – Dr. Fone Virtual Location. It lets you fake the location of Pokestops anywhere you wish to go and visit them remotely. Follow these steps to spoof the location of your Apple iPhone 13 anywhere in the world with Dr. Fone Virtual Location.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Step 1. Connect your Apple iPhone 13
 
 Ensure you have first noted the address of the Pokestop before you embark on visiting it. To continue, connect your Apple iPhone 13 to your computer then open Dr.Fone toolkit. Next, select which Virtual Location module to use and hit the 'Get Started' button.
 
 ![drfone](https://images.wondershare.com/drfone/guide/virtual-location-01.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Step 2. Choose your target location
 
 Wait for your Apple iPhone 13 to be connected and then key in the required details of the location you have in mind. Next, click on the 'Teleport Mode' icon located at the top-right corner of the screen. Then enter the details of the location you want to visit in the search bar. You can also use its coordinates.
 
 ![virtual location 04](https://images.wondershare.com/drfone/guide/virtual-location-04.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Step 3. Spoof your Apple iPhone 13 device's location
 
@@ -212,7 +200,11 @@ You should now be ready to go virtual. Once you spoof your device's location, yo
 ![Fake the gps on the map](https://images.wondershare.com/drfone/guide/virtual-location-05.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Step 4. Draw a map
@@ -220,6 +212,10 @@ You should now be ready to go virtual. Once you spoof your device's location, yo
 The spoofed location will be the 'Start' point of your route. Now, use one-stop or multi-stop modes to simulate the movement of your Apple iPhone 13 by drawing a route on the map. Also, choose at what speed you want to walk. If you want to be realistic, make use of this Pokemon map creator's GPS joystick to fully accomplish your mission.
 
 ![Choose to simulate using one-stop or multi-stop modes](https://images.wondershare.com/drfone/guide/virtual-location-10.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -232,6 +228,10 @@ After the incredible hype of finally getting the chance to battle other players,
 It’s not the first time trainers have experienced bugs in the game and a long wait during maintenance breaks, but patience wears thin as after 2 weeks into the release of the super hyped Battle League, trainers all around the world are yet to have access to it.
 
 The root cause of this disappointing course of events was a major bug in the first season of the Battle League. Some players could simply use “charged moves” repetitively without recharging. Thankfully Niantic is coming up with a fix.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 1: What are the Go battle league known issues?
 
@@ -312,10 +312,6 @@ There are several adjustments to the program that makes it fun to use. You can a
 - You can set the speed according your choice and all other apps would track you as your pointer is teleported manually or automatically.
 - You can also use a free hand joystick to move the pointer on the map according to the movement of your finger.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Tip #2
 
 - You can set up multiple lures on several Poke stops and return to those exact coordinates to catch your lured Pokémon.
@@ -328,6 +324,10 @@ There are several adjustments to the program that makes it fun to use. You can a
 ### Tip #4
 
 - Use Lucky Egg to double your XPs earned to increase the chances of getting Pokémon which when evolved spews more XP and Candy.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -347,22 +347,20 @@ Pokémon Go continues to amaze trainers and fans of the franchise, and is becomi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-helps.techidaily.com/new-quick-access-to-xps-movie-making-tools/"><u>[New] Quick Access to XP's Movie Making Tools</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-navigate-through-itunes-recording-like-a-pro/"><u>[Updated] 2024 Approved Navigate Through iTunes Recording Like a Pro</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-mastering-macbook-air-beginners-guide-to-screen-recording-for-2024/"><u>[Updated] Mastering MacBook Air Beginner's Guide to Screen Recording for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-proven-techniques-to-convert-and-download-pinterest-video-audio/"><u>[Updated] Proven Techniques to Convert and Download Pinterest Video Audio</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/a-comprehensive-guide-to-mastering-ipogo-for-pokemon-go-on-apple-iphone-se-drfone-by-drfone-virtual-ios/"><u>A Comprehensive Guide to Mastering iPogo for Pokémon GO On Apple iPhone SE | Dr.fone</u></a></li>
-<li><a href="https://location-fake.techidaily.com/a-detailed-vpna-fake-gps-location-free-review-on-apple-iphone-6s-plus-drfone-by-drfone-virtual-ios/"><u>A Detailed VPNa Fake GPS Location Free Review On Apple iPhone 6s Plus | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/catch-or-beat-sleeping-snorlax-on-pokemon-go-for-apple-iphone-11-pro-max-drfone-by-drfone-virtual-ios/"><u>Catch or Beat Sleeping Snorlax on Pokemon Go For Apple iPhone 11 Pro Max | Dr.fone</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/comprehensive-study-editmagics-power-edition/"><u>Comprehensive Study EditMagic's Power Edition</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/how-can-i-get-more-stardust-in-pokemon-go-on-apple-iphone-se-2020-drfone-by-drfone-virtual-ios/"><u>How can I get more stardust in pokemon go On Apple iPhone SE (2020)? | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-apple-iphone-11-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, 4 solution to get rid of pokemon fail to detect location On Apple iPhone 11 Pro Max | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-can-i-create-my-pokemon-overworld-maps-on-apple-iphone-8-drfone-by-drfone-virtual-ios/"><u>In 2024, How Can I Create My Pokemon Overworld Maps On Apple iPhone 8? | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-do-you-get-sun-stone-evolutions-in-pokemon-for-apple-iphone-15-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, How Do You Get Sun Stone Evolutions in Pokémon For Apple iPhone 15 Pro? | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-does-the-stardust-trade-cost-in-pokemon-go-on-apple-iphone-14-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, How does the stardust trade cost In pokemon go On Apple iPhone 14 Pro? | Dr.fone</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-ways-to-stop-parent-tracking-your-oneplus-ace-3-drfone-by-drfone-virtual-android/"><u>In 2024, Ways to stop parent tracking your OnePlus Ace 3 | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/most-asked-questions-about-pokemon-go-battle-league-rewards-on-apple-iphone-15-plus-drfone-by-drfone-virtual-ios/"><u>Most Asked Questions about Pokemon Go Battle League Rewards On Apple iPhone 15 Plus | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-the-increase-of-crypto-on-fb-and-ig-ads/"><u>Navigating the Increase of Crypto on FB & IG Ads</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/risk-assessments-are-essential-for-prioritizing-biosecurity-efforts-based-on-threat-likelihood-and-potential-impact/"><u>Risk Assessments Are Essential for Prioritizing Biosecurity Efforts Based on Threat Likelihood and Potential Impact</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-borrow-premium-image-footage-via-top-rated-4-youtube-channels/"><u>[New] Borrow Premium Image Footage via Top-Rated 4 YouTube Channels</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-pros-verdict-4-superior-fullscreen-capture-applications/"><u>[New] In 2024, Pro's Verdict 4 Superior Fullscreen Capture Applications</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-online-viewers-count-counter-for-2024/"><u>[Updated] Online Viewers Count Counter for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-perfectly-merged-clips-the-power-of-blending-modes/"><u>[Updated] Perfectly Merged Clips The Power of Blending Modes</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-feature-a-podcast-in-one-quick-snap/"><u>2024 Approved Feature a Podcast in One Quick Snap</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-apple-iphone-14-pro-max-drfone-by-drfone-virtual-ios/"><u>4 solution to get rid of pokemon fail to detect location On Apple iPhone 14 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://techtrends.techidaily.com/discover-the-best-gps-applications-for-your-ios-device-our-picks/"><u>Discover the Best GPS Applications for Your iOS Device: Our Picks</u></a></li>
+<li><a href="https://discover-best.techidaily.com/harnessing-the-power-of-cookiebot-technology-for-boosted-search-engine-optimization-results/"><u>Harnessing the Power of Cookiebot Technology for Boosted Search Engine Optimization Results</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/how-can-i-catch-the-regional-pokemon-without-traveling-on-apple-iphone-6-plus-drfone-by-drfone-virtual-ios/"><u>How Can I Catch the Regional Pokémon without Traveling On Apple iPhone 6 Plus | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/how-to-get-and-use-pokemon-go-promo-codes-on-apple-iphone-15-pro-drfone-by-drfone-virtual-ios/"><u>How to Get and Use Pokemon Go Promo Codes On Apple iPhone 15 Pro | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-catchemall-celebrate-national-pokemon-day-with-virtual-location-on-apple-iphone-8-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, CatchEmAll Celebrate National Pokémon Day with Virtual Location On Apple iPhone 8 Plus | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/step-by-step-guide-to-perfectly-pair-videos-and-stories-for-2024/"><u>Step-by-Step Guide to Perfectly Pair Videos and Stories for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/understanding-the-underrated-downsides-of-vr/"><u>Understanding the Underrated Downsides of VR</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-apple-iphone-15-pro-drfone-by-drfone-virtual-ios/"><u>What is the best Pokemon for pokemon pvp ranking On Apple iPhone 15 Pro? | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/what-pokemon-evolve-with-a-dawn-stone-for-apple-iphone-13-drfone-by-drfone-virtual-ios/"><u>What Pokémon Evolve with A Dawn Stone For Apple iPhone 13? | Dr.fone</u></a></li>
 </ul></div>
 
